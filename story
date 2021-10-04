@@ -1,31 +1,35 @@
+
 Tantekel
 the dark side of jua, in the beginning
-Start
-Artikel
+
+    Start
+    Artikel
+
 Suchen
 Kapitel 1
+
 Datum 21. März 2021, 20:44
+
 1.01.Teil, Schelmenroman von Georg Dickas,
 in Fortsetzungsfolgen, Fortsetzungen folgen
 Jua-Band-Bio, Der Steinzeit-Trip,
 
-Die Begrüßung:🥁
-
-Herzlich willkommen bei 🌄Jua.🎶♠️
-DIE 🎺‚jazzy‚🚬Reggaeband aus💀 Kalk
-👊Antifaschistische, 🔞🥁aktivistische,
-antinationale,✊ agitative📢 Anarchos.
-Nicht 💰ohne💵Unkostenzuzahlung
-mobil mit Drahteseln🚴 unterwegs,
-draußen an der frischen 🌬️Luft,
-nicht elektrisch 🗝️verstärkt,
-nur wenn es 🔌sein muß,
-nicht 🆓kommerziell,
+Die Begrüßung:?
+Herzlich willkommen bei ?Jua.?♠️
+DIE ?‚jazzy‘?Reggaeband aus? Kalk
+?Antifaschistische, ??aktivistische,
+antinationale,✊ agitative? Anarchos.
+Nicht ?ohne?Unkostenzuzahlung
+mobil mit Drahteseln? unterwegs,
+draußen an der frischen ?️Luft,
+nicht elektrisch ?️verstärkt,
+nur wenn es ?sein muß,
+nicht ?kommerziell,
 nicht kommod,
-alles👀 klar?
+alles? klar?
 Wunder-
 bar.
-🍄
+?
 ✓
 
 Der INHALT, sehr kurz gefasst:
@@ -41,8 +45,9 @@ Meeresgrund abtauchen und sich eingraben
 kann. Auf dieser Reise bleibt es in einer
 Blase gigantischer Größe stecken…
 Bei diversen Zeitreisen und-sprüngen
-kommt es zu Kämpfen mit Sauriern, Bären
-und Nazi-Banden, 2
+kommt es zu Kämpfen mit Sauriern, Bären,
+Ungeheuern , Steinzeitmenschen, u.a.
+und Nazi-Banden, Zwei
 Atombombenabwurfsszenarien,
 zudem werden die Werke von
 Rückert, Sachs und Freud besprochen, es
@@ -50,6 +55,286 @@ gibt Moral und Unmoral, Drogen und
 Alkohol, schlichte Reime, schlechte Reime,
 zahllose fiese Emoticons, aber am Ende
 siegt das Gute, oder nicht?
+
+EIN TIPP VOR ANTRITT DER LESE-REISE:
+
+Will man ungestört die Freude beim Lesen
+meines Märchenbuches genießen, sollten
+Sie die lästigen Abschnitte, die sich durch
+großgeschriebene Überschriften
+ankündigen, besser schnell überspringen.
+
+DIE GRÜNDE FÜR DAS ÜBERSPRINGEN:
+
+Was verbirgt sich in diesen Abschnitten, die
+den Lesespaß so gemein ausbremsen
+können, und einen so schlimm runterziehen
+können, daß es einem die Laune verdirbt und
+einen stoppt, überhaupt noch weiter lesen zu
+wollen? : Ein rabiates Vertiefen in Unbehagen
+an folgenden schriftlichen Ausschweifungen:
+1. Abhandlungen über das aktuelle
+Zeitgeschehen, oder was geschichtlich,
+politisch dazu zu sehen sein sollte, das mit
+diesem zusammenhängt.
+2.: Predigtartige Selbsteinschätzungen des
+Autors zu religiösen Themen, Ansprachen, Verkündigungen, die eInfach entsätzlich nur
+nerven, sowas aber auch von.
+Falls die verehrte Leserschaft noch nicht
+aufgehört hat: Weiterblättern, bitte.
+3.:Des Autors Psychologisieren und
+Ratschläge in teils unzumutbaren Maß.
+4.Lamenti, die die gefühlte Betroffenheit des
+Autors ausdrücken, die teilweise als
+Zumutung für viele Personen der verehrten
+Leserschaft verstanden werden könnten.
+Das vom Autor empfohlene Fazit lautet:
+Überspringen Sie, besonders
+beim ersten Lesen des Schelmen-Romans,
+diese Leseblöcke unterschiedlicher Länge
+ganz einfach. Vorher das Exposé
+überspringen. Danach geht die Reise endlich
+los. Viel Spaß.
+
+DAS EXPOSÉ:
+
+Teil 1:
+
+Mein Schelmenroman, kurz, SR, ist eine,
+bildlich gesprochen, ‚Abrissbirne‘, die
+gegen die üblen, mörderischen
+rassistischen Denkgebäude einschlägt.
+Vordergründig die NS-Ideologie in all ihren
+Facetten. Inhaltlich, auf der zweiten tiefer
+gedachten Aussage-Ebene von mir
+beabsichtigt, dreht es sich um Existenz
+und Nicht-Existenz. Um die Koexistenz von
+Stofflichem und Nicht-Stofflichem, die von
+Staub und von Staublosem. Es geht um
+das Geheimnis des Daseins: Sterben, Tod,
+Cosmos, Ewigkeit, ‚ewige Gleichzeitigkeit‘,
+Zukunft, die Koexistenz von Gutem
+und Bösem, um’s grauenhaft wirklich Böse,
+und das heiligste wirklich Gute. Die selbe
+Thematik sehe ich auch bei Nelly Sachs.
+Allerdings schärfer und direkter, und in
+überwiegend verdichtet, in radikaler,
+‚Keil treibt in Keil‘, Art und Weise. Und im
+Gegensatz zu mir, ich bin Lit.-Anfänger,
+sind ihre Gedichte, die erst chronologisch
+gelesen für mich verständlich werden, von
+höchstem Kunst-Niveau. Ich transformiere
+ihre Sicht des Grauens, Umspielungen
+dessen, was man noch nicht mal denken,
+geschweige denn aussprechen
+darf, da es einen dann selbst verflucht,
+versteinert. Sofortige Erstarrung,
+unvorstellbar giftig. Ich spreche das Wort
+mit S nicht aus. Ich kreise das, die mit
+diesem Wort S gemeinte Thematik, im SR
+weiter, getarnter, versteckter, eben
+schelmisch, ein. So direkt, ernsthaft, von
+dunkler Schönheit der Wortwahl, der
+Gleichnisse, des Jonglierens der Satzbau-
+Konstruktionen ihrer Dichtung, über das real
+wirkende Unheils-Dasein, und
+um das Warum des Zulassens von arg
+Bösem, will auch ich in literarisch
+bescheidenerer Art das
+beleuchten, anpacken,
+auspacken, auswickeln, entfalten.
+Eine weitere Ausdeutung erlaube ich mir:
+Ein Gleichnis allerdings, mir zum Schutz:
+Der Gen-Schalter springt um. Der Mann
+im Ohr ist wieder da. Ich gebe
+den Stimmen gelegentlich nach, befolge
+den Anweisungen also, wodurch ich nach
+einem solchen meist bizarren Tuen, mein
+Ich ist dadurch dann erstarkt, danach
+wieder für eine gewisse Zeit Ruhe habe
+und klarer bin. Das ist Zirbeldrüsegeheim.
+Haldol, bzw. Haliperidol, das
+Neoroleptika in Schweden entwickelt
+war ab 1959 erstmals verfügbar und das
+erste wirksame Medikament gegen
+Krankheiten aus dem Formenkreis der
+Schizophrenie.
+
+Teil 2:
+Da ich fast täglich mindestens 1 Kapitel
+schreibe, erfinde, ist mein SR, so kann man
+das sehen, wenn man will eine Art
+Tagebuch. Anfgefangen:12.‚20.
+Pandämlich, zornig, selten oft albern,
+dämlich. Schwarz weiß, meist bunt.
+Erotik, Sexistisches fehlt, fast nichts
+dergleichen, Liebesgeschichten?
+Noch nicht, nur eine todtraurige, meinige
+wird angedeutet. Von den Drogenkonsum-
+Kriminalitäten abgesehen, alles verjährt,
+ist der SR sogar jugendfrei,
+Ich schreibe für Jugendliche,
+Ich schreibe auf gar keinen Fall für
+Nicht-Jugendliche. Hier schreibe ich einen Schelmenroman, der gedacht sei für
+Jugendliche. Leser meines Alters dürften
+auch gerade deswegen ihren Spaß haben.
+Ich bin ’59 geboren. Jugendliche verstehen
+genau was ich meine, auch wenn sie ja‘
+wohl meistens noch keine Erfahrung mit
+Suff oder Kiffen haben, sehr wohl wissen sie
+was ich meine; daß das schädlich und nicht
+cool ist, daß man noch nicht erwachsen ist,
+weil man ja‘ eben noch wächst. Dieser
+Lesestoff wird schützend, nicht verführend
+wirken, oder nicht?
+
+Meine speziellen ‚Wissens-Abgründe‘: Hier
+die Lit.-Quellen:
+Friedrich Rückerts legendäre
+Koranübersetzung, die von ihm daraus
+gezogenen Schlußfolgerungen, könnte im
+SR ausgebreitet, Ärger machen.
+Berger und Nord’s chronologisch sortierte
+Jesus Christus-Worte, Das neue Testament
+und frühchristliche Schriften.
+Das Buch Sohar, Jean Paul,
+Siegmund Freuds ‚Traumdeutung‘, Nelly
+Sachs Werke Band 2. Gesammelte
+Gespräche mit Menschen, die ich in
+Altenheime betreuen durfte.
+
+Verpönt sind Belehrungen, Predikten,
+Gebete, Rel. Ansicht, für meinen SR gilt das
+nicht.
+Teil 3:
+
+Eine passende Inhaltsangabe ist nicht so
+leicht zu machen. Bei meinem nicht immer
+humorigen spöttischen
+SR, der sich planlos, ein Kapitel täglich
+erfindend, und sich so addierend fortsetzt,
+bis heute, und das hört auch nicht mehr so
+schnell auf, ist das jetzt heute echt
+schwierig. Ein Wahnsinns Eintopf mit
+vielen verschiedenen Zutaten. Oder? Ich
+Versuche es:
+Handlungs-Fäden ziehen sich durch :
+
+1. Rahmung: Reisebeschreibungen einer
+teils märchenhaften Musik-Band-Biografie,
+autobiografisch vermischt.
+
+2. Rahmung: Si-Fi,-Freakliterarische,
+kriminelle, subkulturelle Zeitreisen in
+Sachen NS- und IS-Terror und Nazibekämpfungsstrategien zu
+verschiedenen Zeiten, Epochen,
+Abwechselnd in meist Ich oder
+Erzähler Form geschrieben.
+
+Teil 4:
+
+Insgesamt gesehen : Ein
+barockes vielschichtiges, romantisches,
+Fantasie-, Si-Fi-Werk und gleichzeitig ein
+freakliterarisch daherkommender
+Schelmenroman, ein schelmischer
+Bildungsroman bezüglich und hinsichtlich
+der unheilvollem NS-Nazi-Ideologie,
+(der Holocaust, die Shoah, der Genozid
+an den Juden also)
+die aufgeblättert wird: Der okkulte,
+bösartige Hintergrund dieser Ideologie,
+mit seiner giftigen rassistischen
+Verschwörungsgrundlage; der teuflischen
+Judenvernichtungsversprechung, durch
+die ihnen die Weltherrschaft von jenen
+dunklen Mächten zugesprochen werden
+soll. Die konkrete wörtliche Benennung
+dieses hier eben als bösartig und okkult
+genannten Hintergrundes ist hier das von
+mir und Nelly Sachs nicht ausgesprochene
+Wort mit S , eben das Kern-Thema um das
+sich alles dreht. Bei ihr und in meinem SR ;
+Diese dunkle Macht ‚S‘ also, die auch heute
+noch genutzt wird. Sie wirkt, ob tatsächlich
+oder nicht, und befeuert den
+Antisemitismus heute wie gestern.
+
+Der SR propagiert einen antiideologischen
+Standpunkt:
+Politisch antinational, freiheitlich,
+sozialistisch was Grundbesitz angeht:
+Besitzen: nein, Pachten: ja
+Wirkweisend eingestreut:
+Klimawandel, Religionen-Übergreifendes,
+Psychologie, NS-Geschichte, Historie
+didaktische Hinweise dazu.
+
+Teil 5:
+
+Formell: ineinandergreifende bislang 114
+Einzel-Kapitel: Reportagen in
+Gegenwartsform, Erzählungen meist
+Vergangenheitsform, Schlimm und schlecht
+Gereimtes, teils Lieder, werden eingestreut.
+Hörspiel-, Filmspielhaftes in
+Gegenwartsform, Autobiografische
+Erzählungen, aktuelles Tagesgeschehen
+wird verarbeitet.
+
+Teil 6:
+
+Handlungstränge:
+
+1. Handlungsfaden: Eine von John Lennon
+als Schatten-Präsident geführte
+Zeitreisenzuweisungsinstanz.
+2. Ein U-Boot- Raumschiff-Maschine, das
+sich nicht nur durch Wasser, sondern
+auch durch Erdreich tauchen, graben kann,
+und Raketen-gleich fliegen kann, auch
+intergalactisch und weiter.
+3. Jua-Musik-Band, ihre Reisen, Auftritte,
+deren Sendungsbewußtsein, Kämpfe,
+Mitglieder_inen, Spieler_innen, Abenteuer,
+Musikbeschreibungen, die
+Beschreibungen des Musizierens und
+deren Ausführung,
+die Band-Vorlauf-Geschichte.
+4.Nazis, Die NS-Zeit, deren antisemitische
+Verschwörungstaten, die Greuel der NS
+Judenvernichtungsmaschinerie, frühere,
+heutige, und die zu erwartende zukünftige
+Absicht der Nazi-Ideologie, das
+aufzeigend, weltweit, auch speziell in Köln.
+5.Arminius Luschet, NRWE, der RWE-
+Krater, Klimawandel, Hambach Wald, der
+tödlicheBaum-Besetzer-Absturz-Unfall.
+6. Reisebeschreibungen nach Mekka,
+Afrika,Lhasa, Baikal, Irkutsk, Virunga,
+Schweiz zumTeilchenbeschleuniger in
+Cern, die Alpenüberquerung, zu Trump
+auf Golfplatz nach Florida, Balkan, Orient,
+Atlantis in 1000km im Durchmesser
+großen Blase, bzw. Hohlraum im
+Erdinneren, die dort bepflanzten
+Pyramiden, zum Kanzleramt Bonn, Reise
+ins Paradies, Inter-Galactische Reisen,
+zum und in ein schwarzes Loch, ein
+Gravitationswellenritt jenseits der Urknall-
+Grenze, mit Eindringen
+in Dunkle-Energie-Nicht-Räumlichkeiten.
+7. Steinzeit-Trips, Traumerzählungen,
+Verwandlungsgeschichten.
+8. Mitreisende sprechende: Tiere,
+Apparaturen, Bäume, Maschinen.
+9. Das Grauen nach einer
+Atombombenexplosion.
+10. Der US-Präsident, bzw. Ex-Präsident,
+seine Abenteuer mit Jua, Erich und Waldi.
+
+DER ANFANG DER GESCHICHTE. DIESE
+GEDANKEN-REISE BEGINNT HIER:
 
 1.02. Teil, Schelmenroman von Georg Dickas
 Jua-Band-Bio, Der Steinzeit-Trip,
@@ -69,8 +354,8 @@ Goethe Institut, oder noch schlimmer
 wo 2 Chor-Sängerinnen Asyl beantragten,
 weil ihnen die Anwesenheit von Mirjam
 so behagte. ln der Uni-Disco-Kaschemme
-entstand JUA‘ s erstes von nunmehr acht
-Kindern. Unsere Eltern, wessen Kind ein
+entstand JUA’s erstes von nunmehr acht
+Kindern. Unsere Eltern, wessen Kind ein LG
 jeder auch immer sein mag, falls es sie
 noch gibt, leben verstreut im fernen Keyen-
 berg oder in Kalk, wo ja alles 1942
@@ -111,30 +396,30 @@ Sichtweise derartiger Vorstellungen,
 zitierten ♾️’ewigen Acht die alles
 durchdringt‘, dem heiligen
 ‚Schleifenengel‘ heraus gezogen,
-direkt in die🎧 Inner-Space-Delta-5-🎙️🎵
+direkt in die? Inner-Space-Delta-5-?️?
 Musik-Studios auf dem Zwergplanet Ceres,
 die in einer gigantischen, von 2500000
 Menschen-Seelen bewohnten∆ Pyramide
-integriert sind, wo uns Jimmy🎸 Hendrix
+integriert sind, wo uns Jimmy? Hendrix
 empfing, als hätte er uns bestellt.
 Unsere Freude währte nur kurz, da uns
 Jimmy schwer kritisierte, wegen
-unserer Flügelhornistin, 🎺die keinen sau-
+unserer Flügelhornistin, ?die keinen sau-
 beren Ton aus ihrer Tröt bekam,
 obwohl wir Rest-Band-Mitglieder
 spielten wie im Himmel.,, Seit 441
 Jahren hab ich mir nicht mehr so
 einen Scheiß anhören müssen! Jetzt
 ist Schluß. Gib mir dein Horn. Sowas
-möchte ich hier nie mehr hören.“🎹
+möchte ich hier nie mehr hören.“?
 Jua spielten dann für die Aufnahmen
 unsere Lieder mit Jimmy, statt mit
-Christiane am 🎺Flügelhorn ein. Er spielte
+Christiane am ?Flügelhorn ein. Er spielte
 auch nicht schöner, aber sauber. Wir
 bekamen nun endlich richtige
 Aufnahmen, die wir einüben sollten,
 was wir aber wie immer ignorierten.
-Jua’s☀️📙 Liederbuch spulten wir ab, Jua
+Jua’s☀️? Liederbuch spulten wir ab, Jua
 spielten quasi automatisch das Richtige,
 als wären wir Engel. Als ich Jimmy
 fragte warum das alles so wunder-
@@ -146,27 +431,27 @@ wieder ein Hajot-Trupp Hitler-Jugend-
 Pimogs-Asi-Pack? Unglaublich viele
 futuristisch aussehende Autos und
 merkwürdig angezogene Leute.
-Jimmy🦅 hatte uns etwas zu rauchen
+Jimmy? hatte uns etwas zu rauchen
 gegeben, aber wir merkten nichts,
 uns war nur anders.,,Lurens Jong, dat
-sin Neo-Nazis.“ 🔞 Raunt mich jemand
+sin Neo-Nazis.“ ? Raunt mich jemand
 von der Seite an.,,Wir waren in
 der Zukunft Leute.“ Klingelte es bei
 mir. Quwesiga, Lennart, Nik, Claudia
-Hund 🐕 Bumann verließen uns,
-einige für immer; Lorenz 🎸und Beate
+Hund ? Bumann verließen uns,
+einige für immer; Lorenz ?und Beate
 dürfen bei Jimmy bleiben, uns will er
 erstmal, verständlicher Weise, nicht
-um sich haben. Jimmy 🚬wollte auf keinen
-Fall mehr zurück, Beate und Lorenz🚬
+um sich haben. Jimmy ?wollte auf keinen
+Fall mehr zurück, Beate und Lorenz?
 ließen das offen. Jetzt, da ich
 Zeitreisender bin, gehe ich sie ab und
 zu mal besuchen, so wie der Rest der
 Band auch: 1843 treffen wir mitten auf
-der Straße Ludwig van Beethoven 🎹
+der Straße Ludwig van Beethoven ?
 sturzbetrunken, ich dachte schon es sei
-Kai. 🎻Ludwig singt einfach mit, während
-Jua in der Bonner Altstadt aufspielt. 🎺
+Kai. ?Ludwig singt einfach mit, während
+Jua in der Bonner Altstadt aufspielt. ?
 Er macht unsere Trompeterin Christiane
 an, und stellt ihr nach. Leider fällt sie auf
 ihn rein. Auf mich leider nicht. Leider gut
@@ -177,8 +462,8 @@ ließ. Ich mach nur Spaß. Noch wilder
 war Jo, Johann Sebastian Bach. Nicht
 was das Nachstellen anging, wie
 Ludwig, sondern seine R’n‚R-Show mit
-seiner Geige 🎻. Als Jua ‚Chang
-Chang‘ spielte, trauten wir unseren 👂
+seiner Geige ?. Als Jua ‚Chang
+Chang‘ spielte, trauten wir unseren ?
 Ohren nicht. Wenn das die Komponisten,
 vom B.V.S.C. gehört hätten. Jo‘ verjazzte
 diesen Afro-Cuban, daß die Fetzen flogen.
@@ -198,7 +483,7 @@ so viel es geht. Die armen Mütter tuen
 mir heute noch leid. Jua’s ‚ixter‘ Bassist
 Robert gleicht Jo optisch, braucht aber
 viel mehr ✓Pott, um überhaupt zu Potte
-zu kommen. es ist anscheinend seine
+zu kommen. Es ist anscheinend seine
 Hauptnahrung. Er lebt davon, glaub ich.
 Niemand weiß, wer da so alles zu Jua
 gehört. Jua ist eher als eine Bewegung
@@ -225,7 +510,7 @@ IM SCHELMENROMAN TEXT
 
 Das leider bitternötige Lamento :
 Arbeiter und Angestellte der unheilvollen
-und umweltfeindlichen RWE:👎💀☠️☢️
+und umweltfeindlichen RWE:??☠️☢️
 Das ist doch keine ehrliche Arbeit. Geht
 man da freiwillig arbeiten?⛔⌛
 Sowas tut man nicht! Eine unehrenhafte
@@ -269,19 +554,19 @@ Knast sitzend, sollen sie doch heulen,
 sind wir endlich los. ’28: Es hat sich
 alles total verändert. Alle sind vernünftiger
 geworden.Die Wiederbesinnung auf
-Pferdetransport🐴 in den Städten,🌃
+Pferdetransport? in den Städten,?
 Eisenbahn und Strassenbahn auf den
 ehemaligen Autobahnen, die Verstaatlichung
 von Grund und Boden, haben nach dem
 großen weltweiten Banken-Crash eine
 Neuorientierung, unter Führung der
 neuen Welt-Regierung von Schatten-
-Präsident John 🦅Lennon & Co-Präsidenten
-J.F.K und Julius🦸 Cäsar von Ceres aus,
-ergeben. Das Di-ckastros-Energie-💡
+Präsident John ?Lennon & Co-Präsidenten
+J.F.K und Julius? Cäsar von Ceres aus,
+ergeben. Das Di-ckastros-Energie-?
 Umwandlungs-System, ’2063 von
-Acapulco-Gold-City 🌴aus, der Hauptstadt
-von 🎇Orions Planet Rodergas,🌀
+Acapulco-Gold-City ?aus, der Hauptstadt
+von ?Orions Planet Rodergas,?
 eingeführt, das aus dem Meerwasser,
 das damals ja ständig anstieg, eine neue
 CO2-mindernde Energiequelle erschloss,
@@ -289,15 +574,15 @@ die zudem auch Mikroplastik filtert, hilft
 den Temperaturanstieg in der Erd-
 Atmosphäre zu mindern. Das sieht
 günstig aus, den drohenden, die AKWs
-einfach ☢️wegpusten könnenden💀
-Monster-Stürmen 🌪️zu entgehen, die
+einfach ☢️wegpusten könnenden?
+Monster-Stürmen ?️zu entgehen, die
 entstehen werden, wenn die Temperatur
-um c.a. 5 Grad 🌡️weltweit ansteigen würde.
+um c.a. 5 Grad ?️weltweit ansteigen würde.
 Das Di-ckastros-Energie-⚡Umwandlungs-
 System wird sich auch günstig auswirken
 auf den Zugang zu weltweit verfügbaren
-sauberem 🚿Wasser. Das hört sich doch
-gut an. Oder nicht?🍀
+sauberem ?Wasser. Das hört sich doch
+gut an. Oder nicht??
 
 1.04.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip,
@@ -313,7 +598,7 @@ spielen, sonst funktioniert der Schutz nicht.
 Und das nonstop. Bald fällt uns kein Stück
 mehr ein. Unser Lieder-Buch ist komplett
 durchgespielt. Also spielen wir, wie wir
-sowieso am liebsten spielen: Jua🌻 frönt
+sowieso am liebsten spielen: Jua? frönt
 dem befreienden Einlassen in das intuitive
 Improvisieren. Es wird einfach drauflos
 gespielt. Ein wildes Dirigat entwickelt sich
@@ -334,7 +619,7 @@ ja gezwungen immer weiter zu spielen.
 Der Rhythmus läßt sie voll wegtreten.
 Wir wissen allerdings, daß es ohne uns
 sehr schlimme Probleme geben wird.
-Dummerweise habe ich mich, ich bin🥁
+Dummerweise habe ich mich, ich bin?
 Jua’s Schlagzeuger, selbst hypnotisiert,
 und falle vom Hocker. Kurz bevor der
 Raumkreuzer in Schwierigkeiten kommt,
@@ -344,7 +629,7 @@ gar keinen Fall aus dem Rythmus kommen.
 Der ‚Flow‘ muß unbedingt erhalten
 bleiben. Captain Gookface erst neulich
 von der Boogle auf die Black Diamond
-abkommandiert schaltet 🚀
+abkommandiert schaltet ?
 geistesgegenwärtig auf Auto-Pilot, und
 setzt sich ans Schlagzeug. Die Idee
 ist gut gemeint aber es funktioniert noch
@@ -359,7 +644,7 @@ bekommen. Das ist nicht untypisch für
 JUA, aber nicht gut ☣️
 für den Strahlen-Schutzschirm. Kakai,
 wie so oft sturzbetrunken, purzelt in der
-Pilotenkanzel🍺 herum und betätigt
+Pilotenkanzel? herum und betätigt
 versehentlich den Autopilot-Funktions-
 Verriegelungs-Schalter des Bedienungs-
 Schutzvorrichtungs-Regel-Knaufs auf
@@ -368,7 +653,7 @@ Pegel ist er nicht so verstrahlt wie
 der Rest der Besatzung, und intuitiv zieht
 er den Kreuzer nach unten und versucht
 die Mond-Atmosphäre zu durchbrechen
-um auf dem Mond zu landen. 🌕
+um auf dem Mond zu landen. ?
 Aus Leibeskräften kräht er:
 „Die Liebe ist kalt wie der Tod.“ Sein derzeitiger Lieblingssong der
 ‚Element of Crime‘. „Sauber!“ Brüllt
@@ -394,9 +679,9 @@ Raumkreuzer, mit seinem
 Dickastro-Turboantrieb, ist ein auf 1000
 Jahre mindestens haltbar ausgelegter,
 Baujahr ’2340er, Großraumschlepper.
-Ein auf dem von 🎇Orion’s 310 Lichtjahre
+Ein auf dem von ?Orion’s 310 Lichtjahre
 entfernten Planet Hanah ✨gebauter, dort
-von den🧚 Nieselianern, ausgeliehener ‚
+von den? Nieselianern, ausgeliehener ‚
 ‚Großraum-Schlepp-Kreuzer‘
 .
 Aber völlig unerkannt hatten sich die
@@ -464,11 +749,11 @@ auch seine Gitarre mit auf dem Mond.
 Wir müssen zurück, schon allein
 wegen seiner Gitarre, obwohl wir
 schon alle einen mächtigen Hunger
-haben. Kakai, immer noch🍺 voll drauf,
+haben. Kakai, immer noch? voll drauf,
 läßt sich nicht abbringen und feuert
-unsere mächtigste Kawumm, 🔫
+unsere mächtigste Kawumm, ?
 10000000000 Tonnen TNT stark,
-ab. Der Mond 🌒 hat einen neuen
+ab. Der Mond ? hat einen neuen
 großen Krater. Jetzt waren wir
 doch traurig ohne Markus…..
 
@@ -518,8 +803,8 @@ soweit dass man die Lebenszeit locker
 auf 300, 400 oder 500 Jahre erhöhen
 konnte. Als Schlagzeuger der Band habe
 ich ’2090, genau wie der Rest der Band,
-genau wie Angus Young, 🎸Jimi Hendrix,
-Nina 🎤Hagen und noch jede Menge andere
+genau wie Angus Young, ?Jimi Hendrix,
+Nina ?Hagen und noch jede Menge andere
 diese Lebensverlängerungs- Injektion
 bekommen, damit das Zeitreisen
 überhaupt erst einen Sinn macht,
@@ -549,7 +834,7 @@ bekommen, sich plastisch auszubreiten.
 Eine Art fortschreitende Hall-Räumlichkeit.
 Wie kam ich darauf? Ich hatte einen Traum.
 
-MEIN HÖLLISCHER TRAUM:
+Mein höllischer Traum:
 
 Diese Sache erklärte ich Petrus in meinem
 schlimmen Traum, in dem ich mich selbst
@@ -576,12 +861,12 @@ würde ich den Betrieb aufhalten. Und
 ich ging sofort in die angewiesene
 Richtung, Heil-froh, daß er mich ließ.
 Ich konnte in die Richtung gehen, in der
-keine Flammen 🔥zu sehen waren.
+keine Flammen ?zu sehen waren.
 Tatsächlich hatte ich diese, für meine
 Verhältnisse⚡ blitzartige Eingebung in
 jenem Horror-Traum. Ob ihr es glaubt
-oder nicht. WEITER IM TEXT:
-
+oder nicht.
+Weiter im Text:
 Das ist nötig, um in der Lage
 zu sein, den Strahlenschutz-Schirm unseres
 Planeten zu stabilisieren und dabei mit zu
@@ -591,7 +876,7 @@ Sängerinnen, war das sehr schwer
 glaubwürdig zu erklären. Das Jua’s ‚Flow‘
 den Strahlenschutzschirm stabilisiert,
 das klingt doch schon größenwahnsinnig,
-sogar total wahnsinnig. Oder nicht?🎸
+sogar total wahnsinnig. Oder nicht??
 Malcolm Young kam mit dem Hin und Her
 nicht mehr zurecht. Im Austausch mit der
 europäischen Polizeibehörde Europol, die
@@ -599,12 +884,12 @@ im Prinzip für die Koordination zuständig
 ist, also was Zeitreisen betrifft, spielt dabei
 neben John eine führende Rolle. Trotzdem
 konnte sich der Hintergrund-Chef der Welt,
-der unsichtbare John🦅 Lennon, der einzig
+der unsichtbare John? Lennon, der einzig
 wahre Präsident, der anno ’15 mit seiner
 verrückten Idee: ‚Amerika mal richtig
 aufmischen‘, und eben diesen Donald
 machen zu lassen. John, genau wie
-Jimmy Hendrix, 🎸gehen grundsätzlich
+Jimmy Hendrix, ?gehen grundsätzlich
 nicht, oder lassen sich grundsätzlich
 nicht, in der Gegenwart sehen. Trump
 sollte, so John’s Auftrag an ihn,
@@ -638,7 +923,7 @@ inkognito, John Lennon gewesen ist,
 Donald zu bringen.
 Unser geliebter genialer John hatte ihn
 damit geködert, ihr könnt es euch denken;
-daß Donald, das 🐫Trampeltier, wenn er
+daß Donald, das ?Trampeltier, wenn er
 mitmacht ebenfalls Zeitreisender werden
 darf, und wie versprochen 500 Jahre alt
 werden darf. Dafür macht der alles. Als
@@ -679,7 +964,7 @@ gar nicht sehen, scheint JUA zu gefallen.
 Doch sobald wir nicht sauber spielen, ja
 selbst eine kleine Kunst-Pause, Hendrix
 sieht unsere Trompeterin scharf an und
-signalisiert :„Vorsicht Freundchen,🎺
+signalisiert :„Vorsicht Freundchen,?
 anständig spielen!“Der Fahrstuhl bremst
 ab. Plötzlich wird der Fahrstuhl plötzlich
 schneller.
@@ -704,7 +989,7 @@ der ‚Chef-Innererde-Planet-Majästet‘
 ihren Rhythmus verschärfen, aus dem
 Afro-cuban-Beat, in einen 3-taktigen-
 Jazz-Samba-Mambo-Afro-Cuban-
-Groove übergehen, den 🎹
+Groove übergehen, den ?
 stoisch halten sollen, sie ‚platt‘ machen,
 so hypnotisch spielen, also richtig fett
 treibend spielen, daß sich das
@@ -732,7 +1017,7 @@ Erde abbrach, und sich im Laufe der Zeit
 zum Mond formte. Da im Erdinneren
 die Gravitation wesentlich geringer ist,
 und dieses ‚Es‘ sicher vor abstürzenden
-Meteoriten und kleinen Mini Planet-🌋
+Meteoriten und kleinen Mini Planet-?
 Einschlägen und anderen katastrophalen
 Auswirkungen und Erdbeben war, und
 noch immer ist. Auf der Oberfläche kann
@@ -761,15 +1046,15 @@ ungefähr ausfüllt. Diese außerirdische
 Macht hat es in der „Hand“ unsere
 Menschheit zu
 beschützen. JUA ist die einzige Band
-die sich überreden läßt. 🎸 Angus, 🎻Bach
-Beethoven, 🎹Nina 🎤Hagen, keiner der
+die sich überreden läßt. ? Angus, ?Bach
+Beethoven, ?Nina ?Hagen, keiner der
 Zeitreisen-Befähigten stellte sich zur
-Verfügung. Nur Jua 🌻ließen sich
+Verfügung. Nur Jua ?ließen sich
 erbarmen, John-U.S. Präsident- Lennon’s
 Bitte zu folgen, hier unten gute Stimmung
 zu machen, für dessen Verhandlungen mit
 jener ‚Quarkigkeit‘, dem lieben ‚Es‘. Lennon
-kommt ja auch ohne Julius🦅 Caesar und
+kommt ja auch ohne Julius? Caesar und
 J.F.Kennedy, ebenfalls noch lebende
 Zeitreisende, aus. Lennon ist echt super,
 weil er Jimmy Hendrix bittet, uns Jua’s
@@ -783,33 +1068,33 @@ berechneten Stößen ein vorausgesagtes
 sehr schweres Erdbeben verhindern. Das
 ‚Es‘ macht eben genau das, ein paar
 kleine Stöße, während JUA
-‚Stupid Heads‘ 🔞angehen lassen. Jetzt
+‚Stupid Heads‘ ?angehen lassen. Jetzt
 dürfen wir auf keinen Fall stolpern, oder
 das Tempo verschleppen oder anziehen;
 das Tempo muß stimmen. Hendrix reißt
 die Arme hoch und schaut mit großen
-Augen 👁️👁️zu mir, ich darf jetzt nicht
+Augen ?️?️zu mir, ich darf jetzt nicht
 schwächeln, gleich kommt der Wechsel
 vom 3/4 in den double-time-4/4-Rhythmus,
 wann kommt der, jetzt kommt er,…Achtung:
-‚eintokozweitokoNAZISTÖTEN‘,🔞
-tatatata jaja tata, Schwein🐖 gehabt, jetzt
+‚eintokozweitokoNAZISTÖTEN‘,?
+tatatata jaja tata, Schwein? gehabt, jetzt
 kann nichts mehr schiefgehen. John U.S
 Präsident Lennon matscht dem ‚Es‘ die,
 na ja, Hände oder was immer das ist.
-„Abflug nach oben“, Präsident🕊️ Lennon
+„Abflug nach oben“, Präsident?️ Lennon
 winkt dem ‚Es‘ nach. Teile vom ‚Es‘
 begleiten uns im Fahrstuhl. Etwas ‚Es‘
 bleibt erstmal bei John in seiner Hand…
 hau ab, weg, nicht in meine Haare!
 Jetzt hab ich ‚Es‘,ahhhhhh… Ich merke
 nichts, aber mir ist so anders……‚Es‘ hat
-mich ….gefreut. Euch auch? 🗿Erdogan
+mich ….gefreut. Euch auch? ?Erdogan
 jedenfalls auch. Er bedankt sich auf
 seine Weise; er wird hoffentlich schon
 bald, wie man sagt ‚kurzen
-Prozeß‘ machen mit dem ‚IS-Terror‚🗡️
-seinen ‚Schürzenjägern‘, 💣‚Bomben-
+Prozeß‘ machen mit dem ‚IS-Terror‘?️
+seinen ‚Schürzenjägern‘, ?‚Bomben-
 legern‘. Mögen die weltweit
 agierenden IS-Terroristen endlich
 aufhören und umkehren. Jeder Mensch
@@ -824,9 +1109,9 @@ korrigiert werden, Die Vorgeschichte, Teil 7,
 Jua-Band-Bio, JUA’s Orient-Trip,Teil 1:
 Die Reise nach Mekka:
 
-✡️Klezmer-Musik 🎶klingt so ähnlich wie
+✡️Klezmer-Musik ?klingt so ähnlich wie
 Jua-Musik.☀️ Sie hört sich doch mehr nach
-Zirkusmusik,🎪 als nach🎡 Kirmesmusik an.
+Zirkusmusik,? als nach? Kirmesmusik an.
 Karibische Klezmer-Musik? Na ja, o.k.
 New York, Köln-Kalk, Tokio, Sowas wie
 Jua ☀️gab’s noch nirgendwo.
@@ -836,7 +1121,11 @@ Schirm unseres Planeten aufrechtzu-
 erhalten, dafür sind wir Musiker, also auch
 Jua, zuständig. Ich hoffe ihr seid ein-
 geweiht. Ansonsten wäre hier auf Erden
-schon alles vor die Hunde gegangen. Eine
+schon alles vor die Hunde gegangen.
+
+ACHTUNG, SCHELMENROMAN-ALARM
+
+Eine
 wahrhaftige Prophetin, die 1. Frau von Mo,
 sie war 10 Jahre älter und gebildet, die es
 verstand, sich mit ihrer List ,hinter ihrem
@@ -848,7 +1137,7 @@ führende Sendung der Menschheit zu
 schenken, trafen wir in Mekka.
 
 Jua gab dort Konzerte zu jener Zeit.
-Beate, Nelly Sachs und die uns
+Beate, Nelly Sachs und die uns In
 managenden Abgeordneten von Ceres,
 das ist der Zwerg-Planet auf dem Jimi
 Hendrix seine Inner-Space-Studios
@@ -900,13 +1189,23 @@ und ein absoluter Kenner der arabischen
 Sprache, der arabischen Literatur und
 insbesonders der arabischen Dichtung
 hatte er die nötige Bildung und genügend
-Feingefühl jenen Hinweis geben zu können.
+Feingefühl jenen Hinweis zu geben.
 
 Um der heiligen Sache wegen, wollte Mo
 jetzt nicht aufhören mit seiner göttlichen,
-oder wenn nicht göttlichen späteren,
-garantiert aber spirituellen Sendung.
-Sendungs-‚Show‘? Nur Gott weiß.
+oder mit seiner eventuell nicht göttlichen
+späteren, dennoch garantiert ebenso spiri-
+tuellen, eigenen Sendung. Nur Gott weiß.
+Von Gott gesandt? Nur Gott weiß. Der letzte
+Gesandte, auf den wir hören sollten, der
+nach mir kommt, der alles aufgeschrieben
+bringt, wie Jesus Christus, Sohn der Maria,
+angekündigt haben soll? Oder meinte er
+Paulus? Oder kommt er noch. Wen meinte
+Jesus? Siehe u.a. Kapitel 127. Wir sollten,
+sage ich:???: Auf alle Gesandten hören.
+
+WEITER IM ROMAN:
 
 Wir ahnten einfach nicht wohin das
 führen sollte und verreisten in eine andere
@@ -920,7 +1219,9 @@ Made in Germany✓Cosmische Kalkurier ©✓
 
 Autor Schorsch Tantekel
 Kapitel 2
+
 Datum 21. März 2021, 20:59
+
 2.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -994,7 +1295,7 @@ jua-Musik ☀️wär ohnˋ Belang.
 Satt fallen wir in tiefen Schlaf…
 Da schleicht sich an, und sucht
 fetteste Beute sich zum Fraß,
-ein Säbeltiger, 🐯der ist nicht deppert,
+ein Säbeltiger, ?der ist nicht deppert,
 er kann sich Robert reißen, kras.
 Da mit lautem Schnarch, den Tiger hat
 verschreckt Markus, laut und barsch.
@@ -1024,39 +1325,39 @@ Leibhaftige. Die JUA-Band spielt als ging
 es um ihr Leben.„Ich bin nicht euer D.J.,
 ich bin PEEETRUSS!“ Dröhnt und donnert
 es mit gewaltigem Echohall. Als Jua’s
-Drummer 💀wird mir irgendwie anders.
+Drummer ?wird mir irgendwie anders.
 Es prügelt von mir sich völlig losgelöst,
 ein besessen ich irrwitzig ‚schnell, rasedoll‘,
 mit 7/8 tel taktigem Endlos-Wirbel:„Wieso
 kann ich das, das kann ich doch gar nicht,
 wie kommt der, das ist nicht Angus, der
-ist viel zu groß, das ist keine SG,🎸 das ist
-ein Dreizack!“🔱 Es schwant mir Unheilvolles.
+ist viel zu groß, das ist keine SG,? das ist
+ein Dreizack!“? Es schwant mir Unheilvolles.
 Ist das der Leibhaftige der☀️ Jua in die Hölle
-werfen🔥 will? Ich fühle mich tierisch unwohl,
-das sind keine Sticks, das sind 🐗Hufklauen,
-JUA heizt höllisch ein. Meine 🐷Ohren
+werfen? will? Ich fühle mich tierisch unwohl,
+das sind keine Sticks, das sind ?Hufklauen,
+JUA heizt höllisch ein. Meine ?Ohren
 verdecken mir die Sicht. Quietschend
 schreie ich:„ Ich verbrenne!“ Höre aber nur
-ein begnadetes Mörder-Grunzen.🐖
+ein begnadetes Mörder-Grunzen.?
 „Ich, bin Petrus.“Sagt der Weißbärtige.
 „Was geht hier ab?“Grunze ich.
-„Du DUMME SAU!“ 🐷 Er zeigt zu mir:
+„Du DUMME SAU!“ ? Er zeigt zu mir:
 ,,RUUHEE!“ Ich gallopiere, wie die Band im Schweinsgalopp zu dem riesigen breiten
 und hohen Pult, weg von dem Feuerbrand
 „Der Musik also habt ihr euer Leben
 gewidmet?“Ach, Oh jeh, ist das das jüngste
 Gericht und der Weißbart Petrus, der mit
-dem Schlüssel?🗝️ Es dämmert mir allmählich
+dem Schlüssel??️ Es dämmert mir allmählich
 Sonja rudert mit den Armen und fällt
 ohnmächtig um. Markus röschelt und
-spuckt tausend Fliegen aus.🦟🦋
+spuckt tausend Fliegen aus.??
 Robert durchschaut die Lage und zeigt
-mit seinen🐟 ‚Flossen‘ himmelwärts: „Wir
+mit seinen? ‚Flossen‘ himmelwärts: „Wir
 gemahnen unser junges Publikum mittels
 Musik-mit gescheiten Textinhalten so
 zur besseren Lebensführung an.“
-Petrus blättert in seinem großen 📖Buch
+Petrus blättert in seinem großen ?Buch
 herum und macht ohne uns anzusehen
 eine abfällige Handbewegung, die soviel
 bedeutet wie; ‚weiter, weiter‘,als sollten
@@ -1076,13 +1377,13 @@ Schrei so laut ich kann, höre mich mit Hall.
 „Eisiges, ewiges, leeres All!“
 Ich schwanke, dreh mich, falle ohne Ende,
 stürze wie in Zeitlupe um, flach ins Gelände.
-Das Dorf, der Wald, 🌳alles platt gedrückt.
+Das Dorf, der Wald, ?alles platt gedrückt.
 „JUA,☀️ Ohjeh, alle jetzt tot? Ich werd verrückt!“
 Aufgewacht, find mich auf des Boden Dielen.
-fiel aus dem Bett hernieden! 🛌
+fiel aus dem Bett hernieden! ?
 Stehe endlich auf, öffne des Fensters Laden.
 Erinner mich des Traumes Handlungs Faden.
-Die Sonne🌄 geht gerade auf, Glück gehabt
+Die Sonne? geht gerade auf, Glück gehabt
 Das wird ein schöner warmer Sommertag.
 Oder nicht?®
 
@@ -1095,7 +1396,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 3
+
 Datum 21. März 2021, 21:02
+
 3. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip.
 
@@ -1106,7 +1409,7 @@ das! Bist du verrückt?“Ich schrei:„Fress
 keinen Drummer mit Stick!“ Er hat genug,
 springt weg und schimpft:,,Mir ist der
 Appetit vergangen, du hast Glück.“„Nicht
-mit mir!“ Oh, der🐯 kann ja reden? Träum
+mit mir!“ Oh, der? kann ja reden? Träum
 ich, das ist doch nicht wahr? Ich wache
 auf. Träume, in welchen man redet, sind
 immer Selbstgespräche, na klar, egal mit
@@ -1123,7 +1426,7 @@ erinnern wir uns, den schreibt man auf,
 die folgenden auch, in der Summe vieler
 zeigt sich dann was.Ja, so warssssss……
 und schlafe beruhigt wieder ein. Ich merke
-es nicht, mir ist nur ‚anders‘. Der Tiger,🐯
+es nicht, mir ist nur ‚anders‘. Der Tiger,?
 zurück, mit tiefer Stimme ,, SchOOOorsch,
 DUUHUHU, HUUUNGerrr“, Oh„Hilfe“, der
 schon wieder, werde von meinem eigenen
@@ -1138,7 +1441,9 @@ Made in Germany✓Cosmische Kalkurier ©®✓
 
 Autor Schorsch Tantekel
 Kapitel 4
+
 Datum 21. März 2021, 21:04
+
 4. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1161,7 +1466,7 @@ und..,nee, einschlafen geht nicht, ahh… Scheiß-
 Fliegen, ich muß mal, jetzt bitte nicht. Einschlafen
 Georg, einschlaafeen!…..Geht’s. oder nicht?®
 
-Fortsetzung ab Kapitel 16
+Fortsetzung ab Kapitel 15
 
 2021®Georg Dickas✓Schorsch Tantekel ©✓
 ®Blunot Rec.BR4711CD.LP.CC.IMEI:EU.J.USA.
@@ -1169,7 +1474,9 @@ Made in Germany✓Cosmische Kalkurier ©™✓
 
 Autor Schorsch Tantekel
 Kapitel 5
+
 Datum 21. März 2021, 21:53
+
 5. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1224,7 +1531,9 @@ Made in Germany✓Cosmische Kalkurier ©✓
 
 Autor Schorsch Tantekel
 Kapitel 6
+
 Datum 21. März 2021, 21:56
+
 6. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1255,7 +1564,9 @@ Made in Germany ✓Cosmische Kalkurier ©✓
 
 Autor Schorsch Tantekel
 Kapitel 7
+
 Datum 21. März 2021, 21:58
+
 7. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit Trip:
 
@@ -1298,7 +1609,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 8
+
 Datum 21. März 2021, 22:00
+
 8.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1373,9 +1686,9 @@ geborenen Frauen antworteten eindeutig:
 glaubten uns nicht was hier geschah, dabei
 war das Unheil nicht zu übersehen.„Oder:
 ,,Ich bin aus Angst vor Übergrifflichkeiten der
-Braun-Hemden nur noch mit dem🚲 Radel zur
+Braun-Hemden nur noch mit dem? Radel zur
 CFK, zur ‚Chemischen‘ zur Arbeit gefahren.“
-Als Frau zu Fuß durch💀 Kalk war einfach zu
+Als Frau zu Fuß durch? Kalk war einfach zu
 gefährlich für uns junge Frauen. Das Thema
 ‚Fremdarbeiter_in‘ war tabu; sichtbar schon!
 
@@ -1431,7 +1744,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 9
+
 Datum 21. März 2021, 22:02
+
 9. Teil. Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1447,7 +1762,7 @@ Mitropa-Reichsbahn-Centrale, wo auch die
 Großwäscherei für Bettwäsche,
 Dienstuniformen, Wolldecken, für den
 Bestand der Schlaf-und Liege-Wagen, zu
-finden ist. Für mich als erfahrener 👮
+finden ist. Für mich als erfahrener ?
 Liegewagenschaffner ist das problemlos.
 Wir steigen ohne Probleme über eine offene
 Dachlüftungsluke ein. Ich hab hier schon
@@ -1460,7 +1775,7 @@ schnellen Raubzug, steigen in den letzten
 Waggon am Abstellgleis Richtung Deutz
 hier auf dem Kalker-Feld ein, Kaakai singt
 laut, unsere russischen Freunde
-untermalen das, so daß eine🚬
+untermalen das, so daß eine?
 Eisenbahnarbeiter-, Lokführer-Gruppe kein
 Verdacht schöpft, wir lassen uns beim
 Singen nicht stören, einige stimmen sogar
@@ -1471,7 +1786,7 @@ gebunden, um gleich Zeit zu gewinnen für
 die problematischen letzten paar Hundert
 Meter, wo es am Rheinufer entlang, direkt
 am Wasser, zur Deutzer-Brücke geht. Die
-Angler-Treppe unter der Brücke 👀
+Angler-Treppe unter der Brücke ?
 hoch kommend „Psst“ Wir haben 5 Uhr. In
 30 Minuten werden wir die Paddelclub-
 Eingangstüre aufbrechen müssen, um
@@ -1487,7 +1802,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 10
+
 Datum 21. März 2021, 22:03
+
 10. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1534,7 +1851,9 @@ Made in Germany✓Cosmische Kalkurier©®
 
 Autor Schorsch Tantekel
 Kapitel 11
+
 Datum 21. März 2021, 22:05
+
 11. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1544,7 +1863,7 @@ mich vor 4 Tagen ausgab, meine Rettung
 bei meiner Entdeckung. Die Nazi-Ablöse
 werden echte Probleme bekommen,
 zuerst mit dem von mir vor 5 Minuten
-mit Klebstoff verstopften 🔒Schloss, und
+mit Klebstoff verstopften ?Schloss, und
 dann richtig schlimme, wenn wir uns in
 Duisburg versteckt haben werden, mit
 ihrer Scheiß-Nazi-Reichs-Marine-Führung.
@@ -1561,7 +1880,7 @@ Gestank mahnen das dringliche,
 konzentriere Durchziehen des nächsten
 Raubzuges an. Wir zittern nicht vor Angst….!
 Das hätte schiefgehen können, klappte
-doch noch, da Igor ein begnadeter🥃 Trinker
+doch noch, da Igor ein begnadeter? Trinker
 und Elite-Militärkampf-Taucher war.
 Ohne seine Tricks, wären wir wohl
 erwischt und hingerichtet worden.
@@ -1577,7 +1896,7 @@ beschwerten Schnappskisten,
 hinterher schwimmend, der uns an
 sicherer Stelle jede einzelne Kiste an
 der Luke anreichte, ohne voll auftauchen
-zu müssen. Da wir Diesel 🛢️sparen
+zu müssen. Da wir Diesel ?️sparen
 möchten ‚tauchen‘ wir für die nächsten
 4 Wochen ‚unter‘…..®
 
@@ -1587,7 +1906,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 12
+
 Datum 21. März 2021, 22:06
+
 12. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1625,7 +1946,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 13
+
 Datum 21. März 2021, 22:07
+
 13. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1662,7 +1985,9 @@ Made in Germany✓Cosmische Kalkurier®©✓
 
 Autor Schorsch Tantekel
 Kapitel 14
+
 Datum 21. März 2021, 22:08
+
 14. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1694,7 +2019,7 @@ vor und er verät uns ein Geheimnis:
 Spitzner ist ein Volksverräter, der wird
 gesucht, tot oder lebendig, er wird mit dem
 Verschwinden des U-Bootes als Spion, als
-Hochverräter gesucht. Diederichs Tage
+Hochverräter gesucht. Seine Tage
 sind gezählt. Heute suchen wir
 stromabwärts. Er kann nicht entkommen.
 Eine Frage der Zeit bis wir ihn haben.“„Ein
@@ -1712,7 +2037,7 @@ echten SS-Spitzner nicht, sonst hät ich jetzt
 ausgespielt, tut nur so vertrauensselig,
 weil er kostenlos Arbeiter für irgendwas
 braucht.„Die geheime U-Boot-Station,
-die Bauarbeiten habe ich auch bemerkt,
+die Bauarbeiten habe ich auch bemerkt, r
 aber jetzt kommt unser Zug. Nächste
 Woche, versprochen, klappt das.“Der:
 „Sieg Heil.“ Er zieht endlich ab in
@@ -1724,7 +2049,7 @@ zum ersten mal mit unseren neuen Freunden
 das mit Kurt Tucholsky’s Text versehenem
 ‚Augen in der Großstadt‘,‚Schwarze Augen‘.
 Es klingt mit dem 20-Mann-starken, befreitem
-russischen Chor voll orginal. ☀️Jua©✓🎶
+russischen Chor voll orginal. ☀️Jua©✓?
 kommt selbstverständlich mit uns auf
 U-Boot-Reise. Wir tauchen in Basel
 auf und sind raus aus Nazi-Deutschland.
@@ -1735,7 +2060,9 @@ Made in Germany✓Cosmische Kalkurier©✓
 
 Autor Schorsch Tantekel
 Kapitel 15
+
 Datum 21. März 2021, 22:24
+
 15. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1743,8 +2070,8 @@ Ich wache auf. Wir werden gleich
 auftauchen. Ich wälze mich in der Koje.
 Anstatt auf Decken liege ich in Fellen und
 die duften angenehm gut nach sauber
-🐎 Stute. Bei Vogelgezwitscher und 🐝
-Bienchengesumm im 🌲 Baum über mir
+? Stute. Bei Vogelgezwitscher und ?
+Bienchengesumm im ? Baum über mir
 blinzelt die ☀️ Sonne durch den Wald
 mir ins Gesicht. Wie kann ich da im
 U-Boot sein!? Das bin ich nicht. Wie
@@ -1753,9 +2080,9 @@ Jua noch schlafen? Ich raff mich auf und
 stehe einfach mal auf. Was hab ich getan,
 wer will mich strafen?
 Mein Verstand setzt aus, aus die Maus?
-Ich bin immer noch voll drauf aber ich🐁
+Ich bin immer noch voll drauf aber ich?
 träume doch wohl kaum, denn ich steh
-jetzt an einem🌲Baum, und mir wird klar
+jetzt an einem?Baum, und mir wird klar
 warum sind wir auf Erden. Eben darum:
 Um zu Singen und um mit vernünftigem
 Tuen was zu erbringen und um uns in
@@ -1787,23 +2114,25 @@ Made in Germany, Cosmische Kalkurier®©✓
 
 Autor Schorsch Tantekel
 Kapitel 16
+
 Datum 21. März 2021, 22:27
+
 16. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Vom Baum zurück ins Fell-Nest-Bett, der
 Wald rauscht, Camping-Feeling.Träume
-ich, war was im🍵 Tee? Ich merke nichts,
+ich, war was im? Tee? Ich merke nichts,
 aber mir ist so anders. Ich möchte die
 Augen nicht aufschlagen. Einschlafen!
 Georg einschlafen! Einschlaafeen..es wird
-nichts, Huch, der Baum🥦 steht dicht an
+nichts, Huch, der Baum? steht dicht an
 meinem Kopf, ich berühre ihn, der Baum
 ist zur mir rüber gekommen, alles klar,
-ich träume. Der Baum🌳, die Rinde ist
+ich träume. Der Baum?, die Rinde ist
 weich, wie Leder, aber ..ich sehe nach
-oben, in große freundliche 👁️Augen. Ein
-Elephant 🐘 durchdringt mich mit seinem
+oben, in große freundliche ?️Augen. Ein
+Elephant ? durchdringt mich mit seinem
 wohlgesinnten Blick .,,Hallo Balu.“ Höre
 ich mich selber sprechen. Hmmmmmm
 brummt er mich beruhigend an. Ein Lieber,
@@ -1812,7 +2141,7 @@ das gibt’s doch gar nicht.„Mein Freund.“
 Jetzt bin ich wach, strecke fühl mich
 prächtig, zuhaus, geborgen, völlig
 angstfrei und hungrig. Er pflückt was und
-hält’s mir vor die Nase.„Dankeschön.“🍇
+hält’s mir vor die Nase.„Dankeschön.“?
 Christiane nimmt es mir aus der Hand
 und beißt rein. „MMM.“„Wo sind wir?“
 „Nicht in Basel.“ Wo ist das U-Boot?“
@@ -1841,7 +2170,7 @@ habe ich eigenhändig befreit!“„Entführt
 meinst du wohl?“„Ja, genau! Der passt
 eh nicht ins U-Boot, der ist jetzt unser
 Schiff.“Ahoi, Leinen los, wir lassen uns
-von Balu schleppen. 🛶Den ollen Kahn hat
+von Balu schleppen. ?Den ollen Kahn hat
 Markus ‚gefunden‘.
 
 2021©®Georg Dickas✓Schorsch Tantekel®
@@ -1850,13 +2179,15 @@ Made in Germany✓Cosmische Kalkurier©✓
 
 Autor Schorsch Tantekel
 Kapitel 17
+
 Datum 21. März 2021, 22:31
+
 17. Teil, Schelmenroman von Georg Dickas, Jua-Band-Bio, Der Steinzeit-Trip:
 
 Kopf und Rüssel ragen gerade noch so aus
 dem Wasser. Balu im Rhein und ☀️Jua auf
 Balu. Er läuft auf dem Grund, wir sitzen auf
-ihm aufgebockt im Kahn. 🛶
+ihm aufgebockt im Kahn. ?
 Der kleine Kahn ist im Korb-Aufbau fest
 vertäut, sicher und stabil von Robert, der ein
 Architekt ist und der bei Jua den Bass zupft.
@@ -1928,7 +2259,9 @@ Made in Germany✓Cosmische Kalkurier ®©✓
 
 Autor Schorsch Tantekel
 Kapitel 18
+
 Datum 21. März 2021, 22:35
+
 18. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -1979,8 +2312,8 @@ in hundert Jahren,
 gewesen waren,
 gewesen waren wir
 in hundert Jahren hier.“
-
 ©® Georg Dickas, BlunotRec.NYC.‚20
+
 Ich frage mich, woher Balu mein
 Lied kennt, wir haben uns harmonisch
 schön ergänzt. Wir könnten als Duo
@@ -2023,11 +2356,13 @@ Made in Germany✓Cosmische Kalkurier©®✓
 
 Autor Schorsch Tantekel
 Kapitel 19
+
 Datum 21. März 2021, 22:43
+
 19. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Balu 🐘 riecht Essbares. Er lässt uns endlich
+Balu ? riecht Essbares. Er lässt uns endlich
 mal runter, ein Segen. Wir wissen nicht,
 tut ihm was weh? Hat er was freizulegen?
 Mit seinem Rüssel wühlt er da im Schnee:
@@ -2039,26 +2374,26 @@ Baumstamm. Oh-weh. K.o. Ihm geht das
 Licht aus, ‚wubschh‘ und ‚wamm‘, herab
 fällt viel Schnee, ist nun nicht mehr zu seh’n,
 macht nun kein ‚Problem‘, um reinzugeh’n
-Gefrorene Reserve gibt’s vom Schwein,🐗
+Gefrorene Reserve gibt’s vom Schwein,?
 Kai winkt uns jubelnd herein, schnell wird
-ein Feuer🔥 gemacht, Jua aufgewärmt,
-alle satt. Da ist noch was über, 🐻 Bär ist
+ein Feuer? gemacht, Jua aufgewärmt,
+alle satt. Da ist noch was über, ? Bär ist
 aufgewacht, ist doch nicht so platt, ☀️Jua
 schläft, schleicht ganz sacht, will den
 fettesten Jua sich reißen, hat dann was zu
 beißen. Oh‘, sowas schrieb ich schonmal,
 bitte nichts wiederholen! Will euch doch
 nicht verkohlen. Roberts oder Christianes
-Bauch? Er 🐻 kann sich nicht entscheiden.
+Bauch? Er ? kann sich nicht entscheiden.
 Er hat Angst vor Balu, schlau ist er auch,
 will Krach vermeiden, doch
 lieber nicht diese Frau. Nimmt Vorlieb mit
-dem Rest der gebratenen Sau. 🐗
+dem Rest der gebratenen Sau. ?
 Sind Freunde geworden, Balu und der Bär,
 deshalb, das ist nicht gekommen von
 ungefähr, weil er Jua ☀️hat verschont, was
 ihm fiel schwer, doch für ihn hat
-sich’s gelohnt. ‚Gummi- 🐻 Bär‘, von uns
+sich’s gelohnt. ‚Gummi- ? Bär‘, von uns
 so getauft, auf nach Afrikan‘, Balu gibt Gas,
 gibt ‚Gummi‘ zu hauf, ohne Rast über den
 Balkan, hat guten Lauf, hat den Weg nicht
@@ -2078,7 +2413,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 20
+
 Datum 21. März 2021, 22:44
+
 20. Teil. Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -2102,7 +2439,7 @@ trinkfester Mensch: Halb Mensch, halb
 Tier, n‘ Sackjesech‘ von der metallischen
 dickhaarigen, strohblonden Köln Kalker
 Art, höllisch gefährlich, blitzschnell,
-absolut unberechenbares ‚TNT‘. 💣
+absolut unberechenbares ‚TNT‘. ?
 Robuster, humorvoll, hilfsbereit,
 ein Lieber, nervös, hellwacher
 Charaktertyp! sediert, mit
@@ -2115,12 +2452,12 @@ Stop!
 zu.
 ✓
 :
-Ein gefühlvoller Soul🎤Sänger,
-Percussionist,🥁 Gitarrist, in den
-frühen Achtzigern 🎸 Gitarrist bei der
+Ein gefühlvoller Soul?Sänger,
+Percussionist,? Gitarrist, in den
+frühen Achtzigern ? Gitarrist bei der
 Punkrock-Band Inzest, Punkrocker der
 ersten Stunde, der letzte seiner Art,
-heute Teilzeit💀Überlebender auf Abruf bei
+heute Teilzeit?Überlebender auf Abruf bei
 JUA☀️Eiserne Reserve, Schläfer
 Gefährder, Stamm, Germany, Export,
 Only, Non Profit, Exclusive Service Köln
@@ -2130,7 +2467,7 @@ AFRI, JUA Interantinational Incorporated,
 Dic-kastroniks Intergalactica Jettöne.
 Powerd by:
 Cosmische-Kalkurier©-Kalkost©.✓✓✓✓✓
-New York, Köln Kalk,💀,Tokio,🌷 Amsterdam,
+New York, Köln Kalk,?,Tokio,? Amsterdam,
 Singapur, Kapstadt, Warschau, Rio de Janeiro,
 Lagos, Dakar, Sydney, Miami, Mexiko, Moskau.
 Nik, den wir hier, er war in Timbuktu, getroffen
@@ -2140,28 +2477,28 @@ Ich hab mich vor zwei Stunden bei
 Balu’s Ankunft am schönen Nil
 umgestellt, und übernehme gerne
 seine für jua ☀️wichtige Aufgabe, die
-uns hier, in Nord-Afrika wo 🍺Alkohol eh
+uns hier, in Nord-Afrika wo ?Alkohol eh
 tabu ist, auf cosmische berauschende
 musikalische Umlaufbahnen bringen
 wird. Das kann ich am besten. Kai mag
 es, Gummi mag’s nicht, Sonja , ☀️
-Christiane🌜, Markus🌛, Robert 🌞ein wenig,
-Stephanie 🌖nicht, Balu 🐘ebenfalls nicht.
+Christiane?, Markus?, Robert ?ein wenig,
+Stephanie ?nicht, Balu ?ebenfalls nicht.
 Balu bewacht unsere Sachen zusammen
-mit Gummi, 🐻unserem heimlichen🌠 Star bei
-jua*🌻. Unser Roots🌱Reggae kommt an. Der
+mit Gummi, ?unserem heimlichen? Star bei
+jua*?. Unser Roots?Reggae kommt an. Der
 harte Einsatz meiner
-*Wirkstoff💀Verabreichung ✓ zeigt sich
+*Wirkstoff?Verabreichung ✓ zeigt sich
 bereits: Die Band hebt ab ✓, Balu und
 Gummi tanzen ein Duet. Herangelockte
 Kamele juchzen vor Begeisterung. Unsere
-ersten🐫 Zuhörer und vielleicht auch die
+ersten? Zuhörer und vielleicht auch die
 ersten jua-Freunde in Afrika. Balu ist
 glücklich, morgen früh geht’s weiter,
 immer am Nil entlang. Sicher ist sicher,
 er ist hier unser wahrer Anführer, bald
 wird er seine Familie treffen. Auf zur
-großen Elephantenrunde. 🐘🐘🐘🐘
+großen Elephantenrunde. ????
 Das wird ein Fest.
 Wetten das?®
 
@@ -2171,7 +2508,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 21
+
 Datum 21. März 2021, 22:48
+
 21. Teil, Schelmenroman von Georg Dickas
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -2208,40 +2547,40 @@ strandet auf einer Sandbank. Die
 entsetzten Passagiere hören nicht nur
 unseren, Dub Reggae Sound mit dem
 mörderisch lautem Echo Hall Gesang
-Sound, sie sehen ein Boot 🛶 mit Jua und
-🐻 Bär Gummibär, Balu’s Rüssel aus dem
+Sound, sie sehen ein Boot ? mit Jua und
+? Bär Gummibär, Balu’s Rüssel aus dem
 Wasser ragend, auf sich zu kommen,
 und wie sich langsam zuerst das Boot,
-dann Balu’s Schädel, dann uns auf 🐘 Balu
+dann Balu’s Schädel, dann uns auf ? Balu
 im Boot, welches im Flechtkorb, der auf
 Balu’s Rücken montiert ist, dann auf die
-Sandbank aufsteigende turmhohe 🎶
+Sandbank aufsteigende turmhohe ?
 Musikdarbietung, die, Balu schiebt den
 Dampfer ⛴️in die Fahrrinne zurück, steigt
 schließlich auf die Dampferplattform
 auf, und gibt das Abfahrtsignal mit
-triumphal Schmettern von der 🎺
-elephantischen Art, einen 🎷
+triumphal Schmettern von der ?
+elephantischen Art, einen ?
 unvergesslichen bizarren Eindruck
-machen muss. Nik ruft laut: 📢
+machen muss. Nik ruft laut: ?
 ,„Ahoi, Alles Klar! Auf der Andrea Doria?“
 Und kommt rüber wie Hans Albers, den
-er, na logisch, voll drauf hat.🚢
+er, na logisch, voll drauf hat.?
 „La Paloma, Ade“, AFRI JUA:„Matrosen
-Ohe“🍺….„Wie isset?…..Alles o.k?“ Balu
+Ohe“?….„Wie isset?…..Alles o.k?“ Balu
 dreht sich zweimal im Kreis und steigt
 von Bord zurück in den Nil, auf nach
-Kairo, da kommt uns ein 🔞Nazi U
+Kairo, da kommt uns ein ?Nazi U
 Boot entgegen, das Periskop zuerst,
 dann komplett auftauchend. Mann sind
-die blau.🍺 Sie stranden ebenso auf der
+die blau.? Sie stranden ebenso auf der
 tückisch gelegenen Sandbank direkt
 vor Jua auf Balu im blauen Nil.
-Die Luke geht auf„nastrovief“ 🥃, Nik ist
+Die Luke geht auf„nastrovief“ ?, Nik ist
 platt. Er kriegt sich nicht mehr ein,
 schüttelt sich im Lachkrampf halbtot.
-Kai 🦅freut sich auf, na, ihr wisst schon,
-oder nicht? 💀 *✓™🍺🌞🐗🚬
+Kai ?freut sich auf, na, ihr wisst schon,
+oder nicht? ? *✓™????
 
 2021©®Georg Dickas✓Schorsch Tantekel®
 Blunot®Rec.BR4711CD.LP.CC.IMEI:EU.J.USA.
@@ -2249,23 +2588,27 @@ Made in Germany✓Cosmische Kalkurier©®✓
 
 Autor Schorsch Tantekel
 Kapitel 22
+
 Datum 21. März 2021, 22:49
+
 22. Teil, Schelmenroman von Georg Dickas,
 JUA-Band-Bio, Der Steinzeit-Trip:
+Nil aufwärts, Balu ?gibt Gummi, Gummi ? Bär schwimmt nebenher. ldeal bei afrikanischen Temperaturen, das macht was her, dies Bild, da bleibt kein ?Krokodil am Strand liegen; stürzen sich zu vielen, wie wild in den Nil, uns ab sofort zu eskortieren. Das U-Boot noch dazu, grade aufgetaucht, Obengenannte stehen oben drauf, es wird geraucht.? ,,Falsche Richtung Freunde!“ Ich weise darauf hin: ,,Da geht’s nicht nach Jekaterinburg, wir fahren zum Victoriasee und durch bis Burundi.“ Da angekommen, wer ist schon da? Unsere russischen U-Boot-Freunde, um uns zu helfen, voraus gefahren, denn sie wussten was uns da erwarten würde. Ein Ungetüm von einem U-Boot, mit seltsamer Drillbohrerform. einem wuchtigen stählernen Aufsatz, dessen Aussehen das eines riesigen aufgerissenen Hai-Mauls? ähnelt, eine Art kreisrunde gezähnte Fräse, ein innen hohl bis zum Ende durchgeführter röhriger, schlauchiger Hohlraum, der das Umgebungwasser durch sich selbst zieht. Gummis ? Krokodil-Freunde stürzen??? sich, mir fiel beim Anblick dieser mit Hakenkreuzen beflaggten Horror Maschine, die Pfeife ✓aus dem Mund, auf die Nazi-U-Boot-Besatzung. Sie haben, da sie schlafen, keine Chance……Entsetzlich, es bleiben nur ihre Stiefel ?übrig. ,,Seit ihr auch schon da.“ Boris erklärt uns was es mit dem monströsen Boot auf sich hat:,,Eine Scheiß-Nazi- Geheimwaffe. In Deutz haben wir als Zwangsarbeiter beim U-Boot-Bau, viel gelernt. Weißt du eigentlich, daß die uns an dem Tag als du uns zufällig retten konntest, exekutieren wollten, da wir Geheimnisträger waren?“„Erzähl Keinen!“ Kaakai singend mit Nik Knatterton:„Einen Nazi fraß mein ?Krokodil, zwei mit Rumpf und Stiel, drei, das ist doch nicht zu viel für’s Anti-Nazi-Krokodil.“Nik kräht:„Ne Boddel mit Rum, der Kaakei fällt um.“ „Rumzusuffe hanie Trick, klämm mich *fäs anen Nik.“ Igor und Bo, möchten mitkommen, Balu ?wird verabschiedet, er bleibt ja hier, er will nicht über das Virunga Gebirge. JUA ☀️, Gummi ?, Kaakai? rein ins Drilluboot, die letzte Kiste Schnapps umgeladen vom U-ins Drill-U-Boot. Wir tauchen ab, am Seegrund angekommen bohrt sich das riesige 140 Meter lange DUB, so taufen wir das gekaperte Ungetüm, durch den Seegrund tiefer und tiefer durch das Gestein durch die Erde, durch die hunderte Kilometer dicke Erdkruste in Richtung Erdmitte. Mit sowas hatte ich nicht im Traum gerechnet, oder doch? Ich merke nichts, aber mir ist so anders. Balu ? ist nach drei Tagen Schlaf, wir hatten ihn versehentlich ? betäubt, nachdem er sich bei seiner Familie sprachlich und kulturell doch nicht so zu Hause fühlte, und lieber mit Jua ☀️ mitkommen wollte, er war halt ein halber Mammut, und das ließ ihn seine afrikanische popelige Verwandschaft, auch spüren. Wir trösteten ihn mit Strohmatratzen aus dem zurückgelassenen U-Boot. Dabei fraß er Sonja’s Gras ? Reserven mit auf. Da kann einem schon mal anders werden, das kann ich euch sagen. Der technisch immer sehr interessierte Kai, die lieben Russen haben den Schnapps ?versteckt, sie sind, das ist wohl mein Verdienst, auf den Geschmack gekommen, rauchen mir alles, es ist ? noch sehr reichlich Extrakt da,.o.k,ok, …Das die Scheiß-Nazis für ? Überraschungen gut, sorry, gut ist an denen definitiv nichts. Auf dem Mond ? trafen und pulverisierten wir sie, also Kaakai. Wie haben die Scheiß-Nazis das nur geschafft, die Innenraumtemperatur bleibt stabil, der Sauerstoff, der Diesel-?️ Vorrat scheint unerschöpflich zu sein. Orange-glühend die Aussicht, beim Anblick wird mir anders, aber ich merke nichts. Boris, Nik und Kai in der Pilotenkanzel erklären mir die Wirkungsweise, ihre Fachwörter, ihre roten höllischen Augen, ihr diabolisches Lachen, ich geh nach hinten. Wir sind mindestens 16 Stunden unterwegs, Balu ? guckt sich Christianes Textheft an ?„Songtexte.“ Sagt er:„Die hat was zu sagen, die liebe, aber Schorsch, was ist mit dir, machst du dir Sorgen?“„Nö, alles o.k., sag, wo wollen die hin? Zum festen Erdkern?“„Spinnst du, das ‚Es‘ dürfen wir nicht stören, das geht nur mit vorheriger Anfrage von John, El Präsidento? Lennon!“,,Wohin geht’s denn jetzt, Balu?“ Er verwandelt sich. „Zu mir, zu Mammuta in die ? ?Steinzeit!“
 
-Nil aufwärts, Balu 🐘gibt Gummi, Gummi 🐻 Bär schwimmt nebenher. ldeal bei afrikanischen Temperaturen, das macht was her, dies Bild, da bleibt kein 🐊Krokodil am Strand liegen; stürzen sich zu vielen, wie wild in den Nil, uns ab sofort zu eskortieren. Das U-Boot noch dazu, grade aufgetaucht, Obengenannte stehen oben drauf, es wird geraucht.🚬 ,,Falsche Richtung Freunde!“ Ich weise darauf hin: ,,Da geht’s nicht nach Jekaterinburg, wir fahren zum Victoriasee und durch bis Burundi.“ Da angekommen, wer ist schon da? Unsere russischen U-Boot-Freunde, um uns zu helfen, voraus gefahren, denn sie wussten was uns da erwarten würde. Ein Ungetüm von einem U-Boot, mit seltsamer Drillbohrerform. einem wuchtigen stählernen Aufsatz, dessen Aussehen das eines riesigen aufgerissenen Hai-Mauls🦈 ähnelt, eine Art kreisrunde gezähnte Fräse, ein innen hohl bis zum Ende durchgeführter röhriger, schlauchiger Hohlraum, der das Umgebungwasser durch sich selbst zieht. Gummis 🐻 Krokodil-Freunde stürzen🐊🐊🐊 sich, mir fiel beim Anblick dieser mit Hakenkreuzen beflaggten Horror Maschine, die Pfeife ✓aus dem Mund, auf die Nazi-U-Boot-Besatzung. Sie haben, da sie schlafen, keine Chance……Entsetzlich, es bleiben nur ihre Stiefel 🥾übrig. ,,Seit ihr auch schon da.“ Boris erklärt uns was es mit dem monströsen Boot auf sich hat:,,Eine Scheiß-Nazi- Geheimwaffe. In Deutz haben wir als Zwangsarbeiter beim U-Boot-Bau, viel gelernt. Weißt du eigentlich, daß die uns an dem Tag als du uns zufällig retten konntest, exekutieren wollten, da wir Geheimnisträger waren?“„Erzähl Keinen!“ Kaakai singend mit Nik Knatterton:„Einen Nazi fraß mein 🐊Krokodil, zwei mit Rumpf und Stiel, drei, das ist doch nicht zu viel für’s Anti-Nazi-Krokodil.“Nik kräht:„Ne Boddel mit Rum, der Kaakei fällt um.“ „Rumzusuffe hanie Trick, klämm mich *fäs anen Nik.“ Igor und Bo, möchten mitkommen, Balu 🐘wird verabschiedet, er bleibt ja hier, er will nicht über das Virunga Gebirge. JUA ☀️, Gummi 🐻, Kaakai🍺 rein ins Drilluboot, die letzte Kiste Schnapps umgeladen vom U-ins Drill-U-Boot. Wir tauchen ab, am Seegrund angekommen bohrt sich das riesige 140 Meter lange DUB, so taufen wir das gekaperte Ungetüm, durch den Seegrund tiefer und tiefer durch das Gestein durch die Erde, durch die hunderte Kilometer dicke Erdkruste in Richtung Erdmitte. Mit sowas hatte ich nicht im Traum gerechnet, oder doch? Ich merke nichts, aber mir ist so anders. Balu 🐘 ist nach drei Tagen Schlaf, wir hatten ihn versehentlich 💀 betäubt, nachdem er sich bei seiner Familie sprachlich und kulturell doch nicht so zu Hause fühlte, und lieber mit Jua ☀️ mitkommen wollte, er war halt ein halber Mammut, und das ließ ihn seine afrikanische popelige Verwandschaft, auch spüren. Wir trösteten ihn mit Strohmatratzen aus dem zurückgelassenen U-Boot. Dabei fraß er Sonja’s Gras 💀 Reserven mit auf. Da kann einem schon mal anders werden, das kann ich euch sagen. Der technisch immer sehr interessierte Kai, die lieben Russen haben den Schnapps 🥃versteckt, sie sind, das ist wohl mein Verdienst, auf den Geschmack gekommen, rauchen mir alles, es ist 🚬 noch sehr reichlich Extrakt da,.o.k,ok, …Das die Scheiß-Nazis für 🔞 Überraschungen gut, sorry, gut ist an denen definitiv nichts. Auf dem Mond 🌖 trafen und pulverisierten wir sie, also Kaakai. Wie haben die Scheiß-Nazis das nur geschafft, die Innenraumtemperatur bleibt stabil, der Sauerstoff, der Diesel-🛢️ Vorrat scheint unerschöpflich zu sein. Orange-glühend die Aussicht, beim Anblick wird mir anders, aber ich merke nichts. Boris, Nik und Kai in der Pilotenkanzel erklären mir die Wirkungsweise, ihre Fachwörter, ihre roten höllischen Augen, ihr diabolisches Lachen, ich geh nach hinten. Wir sind mindestens 16 Stunden unterwegs, Balu 🐘 guckt sich Christianes Textheft an 📙„Songtexte.“ Sagt er:„Die hat was zu sagen, die liebe, aber Schorsch, was ist mit dir, machst du dir Sorgen?“„Nö, alles o.k., sag, wo wollen die hin? Zum festen Erdkern?“„Spinnst du, das ‚Es‘ dürfen wir nicht stören, das geht nur mit vorheriger Anfrage von John, El Präsidento🦅 Lennon!“,,Wohin geht’s denn jetzt, Balu?“ Er verwandelt sich. „Zu mir, zu Mammuta in die 💀 🦴Steinzeit!“
 2021©®Georg Dickas✓Schorsch Tantekel®
 Blunot®Rec.BR4711CD.LP.CC.IMEI:EU.J.USA.
 Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 23
+
 Datum 21. März 2021, 23:01
+
 23.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Gummi 🐻schnarcht, 🐘Balu’s Segelohren
-fächeln im Rhythmus der 🎶Musik, er
+Gummi ?schnarcht, ?Balu’s Segelohren
+fächeln im Rhythmus der ?Musik, er
 schlänkert hin und her, rasselt mit einer
 Eisenkette, die er stibitzt hat. Er liebt
 das, er hängt an ihr, er liebt das
@@ -2273,41 +2616,41 @@ Geräusch. Es grooved, passend zum
 schwerfälligen DUB-Reggae-Sound;
 auch, die sich selbst in den
 ‚Sieben-Pfeifen-Himmel‘ ✓✓✓✓✓✓✓
-entrückten 💀 Genossen genießen den
+entrückten ? Genossen genießen den
 Sog, das sich Hingeben in einen Fluss
 von ziehenden, rollenden, pumpenden
-aus und wieder einsetzenden 🌋Bass-
+aus und wieder einsetzenden ?Bass-
 Tönen. An und ab schwellende
 Klang-Kaskaden der Echo-Hallkammern
 in der DUB-Stahlräumlichkeit, die sich
 mit den ätherischen Stimmen von
 Christiane und Sonja abwechseln,
-und mit den farbigen 🎹Akkordeon,
+und mit den farbigen ?Akkordeon,
 Blockflöten, Querflöten Tongebilden,
 zum Stöhn Brummen des russischen
-voll 💀 stoned Chores, sich zu einem
-‚Wahnsinns‘ Hörerlebnis 👂🌋👂
+voll ? stoned Chores, sich zu einem
+‚Wahnsinns‘ Hörerlebnis ???
 zusammenführen, das uns leider richtig
-schlimm gut voll fertig macht💀. Erst
+schlimm gut voll fertig macht?. Erst
 recht wenn die stoisch gehackten
-Off Beat 🎸Gitarrenakkorde und die
-strahlenden Flügelhorn 🎺Töne gleissend
+Off Beat ?Gitarrenakkorde und die
+strahlenden Flügelhorn ?Töne gleissend
 sich ergiessen zu einem extatischen,
 hypnotischem Drive, daß ich glaube die
 Besinnung zu verlieren, und voll
-weggetreten 💀 aus den 👟 Latschen
-kippe, als ich mich zum 🥁Schlagzeug
+weggetreten ? aus den ? Latschen
+kippe, als ich mich zum ?Schlagzeug
 begeben möchte. Ich falle in einen
 tiefen lustvollen Rausch-Zustand mit
-anschließender🧟 katatonischer🦴💀
+anschließender? katatonischer??
 Versteifung, gerade als ich anfangen
 will, jetzt nach halbstündigen fünf
 laaangeeen Minuten…Oder sind es?
 „Ich merke nichts, aber mir ist so
-anders.“ Höre 👂ich mich laut denken
-„Ja was denkst denn Du?“„🗿Schorsch,
+anders.“ Höre ?ich mich laut denken
+„Ja was denkst denn Du?“„?Schorsch,
 du spinnst, lass dir das von mir
-sagen, so wahr ich ein 🐳‚Blaubär‘
+sagen, so wahr ich ein ?‚Blaubär‘
 bin. Oder nicht?“✓
 
 2021©®Georg Dickas✓Schorsch Tantekel®
@@ -2316,20 +2659,22 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 24
+
 Datum 21. März 2021, 23:11
+
 24.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Ich 🗿bin immer noch 🦴stocksteif, ist das
-jetzt das Ende?.💀…Oder kommt noch
+Ich ?bin immer noch ?stocksteif, ist das
+jetzt das Ende?.?…Oder kommt noch
 was? Endlich nach endlos langem
 Ausklingen, 7 Takte lang, geht das
 Stück 2ta unta 3ta unta 4ta, und jan, hat
 geklappt, bin beweglich, spiele locker,
 falle doch nicht vom Hocker. Gummi.
-der 🐻 Blaubär hat wieder braunes Fell
+der ? Blaubär hat wieder braunes Fell
 bekommen, tanzt, dreht sich stehend
-im Kreis und fängt an zu singen: 🎶
+im Kreis und fängt an zu singen: ?
 
 ,,Gummi, Gummi, Gummi, Gummi,……
 Gummi, Gummi, Gummi, Gummi,
@@ -2343,8 +2688,8 @@ Break ,,Gummi?“ Dann weiterspielend,
 „Maulkorb-Verbot, Wahrheit muß raus
 Gebot.“ Gummi ist radikaler
 Umweltfreund, Agitator, Aktivist, ein
-linker 🐕 Hund, nein 🐻 Bär.
-Er ist auch ein📙 Märchenbuch-Autor.
+linker ? Hund, nein ? Bär.
+Er ist auch ein? Märchenbuch-Autor.
 Steinzeit-Höhlen-Forscher, nicht von
 ungefähr, erfahrener Winterschläfer
 gewesen zuvor. Fabelhafter Brummer,
@@ -2369,7 +2714,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 25
+
 Datum 21. März 2021, 23:25
+
 25.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -2386,29 +2733,29 @@ schwer schlimm, schlimm die Gelenke,
 
 Tempo,Tempo,Tempo,Tempo,
 Tempo,Tempo,Tempo,Tempo,
-Tempo 80 auf der 🛣️Autobahn, und 30
+Tempo 80 auf der ?️Autobahn, und 30
 außerhalb, und das möglichst bald,
 besser sofort als bald!
 
-Eisen, Eisen, Eisen, Eisen🛤️🚂
-Eisen, Eisen, Eisen, Eisen🚉🚋
-Eisenbahn-Strecken-Ausbaustau-Abbau🚆
-für mehr🚈 Eisenbahn-Infrastruktur-Aufbau
+Eisen, Eisen, Eisen, Eisen?️?
+Eisen, Eisen, Eisen, Eisen??
+Eisenbahn-Strecken-Ausbaustau-Abbau?
+für mehr? Eisenbahn-Infrastruktur-Aufbau
 
-radel, radel, 🚴radel, radel,🚲
-radel, radel, 🚴radel, radel,
+radel, radel, ?radel, radel,?
+radel, radel, ?radel, radel,
 Radwege-Netz-Ausbau, das wäre doch
 schlau. Vorrang für Fuß, Radwege statt
-Autobahnbau.🛣️🚐🚛🚒
+Autobahnbau.?️???
 
 freier, freier, freier, freier,
 freier, freier, freier, freier
-kostenfreier öffentlicher 🚋Nahverkehr, statt
+kostenfreier öffentlicher ?Nahverkehr, statt
 umweltfeindlichem Individual-Autoverkehr-
-Verheer.“🛣️🚖🚙🚗
-
+Verheer.“?️???
 ©®‚21Geog Dickas. ®Blunot™Records, N.Y.C., Köln-Kalk, Tokio,
-Balu kommt mit einer großen 🍊
+
+Balu kommt mit einer großen ?
 Orange, sehr, riesig große orangene Kugel,
 das kann doch nicht sein? Ein Meter im
 Durchmesser, riecht aber so, also o.k., da
@@ -2417,7 +2764,7 @@ fleischige Sehnen, reiße, schäle und
 staune nicht schlecht, als sich da was
 bewegt, etwas schleimfeuchtes,
 haariges, fellartiges, riesenkükiges,
-sich auf die Beine stellendes 🐫 Kamel-
+sich auf die Beine stellendes ? Kamel-
 Baby. Ich merke nichts, aber mir ist so
 anders, als ich versuche es heraus
 zuheben und aufzustellen. Es kann
@@ -2425,13 +2772,13 @@ nicht stehen bleiben. Das glitschige nasse
 Fellbündel, ich hebe es halbhoch in meine
 Arme, es ist ganz schön schwer, und ich
 schleppe mich echt ab, bis ich schaffe das
-Baby in die 🚿Dusche zu buksieren. Es friert,
+Baby in die ?Dusche zu buksieren. Es friert,
 da es so naß ist. Ich brause und wasche
-dem Überraschungsei-Babykamel🐫 das
+dem Überraschungsei-Babykamel? das
 langhaarige Zottelfell sauber.,,Ich hab mir
-direkt gedacht.“,,Ja, 🐘Balu?“,, Daß, das ein
+direkt gedacht.“,,Ja, ?Balu?“,, Daß, das ein
 Camel-Fruchtbaum sein könnte, als ich ihn
-sah, hinten durch in dem 🌳🌲bewaldeten
+sah, hinten durch in dem ??bewaldeten
 Frachtraum.“„Und dann, dieser Traum?*
 Da warst du so schlau mir den zu
 pflücken.Oder nicht?“
@@ -2444,11 +2791,13 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 26
+
 Datum 21. März 2021, 23:43
+
 26. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-„Schön 🎶gesungen, Gummi, den Text hast
+„Schön ?gesungen, Gummi, den Text hast
 du von mir. Gedankenübertragung?“
 „Schlimmer, ich hab sie gelesen, deine
 Gedanken“…„Ja, stimmt…..kann man so
@@ -2463,7 +2812,7 @@ sprechen?“ „So lange?“„Wie alt“..„20“ Bist du
 eigentlich?“„Selber!“ Er hat es echt drauf,
 ich wollte ihn ‚Blödmann‘ nennen.„Sag mal
 Gummibärchen, vor c.a.5 Minuten, kurz
-bevor ich mich ans 🥁Schlag….?“„Nein ich war
+bevor ich mich ans ?Schlag….?“„Nein ich war
 nicht blau.“ ……zeug
 setzte warst du da blau? Du treibst
 mich in den Wahnsinn!“
@@ -2472,7 +2821,7 @@ und er auch ich.„Du hast n‘ Knall, du
 willst ich, mich, dich, selber gleichzeitig sein?“
 „Klar Jung! So isset, wir sind ‚Eins‘, der
 Gummi-Schorsch ist ein Schorsch-Gummi, ein
-Schrummi.“ 🐻.„Denkste?“„„ja,nee?““„„„Oder
+Schrummi.“ ?.„Denkste?“„„ja,nee?““„„„Oder
 was?“““„„„Ich merke nichts, aber warum ist
 mir ist so ANDERS…….?“““
 In der DUB-Pilotenkanzel wird heftig
@@ -2487,11 +2836,11 @@ elephantösen, riesig geschwollenem
 Schädel strahlen.„Alles klar, Alter?“„Was
 geht hier ab?“Leicht panisch
 werdend, schießt es mir durch meinen
-überhitzten 💀 pelzigen Schrummikopp:
+überhitzten ? pelzigen Schrummikopp:
 „Kai, du hast einen Kairüssel“ brummt’s mir
 raus, bevor ich das gesagt habe aus der
 Schorschnüssel.„Wir bringen dich wieder
-zurück in die Schweizer 🏔️Alpen, in
+zurück in die Schweizer ?️Alpen, in
 deine Höhle, dann kannste deinen
 Winterschlaf ❄️fortsetzen und dich
 ordentlich erholen, Meister Petz.“
@@ -2501,12 +2850,12 @@ ohne die Hände von den
 Schaltknäufen zu lassen,…na? Mit was?
 Mit seinem, hinter mir stehen Markus,
 Lorenz, Quwesiga mit Camel-Baby,
-Gummi, 🐻 der befreite, breite
+Gummi, ? der befreite, breite
 Chor, Christiane, Stephanie und
 Sonja mit Robert, und Lennert auf
 Balu sitzend, lautstark : „RÜSSEL !“
 „Hallo Schorschrummi, Leg dich in mich rein.“
-„Das 🛌Bett ruft mich, ich geh knacken
+„Das ?Bett ruft mich, ich geh knacken
 Leute.“ Ein dickes Fell braucht man
 hier beim Lesen? Oder nicht?
 
@@ -2516,42 +2865,44 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 27
+
 Datum 21. März 2021, 23:55
+
 27. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 „Ich mache ihnen ein Angebot, das sie
 nicht ablehnen können, meine teuren
-Freunde, meine 🦅 Damen und Herren von der
+Freunde, meine ? Damen und Herren von der
 Regierung, und meine Herren vom
-Militär, 🔫🙇aufgepasst,
+Militär, ??aufgepasst,
 kein Grau-Import, exclusiv nur heute! Für
 sie! Schlagen sie zu! Die Firma legt noch
 gratis 10 Kisten R.M.-15ener Munition
 oben drauf, naja.o.k.20! 20 Nigelneue
-’17 ier-Kampfpanzer, 🔫beides zusammen,
+’17 ier-Kampfpanzer, ?beides zusammen,
 das ganze Paket inklusive Shipping, 3
 Jahre Garantie, komplett für schlappe
-200 Millionen 💵$! So billig bekommen sie
-das nie mehr. Wir von der🔫 Waffenindustrie,
+200 Millionen ?$! So billig bekommen sie
+das nie mehr. Wir von der? Waffenindustrie,
 Sie meine Damen und Herren von der
 Bundesregierung und Sie meine Damen
-und Herren von der 💀🔫Bundeswehr,
+und Herren von der ??Bundeswehr,
 wir drei müssen doch zusammenhalten,
 verehrte Damen und Herren. Endpreis:
-195 💰Millionen! Letztes Angebot!“„Top!“
+195 ?Millionen! Letztes Angebot!“„Top!“
 „Na geht doch, war doch gar nicht so schwer.
 Jetzt sind wir alle zufrieden, oder?“
-„Sicherlich“„Kriegsgerät 🚁 von Reimetall ©
-begehrt und🛰️ beliebt im Einsatz📡 überall,
+„Sicherlich“„Kriegsgerät ? von Reimetall ©
+begehrt und?️ beliebt im Einsatz? überall,
 ha, ha, ha.“
 Kurz zuvor:
 Das DUB-Anlegemanöver geht, dank der
-Programmier 💻Künste Kaakai’s, er ist auch
+Programmier ?Künste Kaakai’s, er ist auch
 Pilot wie Igor, leichter als erwartet über
 die Bühne. Die Ankerketten fest
 angezogen, deren mehrere, ergeben
-eine stabile Lage im tiefen 🏞️
+eine stabile Lage im tiefen ?️
 Rheingrund bei Bonn, neben der
 Auftauchstelle wo wir unterirdisch aus
 dem kiesigen Erdreich unter dem Rhein
@@ -2560,27 +2911,27 @@ Bis auf ein kurzes, heftiges,aber nicht
 zu lautes Wasserrauschen, kommen
 wir unbemerkt um 8 Uhr morgens mit
 nassen Füßen durch einen
-Abwasserkanal-🔦Zugang in den
+Abwasserkanal-?Zugang in den
 Kanzler Bungalow die Kellertreppe
-hoch, ohne 🐶Wachpersonal🦉 vorzufinden,
+hoch, ohne ?Wachpersonal? vorzufinden,
 hinein. Allerdings sitzen oben hinter der
 Tür, ein auf zwei Stühlen postiertes und
-bewaffnetes 🔫Ordner Duo. Durch den
+bewaffnetes ?Ordner Duo. Durch den
 Türspalt bekommen wir zufällig
-jenen 🐄‚Kuhhandel‘ Wort für Wort gut
+jenen ?‚Kuhhandel‘ Wort für Wort gut
 verständlich mit, bezeugungsfähig
 verwertbar, original voll auf frischer
-Tat erwischt. 📸 Das wird uns trotzdem
+Tat erwischt. ? Das wird uns trotzdem
 keiner glauben. Das hätten wir
-filmen 🎥müssen. Wir haben ein
-Smartphone 📱dabei, haben alles
+filmen ?müssen. Wir haben ein
+Smartphone ?dabei, haben alles
 aufgenommen und finden unbehelligt
 zurück ins DUB. Jekaterinburg
 eingegeben, und Abfahrt. Der Jek hät
 Marienburg fälschlicherweise
 einjejeben beim Start im Victoriasee.
 ,,Das kommt davon wenn man zuviel
-✓✓✓+ 🍺 trinkt, oder nicht?
+✓✓✓+ ? trinkt, oder nicht?
 Uli? nein, Kaakai ?“ Uli:„Sicherlich.“ Kai:
 „Meinst du?“„Prost, Uli, Prost Kai, Prost Jua,
 Prost Reimetal, Prost BRD, Prost Bundeswehr!“
@@ -2592,7 +2943,9 @@ Made in Germany✓Cosmische Kalkurier ©✓
 
 Autor Schorsch Tantekel
 Kapitel 28
+
 Datum 22. März 2021, 00:11
+
 28. Teil, Schelmenroman von Georg Dickas,
 Jua, Der Steinzeit-Trip:
 
@@ -2683,7 +3036,7 @@ kann, wenn ich meine Hände hoch
 bekäme. Entsetzt sehe ich im Bett jetzt
 sitzend auf meine Finger, die immer länger
 werden. Dann versuche ich aufzuwachen,
-die Augen 👀 bekomme ich unter höchsten
+die Augen ? bekomme ich unter höchsten
 Anstrengungen auf, weil Geräusche
 helfen. Nicht sitzend sondern bleischwer
 flach liegend wache ich auf, als ich
@@ -2692,17 +3045,17 @@ Zimmerdecke ist blitzartig wieder oben, wie
 immer, Fenster o.k., schlagartig geht’s
 mir gut, nach einem befreienden
 Riesenpfurz. Der wirkstoffhaltige Kuchen
-lag mir schwer im 🍰Magen. Das war die
+lag mir schwer im ?Magen. Das war die
 Ursache. Nach dem ☕Kaffee greift die
-Verdauung ein zweites mal.💀
+Verdauung ein zweites mal.?
 Ich geh in die Stube, öffne die Türe, und
 befinde mich aber nicht in meiner Küche.
 Ich merke nichts, mir ist nur so anders. Da
 bin ich wieder in einem neuen Traum: Ich
 bin im Traum im DUB und ich höre Jua ☀️
-spielen: 🎶Alles verändert sich,
+spielen: ?Alles verändert sich,
 wenn du es veränderst, verändert sich
-alles‘. Kommandant🦅 Kaakai 🍺
+alles‘. Kommandant? Kaakai ?
 hat auf Auto-Pilot-Stellung umgeschaltet,
 kommt mit ‚Kippe un Fläch Bier‘ entspannt
 den DUB-Gang, hoch, Balu klirrasselt*
@@ -2722,7 +3075,7 @@ maximal versichert. Schmerzhaft ab dem 3.
 Tag, riet man dir an zur Massenbestattung
 anzutreten.“ Bin ich daheim bei meinen lieben
 Freunden auf Reise durch den Erdeplaneten,
-den wir mit dem 🛰️ DUB durchbohren?
+den wir mit dem ?️ DUB durchbohren?
 Oder nicht? Daheim? Oder nicht?„Bin ich tot?
 Bin Ich verstrahlt?“„Sie sind im Ensen Kloster,
 Herr Tantekel, ich bin ihr neuer Betreuer Uli,
@@ -2739,7 +3092,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 29
+
 Datum 22. März 2021, 00:24
+
 29.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -2774,7 +3129,7 @@ gewaschen, gebügelt braunen Reichs-Bahner-
 Uniformen, auch die der ☀️JUA-Mädels,
 strahlen stramme Präsenz aus.,,Boris
 verpasst uns allen einen Bazi Schick
-Kurz-Haar-Schnitt; gradaus der 💀Blick,
+Kurz-Haar-Schnitt; gradaus der ?Blick,
 Uniform ist schick, so der Nazi-Trick, sagt
 der Nik.„Zum Baikal, Sibirien geht der Trip.
 Ein neues Ziel zum Glück. Das DUB bricht
@@ -2783,8 +3138,8 @@ von unten durch in den Seegrund, taucht
 Eisdecke, die ist 2 Meter dick. Gummibär
 freut sich auf frische Luft, ein Kick! Endlich
 mal raus. Es ist eisig. Balu wird beladen; Er
-ist jetzt der 🦅Chef. Kai dreht’n Stick.
-Gummi 🐻 und Baby ‚Camel‚🐪 frieren nicht
+ist jetzt der ?Chef. Kai dreht’n Stick.
+Gummi ? und Baby ‚Camel‚? frieren nicht
 so schnell, haben ja ein Fell so dick. Wir
 haben unsere warmen Steinzeitfellklamotten
 übergezogen, nicht gerade schick, gleich
@@ -2792,11 +3147,11 @@ der Alpen-Überquerung zuletzt in Brigg, auf
 der Reise von Bonn über Basel nach Afrik‘
 Jua ☀️ist auf schnellsten Weg nach Irkutsk.
 Der Breit-Chor bleibt zurück, Wodka bewirkt’s,
-vor Ort zum🎏 Fischen. Balu’s Haare sind
+vor Ort zum? Fischen. Balu’s Haare sind
 vor kurzem sehr schnell gewachsen. Er hat
 inzwischen, so wie die Sachsen, ein Natty Fatty
 Dreadlocks Zottelfell.„lch bin en‘ Natty Dread
-Mammutta 🐘 Hör opp mit ding Verzell.“Sagt
+Mammutta ? Hör opp mit ding Verzell.“Sagt
 Balu. Ich schlaf oben im Kahn auf Balu im Fell.
 „Habe ich einen im Kahn? Das geht ja schnell.“
 „Dat jeht im Nu, da bist’e zu“®
@@ -2807,24 +3162,26 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 30
+
 Datum 22. März 2021, 01:21
+
 30. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Balu alias Mammuta erregt kein Aufsehen.
 Merkwürdiger Weise gibt es hier keine
-Autos. Dafür reiten 🐴die Leute wie
+Autos. Dafür reiten ?die Leute wie
 in früheren Zeiten. Auch sehen wir kaum
 Häuser, alles sehr farblos und trist wie in
 uralten Zeiten. Ich merke nichts, aber mir
 ist so anders. Hier an einem Hauptplatz
-lässt mich 🐘 Mammuta runter. Die wenigen
+lässt mich ? Mammuta runter. Die wenigen
 Einheimischen verschwinden. Was ist
 hier los? Die Hütten sind sehr primitiv. Sie
 haben keine Fenster. Da kommen endlich
 zwei Gestalten. Sie sehen aus wie
 Urzeittypen, wie Neandertaler mit ihren
-schrägen, kantigen🗿 Gesichtern. Die
+schrägen, kantigen? Gesichtern. Die
 bleichen Gestalten wirken zugedröhnt.
 Sie haben eine kurze aber kräftige,
 massive, knochige, Statur. Sie sind
@@ -2834,18 +3191,18 @@ wolke ausstoßend, roter Libby✓ in der Pief,
 biete ich diese den beiden an. Das Eis ist
 gebrochen, ihr Russisch-Dialekt klingt
 rätselhaft ‚uurich‘ , macht aber nichts, als
-international-DSG-ler 🚃komme ich klar. Geld
+international-DSG-ler ?komme ich klar. Geld
 kennen, oder wollen sie keines, einzig
 den Libby akzeptieren sie als Tauschmittel.
 Egal, es ist ja genug da, hab immer ein✓
-halbes Pfund 🍫in der Täsch. Das kommt uns
+halbes Pfund ?in der Täsch. Das kommt uns
 sogar gelegen, denn Geld habe ich kaum.
-Sonja wird sich freuen, es gibt 🥕Gemüse,
+Sonja wird sich freuen, es gibt ?Gemüse,
 Nüsse, Salz, Trockenfrüchte und Körner.
 Weder Schnapps noch Tabake, das wird
 hart! Ich rüpel die Bleichen aus Ärger
 darüber etwas an,
-die klatschen mir eine 👋Watsche um die
+die klatschen mir eine ?Watsche um die
 Ohren, diese undankbaren Rastas, ganz
 schön agro und flink diese Kreaturen. Ich
 bin bedient, Mammuta hilft beim Beladen.
@@ -2858,18 +3215,20 @@ Made in Germany, Cosmische Kalkurier©✓
 
 Autor Schorsch Tantekel
 Kapitel 31
+
 Datum 22. März 2021, 01:33
+
 31. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-„Ich 🐴Esel.“Diese Watsche 👋hab ich leider
+„Ich ?Esel.“Diese Watsche ?hab ich leider
 echt verdient.„Tja“
 Mit gespitzten Stöcken kommt eine
 unfreundliche Menschen-Gruppe, die uns
 einkreisen will. „Die sind hinter dem
 Wirkstoffkraut her, weg hier!“ Vermute ich.
 Mammuta:„Selber Schuld!“„Seht euch das
-an, es kommen immer mehr.“🐘 Mammuta:
+an, es kommen immer mehr.“? Mammuta:
 „Hier war ich schon mal, die kenn ich aus
 meiner Kindheit.“„Vor fast 10 000 Jahren,
 oder was?“„Richtig, Schorsch, falls du das
@@ -2879,12 +3238,12 @@ Agros sind keine Rastas, es sind
 einheimische Steinzeit Menschen,
 Neandertaler.“So Kai. Ich:„Mammuta, gib
 Gummi, Abmarsch! Los jon!“
-Der Schatten Chef, persönlich,🦅John, ‚El, USA+W-Presidento-inkognito‘, Lennon
+Der Schatten Chef, persönlich,?John, ‚El, USA+W-Presidento-inkognito‘, Lennon
 hat uns wiedermal heimlich mittels seiner Zeitreisenzuweisungsinstanz verschickt.
 Der darf das natürlich. Na logisch, oder
 nicht? Kai:„Sicherlich.“„Hoffentlich ist das
 DUB noch da.“„Na klar Schorsch.“„Meint
-Mammuta alias Balu 🐘.Balu trabt los.„Da!
+Mammuta alias Balu ?.Balu trabt los.„Da!
 Vorsicht, Falle!“ Ich werde langsam nervös,
 leider bin ich jetzt paranoid:
 „Das ist ein eine Fallgrube!“Schreie ich.
@@ -2931,7 +3290,9 @@ Made in Germany✓Cosmische Kalkurier©✓
 
 Autor Schorsch Tantekel
 Kapitel 32
+
 Datum 22. März 2021, 02:01
+
 32.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -2939,7 +3300,7 @@ Das DUB entpuppt sich als funktionsfähig.
 Die Nazis hatten eine hölzerne Tarnung
 an Bord gebunkert, was ja Sinn macht beim
 heimtückischen ☠️Vernichtungskriegsfeldzug
-mit Überfällen gegen die von ihnen zu🔞
+mit Überfällen gegen die von ihnen zu?
 vernichtenden Völker. Deutsche Gründlichkeit
 über alles. Entsetzlich! So wird durch diese
 unglaubliche Zeitreisenzuweisungsinstanz
@@ -2947,32 +3308,32 @@ in die Weltgeschichte nachhaltig einge-
 griffen. Zum Glück? Tja‘, zu überprüfen ob
 die Nazis die Weltherrschaft übernommen
 hätten, wenn Jua☀️ am Victoriasee diese
-vorherige🔞 Besatzung des 🛰️DUB’s nicht an
+vorherige? Besatzung des ?️DUB’s nicht an
 unsere befreundeten Nilkrokodil Eskorte
-🐊 hätten verfüttern lassen, ist nicht
+? hätten verfüttern lassen, ist nicht
 so leicht zu beweisen. Schon möglich. Mit
 unserer Übernahme des DUB allein, wohl
 eher kaum. Daraus folgt, daß wir unser
 Eingreifen, bzw Verfüttern von diesen
-🔞 Nazis erheblich steigern sollten,
-falls John-U.S-Schatten🦅-Präsident-
+? Nazis erheblich steigern sollten,
+falls John-U.S-Schatten?-Präsident-
 inkognito-Lennon in Kooperation mit
-J.F.K 🗽und Julius 🗿Cäsar, ebenfalls beide
+J.F.K ?und Julius ?Cäsar, ebenfalls beide
 inkognito, uns machen liessen, was wir
 sofort voll durch zögen.,,Alle an Bord“!,
 Kai gibt das richtige Signal, aber auch
 ☀️ Jua, eigentlich überzeugte Pazifisten,
 verstehen was bald Sache sein wird.
-Andererseits kann er 🦅sich, uns hier in der
-Steinzeit auf’s Abstellgleis🛤️ gestellt, dessen
+Andererseits kann er ?sich, uns hier in der
+Steinzeit auf’s Abstellgleis?️ gestellt, dessen
 sicher sein, daß wir die Zukunft nicht
 unheilvoll, oder versehentlich mit fatalen
-schlimmsten ☣️Folgen🌪️ für alle kommenden
+schlimmsten ☣️Folgen?️ für alle kommenden
 Zeiten, ☢️vielleicht unwiederbringlich verändern
 könnten. Eine leider sich multiplizierende
 Kettenreaktion von verheerender zerstörender
 Wucht, eine alles Leben beendenden letzten
-Super-Explosion…💣..Bumm !
+Super-Explosion…?..Bumm !
 
 2021©®Georg Dickas✓Schorsch Tantekel©
 Blunot®Rec.BR4711CD.LP.CC.IMEI:EU.J.USA.
@@ -2980,12 +3341,14 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 33
+
 Datum 22. März 2021, 16:42
+
 33.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Auch alle anderen verstehen das: Nazis
-bekämpfen, 🔞 um das Schlimmste zu
+bekämpfen, ? um das Schlimmste zu
 verhindern, deren Weltherrschaft ist ja
 vorerst bekanntlich durch die Rote Armee
 und die Alliierten damals verhindert
@@ -3016,7 +3379,7 @@ seine gespitzten Lippen, raus in die eisige
 Baikal-Kälte und verschwindet spurlos.
 Sekunden später gehen wir raus, sehen
 nach. Niemand da. Was geht hier ab?
-John🦅 hat seinen Kollegen Julius 🗿
+John? hat seinen Kollegen Julius ?
 geschickt, der will uns beruhigen, daß
 alles einen Plan hat, eine psst,..
 Geheimplan-Erklärung kommt selbständig,
@@ -3025,7 +3388,7 @@ erledigt die Anti Nazi und Anti lS Force der
 Zukunftsbereinigungsangelegenheitsstelle,
 „Hier ist die Zeitreisenzuweisungsinstanz
 Ceres, ’2242. Jimmy Hendrix wünscht gutes
-Gelingen; gebt den irren Terror💣Wixern
+Gelingen; gebt den irren Terror?Wixern
 vom selbsternannten ‚Islamischen Staat‘,
 ‚IS‘, definitiv ein Frevel sich so zu nennen,
 diesem unheilvollem hard core teuflisch
@@ -3042,7 +3405,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 34
+
 Datum 22. März 2021, 17:09
+
 34. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -3052,7 +3417,7 @@ die Erde und geraten in ein Erdbeben.
 Gerade als wir durch den Indischen Ozean-
 Grund in diesen hinein brechen. Der
 losbrechende Tsunami reißt das DUB,
-auf einer 30 Meter hohen🌊Welle mit. 30
+auf einer 30 Meter hohen?Welle mit. 30
 Minuten lang rast es oben auf dem
 Wellenkamm mit. Der Tsunami donnert
 sich auf 80 Meter hoch, bevor er das DUB
@@ -3061,18 +3426,18 @@ Das Wasser zieht sich zurück, das DUB
 rummst auf, wir steigen aus und haben
 keine Ahnung wo wir sind. Hier kommen
 wir nicht mehr so schnell weg.
-Rund um uns her sehen wir nur🌪️ verwüsteten
-Palmenwald. 🌴Mittendrin liegt das 🚀DUB. Es
+Rund um uns her sehen wir nur?️ verwüsteten
+Palmenwald. ?Mittendrin liegt das ?DUB. Es
 ist zum Glück unbeschädigt geblieben.
-Ohne Balu 🐘 wären wir jetzt erledigt.
+Ohne Balu ? wären wir jetzt erledigt.
 Oder nicht?
-
 Kapitel 35
+
 35. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Wir müssen uns einen Plan überlegen, wie
-wir das Monster Hai 🦈U- Boot, so sieht
+wir das Monster Hai ?U- Boot, so sieht
 es mit dem aufgerissenen Fräsen-Maul-
 Bohr-Vorsatz aus, mit dem Schwanz nach
 oben aufrichten können, um uns zurück
@@ -3100,37 +3465,37 @@ Schmier behaftete Stinkpilze aus. Gummi
 läuft einen umgestürzten sehr breiten,
 Riesenbaumstamm empor. Was ist hier los?
 Balu stehen seine drei Haare zu Berge, fleht
-uns an, ihm zu folgen.,,Dicker 🐘 bleib mal .“
+uns an, ihm zu folgen.,,Dicker ? bleib mal .“
 In c.a.40 meter Höhe können wir direkt in die
-Augen👁️ einer 👁️ein Meter im Durchmesser
+Augen?️ einer ?️ein Meter im Durchmesser
 großen Fresse eines gewaltig großen
-Sauriers🦕 starren. Bloß nicht bewegen!
-Sonja wirft ihm versehentlich👁️ einen Blick
+Sauriers? starren. Bloß nicht bewegen!
+Sonja wirft ihm versehentlich?️ einen Blick
 zu, augenblicklich verliebt er sich und
-versuchtdas arme Mädchen zu 💋
+versuchtdas arme Mädchen zu ?
 küssen. Dabei wird es turbulent.
 Sauriers Zunge verfängt sich im
-Baumast👅Gestrüpp. Der Ärmste
+Baumast?Gestrüpp. Der Ärmste
 merkt nicht daß Sonja’s Anmache ein
 Ablenkungs-Manöver sein könnte. Gummi
-🐻 Bär läuft über Sauriers 👅Zunge in dessen
+? Bär läuft über Sauriers ?Zunge in dessen
 Rachen, Hals, Magen, Gedärm und hinten
-wieder heraus kommend beißt 🐻
+wieder heraus kommend beißt ?
 Gummi-Bär ihm auch noch in den großen
-Onkel. Aber nur ganz zart. Der 🦕Saurier hat
+Onkel. Aber nur ganz zart. Der ?Saurier hat
 verstanden, verspricht er uns doch mit uns
 zukommen, um das DUB auf die Fräse zu
 stellen. Allein, so sagt er, schaffe er’s wohl
 nicht.,, Aber wozu hat man denn Freunde.“
-Holt sein Saurophon 📢aus seiner
+Holt sein Saurophon ?aus seiner
 Nackenfalte und trommelt seine Gang
 zusammen. ‚Sala und die Fisten‘, sau gute
 Räpper vor dem Herrn‚ ‚The Four Fresh Men‘
 der Saurier. Die ‚Salas‘ sind Vorbilder der ’4 F’s‘
-Durch🦕-trainierte, nicht nur Vocal Artisten,
+Durch?-trainierte, nicht nur Vocal Artisten,
 türmen sich zu einer Körper-Pyramide auf,
 und halten das DUB in senkrechter Stellung
-stabil fest. Kai 🦅startet den Motor, lässt
+stabil fest. Kai ?startet den Motor, lässt
 mit Absicht die Kupplung etwas flitschen,
 wrumfffschub, 142 Meter DUB stecken im
 Boden. Alle drin, Klappe zu alle dicht und ab
@@ -3138,10 +3503,10 @@ mit Turbo-Drill-Vollgas durch die Mitte,
 Richtung Deutz, oder nicht? Christiane wär
 gerne was länger geblieben, fing an mit
 dem Bass-Sänger der ‚Sala’s von den Fisten‘,
-mit dem🦕 Saurier Lala, der sich vergeblich
+mit dem? Saurier Lala, der sich vergeblich
 in Sonja verliebte, und diese Liebe schon
 überwunden hatte, zu greifen, um ihn dann
-zu 🦕bewegen, sich in sie zu verlieben…
+zu ?bewegen, sich in sie zu verlieben…
 Ne‘ Nummer zu groß, ihn rein zu schieben
 ins Boot, ins DUB, und ihn mitzunehmen.
 Schade, die 4 Salas hätten das musikalisch
@@ -3154,19 +3519,21 @@ Made in Germany✓Cosmische Kalkurier ©✓
 
 Autor Schorsch Tantekel
 Kapitel 36
+
 Datum 22. März 2021, 17:52
+
 36. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Auf geht’s, ich meine, abwärts geht’s, ohne
-die sympathischen 4 🦕Saurier, die sind zu
+die sympathischen 4 ?Saurier, die sind zu
 groß. Das Drill-U-Boot bohrt sich in den
 Palmwaldboden tiefer und tiefer durch den
 Erdmantel, durch die Erdkruste und immer
 tiefer. Was für ein Glück wir hatten, daß die
 Saurier so freundlich und hilfsbereit waren,
 ihr Image wurde wahrscheinlich durch den T.
-Rex 🦖versaut. JuressikparkFortsetzungen
+Rex ?versaut. JuressikparkFortsetzungen
 sollten von JUA☀️ beraten werden, Saurier
 waren total liebe Tiere. Schade, daß sie
 damals weggeknallt wurden und
@@ -3201,7 +3568,7 @@ Churchill und D-day sei Dank, und mit
 Gottes Hilfe, sag ich mal so, ist es nicht
 dazu gekommen, und das Scheiß-Nazi-
 Reich ging bekanntlich unter, kurz bevor
-die Scheiß-Nazis die Atombombe 💣☢️
+die Scheiß-Nazis die Atombombe ?☢️
 hätten fallen lassen können.
 
 2021®©Georg Dickas✓Schorsch Tantekel©
@@ -3210,7 +3577,9 @@ Made in Germany✓Cosmische Kalkurier ©✓
 
 Autor Schorsch Tantekel
 Kapitel 37
+
 Datum 22. März 2021, 20:07
+
 37.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -3226,7 +3595,7 @@ abdrehen können, Das DUB bohrt sich
 unter NYC in Richtung
 Chicago durch, bis zum Michigan-See. In
 Chicago spielen wir als Vorgruppe der
-Count 🎹 Basie Band, kacken aber total ab,
+Count ? Basie Band, kacken aber total ab,
 machen ein wenig Klamauk, sehen ein,
 daß wir viel üben müßten und trotzdem
 unterste Liga wären, im Vergleich mit der
@@ -3236,8 +3605,8 @@ hat die Jazz-Kultur ein sehr hohes Niveau,
 daß wir nur staunen und genießen können.
 Auftritte sparen wir uns, keine Chance
 auf die Bühne, oder zu Kohle zu kommen.
-Jedenfalls nicht mit Jua☀️. Camel🐪-Baby
-Gummi 🐻 Bär und 🐘 Balu retten uns aus
+Jedenfalls nicht mit Jua☀️. Camel?-Baby
+Gummi ? Bär und ? Balu retten uns aus
 der Finanzkrise. Wir tanken 24 Tonnen Diesel
 mit den Zirkus-Auftrittsgeldern, die dabei
 nötige Zirkusmucke haben wir uns in
@@ -3271,40 +3640,42 @@ Made in Germany✓Cosmische Kalkurier ©✓
 
 Autor Schorsch Tantekel
 Kapitel 38
+
 Datum 22. März 2021, 20:19
+
 38.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Steinzeit-Tripp:
 
-Abtauchen🏊, und senkrecht👇 in den
-Michigan-Seegrund-Boden🌀 hindurch
-bohrend ins Erde🌎innere hinein, fahren wir
-mit dem 🚀DUB quer durch die 🥮Erdkruste.
-Christiane,🧗 Geographin, 🧹 Fachwissen in
-🌋Geologie, und ☀️Jua’s, 🎺Flügelhornistin,
-eine☂️ Unikum,🎤 Sängerin, 📯Trompetistin,
-Gitarristin🎸, Liedermacherin 📢 und Teilzeit-
-Turnlehrerin 🤸natürlich begeistert 💡von der
-Möglichkeit dabei 🧷zu sein, und sie führt
+Abtauchen?, und senkrecht? in den
+Michigan-Seegrund-Boden? hindurch
+bohrend ins Erde?innere hinein, fahren wir
+mit dem ?DUB quer durch die ?Erdkruste.
+Christiane,? Geographin, ? Fachwissen in
+?Geologie, und ☀️Jua’s, ?Flügelhornistin,
+eine☂️ Unikum,? Sängerin, ?Trompetistin,
+Gitarristin?, Liedermacherin ? und Teilzeit-
+Turnlehrerin ?natürlich begeistert ?von der
+Möglichkeit dabei ?zu sein, und sie führt
 uns in ein von☔ ihr hier vermuteten ⬇️
-unterirdischen 🌊 Ozean, der in einer
-gigantischen 2000 km 🙊Durchmesser
-abgeflachten 🏎️ TVerhärteten🛸 Blase sich
+unterirdischen ? Ozean, der in einer
+gigantischen 2000 km ?Durchmesser
+abgeflachten ?️ TVerhärteten? Blase sich
 befinden kann, was aber von der auf
-Fakten🍄 basierten🍾👀 offiziellen
+Fakten? basierten?? offiziellen
 Wissenschaft bis heute völlig abgelehnt
-wird. Diese 🧿 ozeanische Unterwelt 🔱
-soll es ihrer Meinung 🌶️ nach, die 🐁Arme
-ist, glaube💀 ich, leider zum🍄 Glück fast noch
-🔔 viel 👀schlimm, 🛎️schlimm🚬 gut 🍭
-wahnsinniger🚧 als 👅 ich, 👾tatsächlich 🍵 geben. 💤Jetzt kommt’s: 📯
+wird. Diese ? ozeanische Unterwelt ?
+soll es ihrer Meinung ?️ nach, die ?Arme
+ist, glaube? ich, leider zum? Glück fast noch
+? viel ?schlimm, ?️schlimm? gut ?
+wahnsinniger? als ? ich, ?tatsächlich ? geben. ?Jetzt kommt’s: ?
 
 Dort befindet sich das versunkene Atlantis!
 
 Zwischen Erdkruste und hartem Erdkern in
-1600 km Tiefe, also im👝 flüssigen Lava
+1600 km Tiefe, also im? flüssigen Lava
 Schicht-Bereich, gelegen, schwimmend,
 sich darin treibende abgeflachte
-Unter-Welt-Kugel,🛸 in der Welt-🌏Kugel.
+Unter-Welt-Kugel,? in der Welt-?Kugel.
 
 Atlantis, wir kommen!
 
@@ -3344,11 +3715,13 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 39
+
 Datum 22. März 2021, 20:33
+
 39. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Igor, Boris und Nik fackeln 🔥nicht lange,
+Igor, Boris und Nik fackeln ?nicht lange,
 Minuten vor ⌛dem harten Wassern fluten
 sie die DUB-Heliumtanks in die Inner-DUB-
 Röhre, dem Hohlraum-Gesteinsmassen-
@@ -3357,7 +3730,7 @@ Rettungsplattformen zum Aufpumpen in
 Stellung an einer seitlichen elektro-
 mechanischen Innen-Kanal-Not-Ausstiegs-
 Pforte gebracht, nachdem die Rettungs-
-boote von Balu und Gummi 🐻 mit Bären-
+boote von Balu und Gummi ? mit Bären-
 Kräften in den jetzt freien Rohrartigen
 Innen Hohlraum gedrückt haben.
 Dadurch verstopfen diese ruckartig, da
@@ -3371,9 +3744,9 @@ eines dickwandigen Rohres, in dessen
 hohlen Wänden wir uns befinden. Die im
 Jahr’42 befreite, Ex-Deuzer-U-Boot-Hafen-
 Nazi-Zwangsarbeiter-Kolonne, jetzt
-extrabreiter russischer 20-Mann Chor, 🐫
-Camel-Baby, Gummi 🐻, Mammuta
-alias 🐘 Balu, Kaakai alias Kai,
+extrabreiter russischer 20-Mann Chor, ?
+Camel-Baby, Gummi ?, Mammuta
+alias ? Balu, Kaakai alias Kai,
 Die JUA JUA AFRI JUA-Band, der
 Bord-Wald, Igor, der Heuschober, der
 Dieselbunker, die Vorrats-Bunker, usw,
@@ -3404,7 +3777,7 @@ später auf der Seite, das Helium kann
 entweichen. Et is nochens jot jejange.
 Wir sind gerettet, Halleluja Jua!,☀️
 Ich kann mich, festgeklammert an einem
-🌲 Baumast, alles steht Kopf, biegt sich
+? Baumast, alles steht Kopf, biegt sich
 wie im Sturm, relativ unverletzt
 aus dem verwüsteten Bord-Wald retten.
 Ich krabbel und kletter weiter bis zur
@@ -3422,7 +3795,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 40
+
 Datum 22. März 2021, 20:50
+
 40. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -3435,11 +3810,11 @@ Fläche, die jetzt der richtige Boden ist.
 Vorher war die Wand der Boden. Bisher
 kein Wassereinbruch. Halb-dunkel ist es
 im langen schmalen Gang, es riecht nach..
-. 🍺 Bier.
+. ? Bier.
 Kaum Fremdgeräuche…., dann Stöhnen
 und Ahh’s und OOjeeh’s und Gejammer,
-Greinen und Wimmern . 🍊 Rot bis
-orangenes Licht wechselt sich mit 🍋 hell-
+Greinen und Wimmern . ? Rot bis
+orangenes Licht wechselt sich mit ? hell-
 grell-, gelben,- Licht ab, das in die wenigen
 Bullaugen in das unbeleuchtete DUB
 hineinstrahlt. Gemurmel, aufgeregtes
@@ -3452,7 +3827,7 @@ natürlich, die Kiste Schnapps hat’s nicht
 erwischt, alle glücklich vereint auf einem
 fremden Meer. Er dreht den
 Zündschlüssel, das elektrische Licht
-flackert 💡 auf, es bleibt an, der
+flackert ? auf, es bleibt an, der
 Motor springt an, Kai taucht ab,
 vorsichtshalber zieht er es vor, hier zu
 verschwinden, er wittert Gefahr genau so
@@ -3467,7 +3842,7 @@ das DUB, Teile aus dem Atlantis-
 Himmelsdecken-Loch erschlagen uns,
 wenn wir nicht Vollgas geben . Kai’s
 Rettungsaktion belohnen wir: Das
-restliche Bier in den zerschlagenen 🍺
+restliche Bier in den zerschlagenen ?
 Bier-Fässern bekommt er allein. Endlich
 können wir in Ruhe mit Kaakai, der die
 Ausstiegsluke öffnet raus auf’s DUB
@@ -3487,7 +3862,7 @@ Es schüttet gleissende Farbbäche bis
 scheinbar auf unsere Gesichter. Der Wind,
 von unterschiedlichen Temperaturanteilen
 durchmischt, verstärkt den
-berauschenden Augenschmaus.👀 ®
+berauschenden Augenschmaus.? ®
 
 2021®©Georg Dickas✓Schorsch Tantekel®
 Blunot® Rec.BR4711CD.LP.CC.IMEI:EU.J.USA
@@ -3495,7 +3870,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 41
+
 Datum 22. März 2021, 21:27
+
 41. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Band, Der Steinzeit-Trip:
 
@@ -3522,7 +3899,7 @@ ins, Zack, Kaakai hat zugeschnappt. Den
 Fisch zwischen seinen Kiefern genießt er
 unseren Ablaus, fällt hin, verschluckt sich,
 der Fisch ist weg. Wo ist der Fisch?
-Kaakai spricht, begleitet von seltamen 👂
+Kaakai spricht, begleitet von seltamen ?
 Ohrenwackeln, ein Kauderwelsch mit
 unerhörten Sing-Sang-Klang-Arabesken
 eine Klick-Laut-Sprache mit rollenden
@@ -3593,7 +3970,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 42
+
 Datum 22. März 2021, 21:41
+
 42. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -3660,9 +4039,9 @@ sind die Gärtner dieser riesigen, bewässerten
 Plantagen-Pyramide? Wir essen von den
 Früchten, es gibt eine unglaubliche Auswahl.
 Ob wir im Paradies angekommen sind? Ein
-kleiner 🐒 springt mir auf den Kopf und eine
+kleiner ? springt mir auf den Kopf und eine
 vergnügte Schar überfällt uns regelrecht. Er
-flüstert mir direkt ins 👂 Ohr:„Schorsch, du
+flüstert mir direkt ins ? Ohr:„Schorsch, du
 musst jetzt endlich schlafen gehen!“ Ich
 merke nichts, aber mir ist irgendwie anders.
 Ich frage mich, träume ich schon, oder bin ich
@@ -3674,11 +4053,13 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 43
+
 Datum 22. März 2021, 22:08
+
 43.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-„Was hat dir Fips, der kleine 🐒 Affe
+„Was hat dir Fips, der kleine ? Affe
 geflüstert?“„Fips, komm mal her Kleiner!
 Wo sind die Gärtner?“ ☀️Sonja :„Der kann
 doch nicht sprechen.“„Kann ich.“Kiekst der:
@@ -3690,7 +4071,7 @@ dreitausend mal sieben an Jahr, meine
 schöne, schmal Blondhaar.“„Der hat die
 Pyramid‘ gebaut? Na klar, Zeit genug hatte er
 ja‘, oder nicht?“ Meint Sonja zu dem
-reimenden Äffchen. 🐒Fips:„Der konnte die
+reimenden Äffchen. ?Fips:„Der konnte die
 Schwerkraft befehlen, ließ Steinquader
 schweben, Millionen an Zahl, ließ sie türmen
 zu gigantisch großen Pyramiden, wenn er
@@ -3711,8 +4092,8 @@ mit reiner Gedankenkraft; hervorbringen lassen
 kann es nur die Göttlichkeit, sie bewirkt, hilft,
 erschafft, materialisiert es dem Solar sogar.
 Deswegen haßt dieser Neidhammel, alles gar
-Er hatte alles, beste Nahrung; Früchte 🍇von
-holzstieligen 🍒Pflanzen, und Bäumen, 🌳
+Er hatte alles, beste Nahrung; Früchte ?von
+holzstieligen ?Pflanzen, und Bäumen, ?
 Das schmeckt, lecker und fein, doch er freckt,
 will hier weg, würd sonst was versäumen. Als
 Nazis mit Hetze ihn um den Verstand brachten
@@ -3720,12 +4101,12 @@ ihn so zu Solars Gegenspieler also machten,
 ihn zu sich einluden, sein Hirn wuschen, ihnen
 zu helfen, mit dem DUB zu morden ✡️Juden.“
 „Den kannst’e vergessen; den haben im Victoria-
-see die 🐊Krokodile gefressen. Von dem haben
+see die ?Krokodile gefressen. Von dem haben
 wir das DUB, so haben wir das gemacht. Kai hat
 uns hierher gebracht.“„Das DUB hat keinen
 Rückwärtsgang, der fehlt.“„Zum Glück, denn
 das war’s, was uns hierher zwang, das hast
-du gut gemacht Kai, das zählt!“🛎️
+du gut gemacht Kai, das zählt!“?️
 Sät dat☔ Christian. ®
 
 2021®©Georg Dickas✓Schorsch Tantekel®
@@ -3734,7 +4115,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 44
+
 Datum 22. März 2021, 22:16
+
 44.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -3777,7 +4160,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 45
+
 Datum 22. März 2021, 22:38
+
 45. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -3787,7 +4172,7 @@ Das Dorf ist ein gut restauriertes
 Museumsdorf aus der Zeit vor dem
 Untergang der sagenumwobenen Insel
 namens Atlantis. Ungefähr so groß wie
-Sizilien rauschte sie hinab samt 🌋
+Sizilien rauschte sie hinab samt ?
 Riesenvulkan, zog gigantisch Mengen
 Wasser, fast die Hälfte des damaligen
 Mittelmeeres, hinter sich mit in die
@@ -3826,7 +4211,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 46
+
 Datum 22. März 2021, 22:55
+
 46. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Steinzeit-Trip:
 
@@ -3847,7 +4234,7 @@ Schöpfer geliehene Gabe, und sind die
 Gärtner im Atlantis-Garten, bis auf
 weiteres, bis oben alles irgendwann soweit
 ist, das alles zusammen kommt, soviel ich
-weiß. „Wir Affen 🐒sind Gärtner, weil wir
+weiß. „Wir Affen ?sind Gärtner, weil wir
 prädestiniert sind, körperlich
 und vom Wesen her sowieso und
 hier in Atlantis haben wir mit den
@@ -3855,7 +4242,7 @@ geschenkten geistigen Verstandeskräften,
 wir sind quasi echte Menschen-Affen,
 Affen-Menschen eben.“„Aber ich frage
 euch warum ihr so alt werden könnt. wie
-geht das?“„Ja, das leckere Obst 🍒macht
+geht das?“„Ja, das leckere Obst ?macht
 das. Fips, weißt du das?“„Frag Jakob.„Wir
 können uns ja nicht vermehren, wir
 sind alle von Anfang an hier gewesen,
@@ -3863,8 +4250,8 @@ oder nicht? Der Vorteil ist ; wir lernen und
 wissen, und werden immer besser in
 dem was wir machen.“„Ihr altert also
 nicht?“„Seit wir hier sind, kaum“„Altern
-die Pflanzen?“„Auch die Pflanzen 🌳
-wachsen kaum.„Aber sie produzieren 🍇
+die Pflanzen?“„Auch die Pflanzen ?
+wachsen kaum.„Aber sie produzieren ?
 Früchte und Sauerstoff.“„Meinst du?“Kai
 folgert:„Das Obst reift vielleicht 1000mal
 langsamer, also altert ihr 1000fach
@@ -3876,7 +4263,7 @@ dunkel?“„Dunkel, was ist das?“„Es gibt
 keine Nächte, hier ist der letzte Tag aller
 Tage, noch Fragen?“„Laß dir Zeit
 Schorsch.“ Ich merke nichts, aber mir ist
-so anders..🍊Das köstliche Obst schmeckt
+so anders..?Das köstliche Obst schmeckt
 herrlich, die Aussicht ist prächtig, das
 Obst wirkt,der phantastische Himmel
 berauscht mit extrem plastischen
@@ -3914,26 +4301,28 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 47
+
 Datum 22. März 2021, 23:04
+
 47. Teil, Schelmenroman Georg Dickas,
 Jua-Band-Bio, Steinzeit-Trip:
 
-Iron Butterfly’s 🦋Super All-Time-Hit:
+Iron Butterfly’s ?Super All-Time-Hit:
 In a gada davida:,,Da da dadadada da da da
 dadada da da da da da a a a nta, ist ein
 ‚Groove-Wunder‘. Kam der Song früher raus,
-als Voodoo Chile, von Hendrix? 🎸Wer hat’s
+als Voodoo Chile, von Hendrix? ?Wer hat’s
 erfunden? Den Groove, auf dem ich mein
 Leben lang hängen geblieben bin, wie viele
 andere, die wie ich, von diesem Groove
 geprägt wurden. Da fällt mir promt ‚Can‘ ein.
-Deren futuristische 🥁treibende intuitiv-
+Deren futuristische ?treibende intuitiv-
 improvisierte freie Kompositionen sich
 ständig um diesen Groove drehen. Der lange,
 langsame sich endlich peitschenschlagartig;
 nta , beschleunigende Wahnsinns Groove.
 „Der kommt aus der Steinzeit.“
-Mammuta, 🐘 alias Balu läßt keine
+Mammuta, ? alias Balu läßt keine
 Zweifel gelten, zu irgendwelchen territorialen
 Ursprünglichkeiten.„Klar…aus Afrika, woher
 sonst. Egal, es ist ein ‚Ur-Groove‘. Ein
@@ -3955,17 +4344,19 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 48
+
 Datum 22. März 2021, 23:14
+
 48. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Oma Uthan verabschiedet als die Älteste
-uns mit ihrem🦍 Segen. Der nicht endend
+uns mit ihrem? Segen. Der nicht endend
 wollende paradiesische Tag dauert für
 uns gefühlte zehne. Sie gibt uns wertvolle
 Tipps mit auf die Reise. Das nächste mal
 bohren wir uns, jetzt weise, von unten nach
-Atlantis rein. 🔞 1.Tipp: Nazischergen
+Atlantis rein. ? 1.Tipp: Nazischergen
 jagen, die im Tibet Zerstörungsformeln
 sich wollen erfragen. Verbergen was
 verborgen bleiben muß, das unbedingt
@@ -3973,41 +4364,41 @@ schnell erledigt werden muß, zum Schluß.
 Es tauchte auf das DUB wie man da sah
 im Bramaputra-Fluß, südlich von Lahsa,
 dahin geht’s nur zu Fuß. Mammuta und
-wir, wie gehabt im Kahn, im Korb auf 🐘
-Balu, Gummi🐻 Bär voran, und der als
+wir, wie gehabt im Kahn, im Korb auf ?
+Balu, Gummi? Bär voran, und der als
 Reichsbahner verkleidete Ex-Zwangs-
 arbeiter vom ⛴️Deutz-U-Boot-Hafen,
 der Zwangsarbeiter-Gefangenen-Chor,
 eintrafen, die Sangesfreunde Jualala☀️
-hintenan .Tibet-Expedition zum Himalaya. 🐫Baby Camel, alles klar, 🏔️
-ist kein Baby mehr, uns 🐪Dromedar.
+hintenan .Tibet-Expedition zum Himalaya. ?Baby Camel, alles klar, ?️
+ist kein Baby mehr, uns ?Dromedar.
 Karawane mit Schlitten daran, wunderbar.
-Hilft uns zu finden 🛷die geheime
+Hilft uns zu finden ?die geheime
 Strecke, Gott sei Dank. Da verborgen
-der Grahl, der Kelch 🏆mit Wundertrank.
-Mammuta 🐘 findet die Verstecke, macht
+der Grahl, der Kelch ?mit Wundertrank.
+Mammuta ? findet die Verstecke, macht
 frei den Eingang der geheimen Höhle,
-riecht Nazi 🔞Gestank, es schallt Bellen
-einer Nazi-Töle.🐶. Fips,🐒
+riecht Nazi ?Gestank, es schallt Bellen
+einer Nazi-Töle.?. Fips,?
 geht als einziger Atlantis-Gärtner mit
 uns auf Reise, klettert schneller als
 es Nazi Schergen bemerken, so leise.
-Fips greift sich den Ei-großen 🥎Stein
+Fips greift sich den Ei-großen ?Stein
 der gefrorene Trank aus dem Kelch
 mit dem Trank. Die Nazis schaffen es
-nicht 🐒 ihn zu töten, sie 🔫schießen
+nicht ? ihn zu töten, sie ?schießen
 daneben.Tobend ballern sie das Magazin
 ganz leer, Fips lockt sie in die Falle, sie
 stürzen in eine Spalte alle. Es gibt ihnen den
-Rest, der Gummi 🐻 Bär, beißt sich an dem
-Führer fest, 🐘Dann unser Sieg: Mam-
+Rest, der Gummi ? Bär, beißt sich an dem
+Führer fest, ?Dann unser Sieg: Mam-
 muta rockt die Nazis bei dem Abstieg,
-rollt Felsen auf💥 Nazi-Panzer fleißig,
+rollt Felsen auf? Nazi-Panzer fleißig,
 rollt den Jeep voll Nazis in die Schlucht.
 Kai beendet Nazis, so an die 30, noch
 deren Flucht:
 von oben mit Baseballschläger,
-auf Baby Camel 🐫, als Träger
+auf Baby Camel ?, als Träger
 erwischt sie alle, er traf. Weil Kai so
 sicher trifft, ja‘ selbst auch noch im Schlaf.®
 
@@ -4017,11 +4408,13 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 49
+
 Datum 22. März 2021, 23:20
+
 49. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Gummi 🐻 Bär:„Wo ist das Pergament, das
+Gummi ? Bär:„Wo ist das Pergament, das
 im Grahlskelchstiel steckte?“Der völlig
 verstörte Scheiß-Nazi-Führer blutet, stockt,
 und macht auf Heulsuse. Gummi schüttelt
@@ -4029,8 +4422,8 @@ ihn. Jetzt stellt dieser sich tot. Gummi
 beißt die Nazi-Stiefel auf.„Im Stiefelschaft
 hast du das Pergament versteckt, oder
 nicht?“„Ja, ja, nicht beißen, laß mich leben,
-bitte, hier, nimm es!“„Wo ist der 🏆Kelch?“
-„Der Affe 🐒 hat mich in die Hand
+bitte, hier, nimm es!“„Wo ist der ?Kelch?“
+„Der Affe ? hat mich in die Hand
 gebissen, frag den.“ Fips sitzt ihm auf der
 Brust und kiekst:„Der Kelch ist
 zusammen mit den Scheiß-Nazis in den
@@ -4059,14 +4452,16 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 50
+
 Datum 22. März 2021, 23:29
+
 50.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:©‚21
 
 Der’verfluchte‘ Rausch zeigt seine ✓✓✓✓
 unheilvolle Wirkung: Leider stellt uns ein
 zweiter Scheiß-Nazi-Trupp an die Wand.
-Das Erschießungs-Kommando läd durch: 🔥 Feuer! Wir sinken tot zusammen,
+Das Erschießungs-Kommando läd durch: ? Feuer! Wir sinken tot zusammen,
 gespürt haben wir nichts, wir schauen auf
 unsere Leichen, dann sehen wir uns
 gegenseitig an,…Das war’s. Oder nicht?*
@@ -4078,15 +4473,15 @@ hinweg zurück zum DUB. Starker Tobak?
 Zeitreisenzuweisungsinstanz auf Zack.
 „Aufgeht’s! Alle hoch über die herunter
 hängende Räuber-Strickleiter in den Kahn
-einsteigen!“Der ist auf dem🐘 Rücken auf
+einsteigen!“Der ist auf dem? Rücken auf
 Balu, alias Mammuta, aufgebaut, und auf
-einem Riesen-Bastkorb befestigt.🐫,
-Camel-Baby, Gummi, 🐻 voran, der Chor
-zu Fuß hinterher, ihren 🛷Schlitten ziehend,
+einem Riesen-Bastkorb befestigt.?,
+Camel-Baby, Gummi, ? voran, der Chor
+zu Fuß hinterher, ihren ?Schlitten ziehend,
 oder bergab, uns überholend, erreichen
 wir unser DUB, leider ohne weitere
-Scheiß-Nazi-Trupps 🔞wegräumen zu
-müssen. 🐒Fips haben wir aber auch
+Scheiß-Nazi-Trupps ?wegräumen zu
+müssen. ?Fips haben wir aber auch
 wirklich alles zu verdanken. Seine zig
 tausend jährige Erfahrung, von Solar?
 Macht uns zu ‚nur‘ Vollstreckern, zu
@@ -4095,21 +4490,21 @@ Zeitreisenzuweisungsinstanz. Demut ist
 hier angebracht. Dem unbegreiflichen
 Göttlichem sich zu nähern ist uns
 Sterblichen am einfachsten möglich,
-mit den Mitteln der Musik, 🥁dem
+mit den Mitteln der Musik, ?dem
 Musizieren, im Spielen, im Singen, im
-gemeinsamen 🎸Musizieren, in jenem
+gemeinsamen ?Musizieren, in jenem
 Erleben. Das nennt man Lieben! Das ist
 die spürbare,…eine echte Erreichung.
 Amen.„Was denkst Du?“Fips:..„Sicherlich“
 ….,,Oder nicht?“Fips und ich: Jua, sing ein
 Lied! Drei, vier.„Häns’chen klein, fiel vom
-Reck…in den Dreck.“ 🥁
+Reck…in den Dreck.“ ?
 Fazit; wichtiger Hinweis!: Nazis morden!
-Aufgepaßt! Zögert nicht! 🔞💣⚰️🔫
+Aufgepaßt! Zögert nicht! ??⚰️?
 Vielleicht morden sie schon morgen?
-Zeigt Gesicht!🔑
-Mach Dir keine Sorgen, 🛎️
-jua hilft, daß alles kommt ans Licht,💡
+Zeigt Gesicht!?
+Mach Dir keine Sorgen, ?️
+jua hilft, daß alles kommt ans Licht,?
 Naziuntaten sollen bleiben nicht verborgen,
 das machen jua ☀️uns zur Pflicht,
 daß Nazi-Unheil zerbricht,
@@ -4121,7 +4516,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 51
+
 Datum 22. März 2021, 23:39
+
 51. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -4161,34 +4558,34 @@ Flußtal. Kai und Nik ziehen in der
 Pilotenkanzel ein Freudentänzchen ab.
 Das war knapp, und die Gefahr zu
 stranden, also zu landen auf freiem
-Felde, falls wir hinter dem 🏞️Berg heraus
+Felde, falls wir hinter dem ?️Berg heraus
 kommen sollten, ist noch nicht gebannt.
 lm weiten Bogen zieht das DUB nach
 unten. Ohne Probleme geht es voran.
 Kai gibt Vollgas. Tiefer und tiefer bohren
 wir das Drill-U-Boot, DUB genannt, durch
-den Erdball…. 🌍…. Der Planet Rodergas,
+den Erdball…. ?…. Der Planet Rodergas,
 wir wurden von der
 Zeitreisenzuweisungsinstanz mal wieder
-versetzt, ohne uns vorher zu🛰️
+versetzt, ohne uns vorher zu?️
 informieren, wird vom DUB gelöchert. Wir
 bemerken einen Gravitations-wechsel:
-Unser Gewicht hat sich plötzlich 🧲
+Unser Gewicht hat sich plötzlich ?
 verdoppelt. Sehr unangenehm, bleiern
 und düster fühlen wir uns, leider richtig
 schlimm krank ‚bedrückt‘.Uns wird
 anders. Balu macht einen vierbeinigen
-Spagat. Gummi 🐻 tanzt nicht mehr,
+Spagat. Gummi ? tanzt nicht mehr,
 liegt auf dem Bauch, Bauchtanz?
-Auftauchen im, tobenden ☠️👀
-quecksilbrigen 🌋Atomvulkankratersee.
+Auftauchen im, tobenden ☠️?
+quecksilbrigen ?Atomvulkankratersee.
 Ahoi, Matrosen vom JUA-DUB, Aloha,
 Ade!….Wir bleiben lieber erstmal an Bord.
-Das Periskop 🔭liefert uns ungemütliche
+Das Periskop ?liefert uns ungemütliche
 Aussichten. In Schutz-Anzügen wagen
 wir einen Ausstieg. Wir lassen uns
 überraschen. Wir laufen auf dem
-Quecksilber-See, die 🥾Stiefel tauchen nur
+Quecksilber-See, die ?Stiefel tauchen nur
 bis höchstens zu den Knien ein, zum
 Kraterrand. Der Himmel ist dunkelrot mit
 leuchtend-türkisgrün dicht gesprenkelten
@@ -4197,9 +4594,9 @@ Rodergas. Cosmonautik-Fachfrau, na?
 Es ist unsere gelernte Geografin, wer
 sonst ,Chrissy Mac Kniesl, frei nach
 Copilot Nik, Chriesel ☔Niesel, erkennt den
-fernen Planet im 🌌Sternbild Kalkappella,
+fernen Planet im ?Sternbild Kalkappella,
 auf den wir unerwartet auftauchten,
-recht zügig am 🙊kalkpest-igen Geruch.
+recht zügig am ?kalkpest-igen Geruch.
 Fakt ist: Es stinkt gewaltig. Oder nicht?
 
 2021®©Georg Dickas✓Schorsch Tantekel ®
@@ -4208,63 +4605,65 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 52
+
 Datum 22. März 2021, 23:48
+
 52. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Nik und Kai zünden sich Kippen an. Das
-hätten 🚬sie besser nicht gemacht, den
+hätten ?sie besser nicht gemacht, den
 augenblicklich taucht ein Rodergaser
-Möchtegern-Hilfs-Scheiß-👮
+Möchtegern-Hilfs-Scheiß-?
 Ordnungshüter mit seinem freilaufenden
 bissigen Ropterex-Saurier-Möchtegern-
-Köter 🌋am Qecksilber-Krater-See-Ufer
-hinter einer verrottenden 🦴Albtraum-
+Köter ?am Qecksilber-Krater-See-Ufer
+hinter einer verrottenden ?Albtraum-
 Disco-Kaschemme-Türsteher-Abstiegs-
 Treppen-Nische auf, aus der das Horst-
 Wessel-Lied in widerwärtiger Weise von
 einem Scheiß-Nazi-Besoffski-Hans-Wurst
-gegröhlt wird. Der falsche, noch 🔞
+gegröhlt wird. Der falsche, noch ?
 schlimmere Songtext ist voll stramm
 antisemitisch verschärft. Diesem Arsch
 wird von dem restlichen Vollpfosten-
-Nazi -Pack auch noch 👏applaudiert. Kai
+Nazi -Pack auch noch ?applaudiert. Kai
 wird zum Kaakei, kann sich nicht mehr
-zurücknehmen und fordert den 👮
+zurücknehmen und fordert den ?
 Hilfssheriff auf einzuschreiten. Nik
 macht, nach dessen Weigerung diesen
 klar, aber so richtig. Wir knöpfen ihm die
-Bleispritze 🔫und die Handschellen ab.
+Bleispritze ?und die Handschellen ab.
 Diese Kreaturen hier auf Planet Rodergas
 haben nicht nur ausgewachsene Hörner,
-wie Rindviecher, 🦌sie sind wie solche, sie
+wie Rindviecher, ?sie sind wie solche, sie
 haben tatsächlich, klingt absurd, drei
 Beine, wie häßlich. Der verlängerte
 Steißbein-Fortsatz reicht bis zum Boden,
-dem sie einen dritten 🥾Stiefel überziehen,
+dem sie einen dritten ?Stiefel überziehen,
 samt Hosenloden, stabiler Schritt. Der
 befreite Ropterex kommt freudig mit uns
-mit. Wir schnuppern 🙊mal in das Kaff rein.
-Mutanten—Ersatzlos-Hirn-Amputierte, 🧠
-und wenige Noch-Nicht-Nazis, 👀
+mit. Wir schnuppern ?mal in das Kaff rein.
+Mutanten—Ersatzlos-Hirn-Amputierte, ?
+und wenige Noch-Nicht-Nazis, ?
 harmlose Frohnaturen, schunkeln, mit
 drei Beinen läßt’s sich’s saugut schunkeln,
 auch hier im schweinisch, nicht-rheinisch
 Un-Karneval, kalkpest’isch, häßlich,
 niederträchti’ch, wühlen in niederen
 Gefühlen. Der Nazi-‚Kopp‘-Unverstand ist
-der wahre Unsympath. Oder nicht?🔞
+der wahre Unsympath. Oder nicht??
 Müllkippe reiht sich an Schrottplatz, reiht
-sich an Gift-Kippe. Krähen 🕷️gibt es nicht,
-Insekten🦟 gibt es nicht, kaum einmal
+sich an Gift-Kippe. Krähen ?️gibt es nicht,
+Insekten? gibt es nicht, kaum einmal
 Gebüsch oder Bäume. Natur gibt es hier
 fast nicht mehr. Aas fressende Flug-
-Saurier, 🦖halbstarke Bronxsauraus-
-Exemplare heulen 🦇mondsüchtig. Alle
-sind hier Fleisch-🐖Fresser, Nazi-Fresser
+Saurier, ?halbstarke Bronxsauraus-
+Exemplare heulen ?mondsüchtig. Alle
+sind hier Fleisch-?Fresser, Nazi-Fresser
 leider nicht, oder? Orange leuchtend
 geht ein dreimal so großer ☣️Mond auf,
-erhellt🦔 die Düsterheit.
+erhellt? die Düsterheit.
 
 2021®©Georg Dickas✓Schorsch Tantekel ®
 Blunot®Rec.BR4711CD.LP.CC.IMEI:EU.J.USA
@@ -4272,12 +4671,14 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 53
+
 Datum 22. März 2021, 23:56
+
 Teil 53, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Ropterex kommt mit ins 🛰️DUB, immerhin
-ein Saurier der einem 🐕 Hund dem
+Ropterex kommt mit ins ?️DUB, immerhin
+ein Saurier der einem ? Hund dem
 Wesen nach ähnelt. Abtauchen und
 abwarten. Wir haben ein Problem. Das
 DUB hat ein Problem. Das Quecksilber
@@ -4290,19 +4691,19 @@ Fräsenvorbau unseren Anker, der aus
 reinem Wolfram besteht runter lassen.
 Wenn er sich im Grund irgendwo ⚓
 verankert hat, nach unten mit Hilfe der
-Motor-winde ziehen, bis die 🦈
+Motor-winde ziehen, bis die ?
 Haimaul-Fräse soweit ins Quecksilber
 eingetaucht ist, also bis zum Grund,
 daß wir mit einem Vollgas-Start und
 mit Glück uns eindrillen und runterbohren
 können. Gesagt, getan, das DUB greift im
 Grund und verschwindet im Schlund des
-Kraters. 🌋Jubel breitet sich an Bord aus.
+Kraters. ?Jubel breitet sich an Bord aus.
 Wenn es nicht gegriffen hätte, hätte sich
 das DUB aus dem See katapultiert. Wie
-der Autor dieser Schwachsinns-🚬👀🧠
+der Autor dieser Schwachsinns-???
 Geschichte, wären wir so schnell nicht
-mehr aus diesem finsteren 🚬🦇🕷️
+mehr aus diesem finsteren ???️
 Bermudadreieck, zwischen Kalk, Vingst
 und Grämberg, heraus gekommenen.
 Planet Rodergas, der für den Ausgang
@@ -4310,14 +4711,14 @@ des Endsieges der Scheiß-Nazis eher
 uninteressant ist, da er auf einem anderen
 Sonnensystem beheimatet ist, kann nur
 eine Zwischenstation gewesen sein.
-Warum? Ropterex sollte abgeholt🦖
+Warum? Ropterex sollte abgeholt?
 werden, das einzig gute auf diesem
 Abstellgleis der kaputten Existenzen,
 dem als ‚Rest in Müll‘-abgestempelten
 Planet-Rodergas-Grab. Der Planet
 Rodergas zeigt Planet Erde was passiert
 wenn man sich nicht nachhaltig bemüht,
-stabil und resolut in der 🔞
+stabil und resolut in der ?
 Nazibekämpfungsstrategieplanung
 vorzugehen. Alles würde schlecht werden:
 die Natur durch☣️ Umweltgifte, die☢️
@@ -4333,7 +4734,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 54
+
 Datum 23. März 2021, 00:04
+
 54. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -4370,7 +4773,7 @@ Eine Schnappsfabrik ist das nicht. Was
 da aussieht wie eine Fließband
 Maschinerie ist eine Schlange, so
 gigantisch groß. Es ist das Muster auf
-der vorbeiziehenden 40Meter dicken 🐍
+der vorbeiziehenden 40Meter dicken ?
 Schlangen-Körper-Seiten-Haut-Ansicht.
 Jetzt erscheint der unfassbar große
 Schlangenkopf, die gespaltene,
@@ -4385,7 +4788,7 @@ hinein.,,Wir lassen das erst mal
 geschehen ohne daß wir etwas machen“
 Kommandant-Pilot Kai muß sich einen
 ‚kräftigen‘ Schluck genehmigen, eventuell
-den letzten! Der Magen der 🐍 Schlange
+den letzten! Der Magen der ? Schlange
 erdrückt fast die DUB-Beute.Das DUB
 hält’s aus, wenn es auch krasse
 Geräusche macht. Wir müssen uns gut
@@ -4398,7 +4801,7 @@ drauflos. Die Monsterschlange richtet
 sich auf, sie fühlt sich hintergangen,
 würgt. Das DUB rutscht runter und bahnt
 sich durch den kilometer-langen
-🐍-Schlangenbauch. Das arme Tier ahnt
+?-Schlangenbauch. Das arme Tier ahnt
 daß wir gleich hinten herauskommen
 und windet seinen Schlangenkopf an
 das Schlangenschwanzende um uns
@@ -4411,7 +4814,7 @@ hungrige, frustrierte Tier verzieht sich.
 Pfeifenzug gegönnt, reicht mir meine ✓
 Pfeife zurück:,, Daß das DUB stabil blieb,
 war mir klar.“Der Rest der JUA-BAND samt
-Balu, Gummi🐻, Fips, Boris, Igor, und 20
+Balu, Gummi?, Fips, Boris, Igor, und 20
 Genossen vom Ex-Gefangenen-Chor aus
 Deutz, nicht ausNabucco, und unser neuer
 Wach-Saurier-Hund Ropterex haben den
@@ -4424,17 +4827,19 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 55
+
 Datum 23. März 2021, 00:08
+
 55. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip :
 
-Der 🐍 4-kilometer-langen
+Der ? 4-kilometer-langen
 Monster-Riesenschlange ist der Appetit
 vergangen. Da wir auf dem Kopf stehen,
 im Sumpfboden steckend, so wurden wir
 glücklicher Weise in genau dieser
 Kopfstand-Position, eben
-von dieser armen XXXL 🐍 Schlange
+von dieser armen XXXL ? Schlange
 ausgeschieden. Wir kommen in unserem
 extrem stabilen DUB, der gekaperten, von
 Solar erdachten und materialisierten,
@@ -4448,9 +4853,9 @@ DUB im Viktoria-See gerade
 übernommen hatten, haben vor 4
 Wochen die Nil-Krokodile, die uns bis dort
 eskortierten, gefressen. Wir, die Jua’s
-mit Gummi🐻,Camel🐫-Baby, Bo, Igor und
+mit Gummi?,Camel?-Baby, Bo, Igor und
 unseren 20 Ex-Zwangsarbeiter -Freunden
-auf Boot mitgeschleppten von Balu🐘,auf
+auf Boot mitgeschleppten von Balu?,auf
 dem wir sitzen im Kahn, der auf dem
 Bastkorb geschnallt ist, kaperten das
 Drill-U-Boot, damit wir den Scheiß-Nazis
@@ -4480,7 +4885,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 56
+
 Datum 23. März 2021, 00:13
+
 56. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -4506,7 +4913,7 @@ die Oberfläche einer violetten Landschaft
 zu. Die Düsenantriebe stottern. Da bremst
 es stark ab und das DUB bleibt mitten in der
 Luft zehn, oder fünf Meter über der Erde
-stehen:„🛢️Kein Spritt mehr, Glück gehabt!“
+stehen:„?️Kein Spritt mehr, Glück gehabt!“
 Für die letzten Meter müssen wir die etwas zu
 kurze Strickleiter runterlassen und
 hinunterspringen. Müssen wir?
@@ -4517,7 +4924,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 57
+
 Datum 23. März 2021, 00:20
+
 57. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -4527,23 +4936,23 @@ der violetten Boden-Fläche in der Luft zu
 hängen scheint, bei Benutzung der
 Strickleiter, unmöglich werden. Wir stehen
 alle unten und begreifen nichts mehr.
-,,Nicht springen !“Sonja ☀️rät Balu, alias 🐘
+,,Nicht springen !“Sonja ☀️rät Balu, alias ?
 Mammuta, schwer davon ab.
 Eine seltsame Verfärbung der sandigen
 violetten Boden-Fläche zu einem warmen
 hellblauen, fast türkis-blauen Farbton
 vollzieht sich in wenigen Sekunden. Wir
 staunen,auch der Himmel verfärbt sich
-von hellem weiß-Gelb zu 🍋einem
+von hellem weiß-Gelb zu ?einem
 leuchtend Zitrongelb zu metallisch
 messing-Gold mit russischblauen feinsten
 geometrisch angeordneten sechseckigen
 Benzolringen und sechs-zackigen Sternen
 bestückt. Tausende, hundert-tausende in
 der Gold-Himmels-Kuppel? Es ist mugs-
-mäus’chen🐁still, steril-geruchlos, windstill..
-Wir harren und🔯starren in das Firmament.
-,,Wir sind auf dem🔱 Neptun!“„ 👀Christiane
+mäus’chen?still, steril-geruchlos, windstill..
+Wir harren und?starren in das Firmament.
+,,Wir sind auf dem? Neptun!“„ ?Christiane
 zeigt zu den Bergen, die wie seltsame
 Schimären am Horizont zu laufen
 scheinen.„Da, neptunische Berge!“„Nein,
@@ -4563,7 +4972,7 @@ langsam hin und her.„Das ist kein Rauch,
 Nik sieht durch ein Fernglas, nee..ich werd‘
 verrückt, das ist, sie hat sich
 hundertkilometerlang wie aus Gummi
-gedehnt, es ist immer noch die 🐍 kluge
+gedehnt, es ist immer noch die ? kluge
 riesengroße Monster-Riesenschlange.
 Sie hat uns gerettet! Das ist die Erklärung.“
 Sie hat ein gutes Herz, sie hätte ja auch
@@ -4576,8 +4985,8 @@ hängengeblieben, ha, ha.“Sonja checkt:
 „Wir sind schon wieder in einer Blase im
 Erdinneren gelandet.“Christiane ☀️tut
 traurig:„Schade, Ich wäre lieber auf
-Neptun.“🔱„So siehst du aus.“
-Kai 🦅ist gut drauf, oder nicht?
+Neptun.“?„So siehst du aus.“
+Kai ?ist gut drauf, oder nicht?
 
 2021®©Georg Dickas✓Schorsch Tantekel®
 Blunot®Rec.BR4711CD.LP.CC.IMEI:EU.J.USA
@@ -4585,10 +4994,12 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 58
+
 Datum 23. März 2021, 00:29
 58.Teil, Schelmenroman von Georg Dickas Jua-Band-Bio, Der Steinzeit-Trip:
+
 Das DUB setzt endlich auf, die ✓Pfeife geht
-rund, die gütige, kluge🐍Schlange kann sich
+rund, die gütige, kluge?Schlange kann sich
 nach oben über der Planet-Erde-Blase in ihr
 Reich zurückziehen. Die Kopfstand-Position
 des 144 meterlangen Drill-U-Bootes, kurz
@@ -4606,11 +5017,11 @@ flach hügelige, kahle Boden flackert
 ständig über-Kilometer-Länge zackige
 Strecken hinweg. Treibsand zieht uns
 soweit runter, daß Balu teilweise nur noch
-mit seinem Rüssel🐘herausragt. Wir
+mit seinem Rüssel?herausragt. Wir
 verschwinden im Sand und befinden uns
 versehentlich zu Besuch in einer
 Ameisenkolonie von Riesenameisen, groß
-wie Autos.🐜 Arbeiter-Ameise Artur, so
+wie Autos.? Arbeiter-Ameise Artur, so
 stellt sie sich höflich selber vor, zeigt uns
 den als Wohnkomplex mit integrierten
 Arbeitsstätten hochmodernen
@@ -4641,7 +5052,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 59
+
 Datum 23. März 2021, 00:42
+
 59. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -4651,25 +5064,25 @@ essen die Ameisen nichts anderes, sie
 können das, wir nicht. Die Evolution, auch
 wir Menschen sind Teil davon, hat hier eine
 symbyotische Lebensgemeinschaften von
-Pilz🍄, Pflanze 🥦und Ameise 🐜entstehen
+Pilz?, Pflanze ?und Ameise ?entstehen
 lassen,die über Jahrmillionen stabil wurde.
-Die 🍄 Pilze schmecken nicht schlecht,
+Die ? Pilze schmecken nicht schlecht,
 sind gesund und wirken.„Ich merke nichts,
-mir ist nur anders.“): 🧞🧚🦸🦹💃⚡🐇🐠
-🍵π¶🍭🧹🧲🔺✴️🎵🔱⚛️🎌⚰️💡☎️👾🎇
-🌋🚀⚡😱🇲🇰☠️¥°👀💀√%✓™🐗🍄🛸
-Gut, die 🐜 Ameisenkolonie ist wirklich gut
+mir ist nur anders.“): ?????⚡??
+?π¶????✴️??⚛️?⚰️?☎️??
+??⚡???☠️¥°??√%✓™???
+Gut, die ? Ameisenkolonie ist wirklich gut
 drauf, friedlich und gut gelaunt, doch sie
 sind pragmatisch: die Ernährung geht weit
 vor Genuß. Ernährung ist vorrangig
 Nahrung.Genuß ziehen die lieben drei
-Meter langen Riesen- 🐜-Ameisen aus
-anderen Quellen:🕺Tanzen und🎵 Musik.
-Die Wirkung der Pilze,🍄 die auf speziellen
+Meter langen Riesen- ?-Ameisen aus
+anderen Quellen:?Tanzen und? Musik.
+Die Wirkung der Pilze,? die auf speziellen
 Pflanzen wachsen, die einen natürlichen
 canabiolischen Gehalt und
 darüber hinaus einen natürlichen
-Alkaloidgehalt haben, überträgt sich in 🐜 deren Ameisengehirne und wirkt positiv
+Alkaloidgehalt haben, überträgt sich in ? deren Ameisengehirne und wirkt positiv
 erhellend, bei allen kreativen Aktivitäten,
 wie Musizieren, Malen, Basteln, Schreiben,
 Dichten, Konstruieren, und ausdauernd bei
@@ -4686,8 +5099,8 @@ Scherz, 10 Jahre. Davor war das genau
 umgekehrt, nüchtern konnte ich mich oder
 andere nichtertragen.„Meinst du.“Sagt
 Pilot Kai.„Prost
-Kai.“ Er ißt ohne Ende diese 🍄Pilze, dazu
-trinkt er Pilsener 🍺. Wir verabschieden
+Kai.“ Er ißt ohne Ende diese ?Pilze, dazu
+trinkt er Pilsener ?. Wir verabschieden
 uns von der Blattschneider-Wald-Riesen-
 Ameisen-Kolonie und von Kaakai, er bereut
 seine Entscheidung nicht, wir sind entsetzt,
@@ -4701,7 +5114,7 @@ stärker, mal bunter, schwächer, heller, eine
 Lichtentfaltung, die insgesamt die
 innerirdische Hohlraum-Blase so stark
 erhellt, daß die c.a.100 km hohe Kuppel,
-also unser derzeitiges gefühltes 🔯💠🌐🛸
+also unser derzeitiges gefühltes ????
 Himmelsgewölbe in schönsten bläulichen
 Farben reflektiert. Wir verlaufen uns in
 hügeligen Kakteen-Landschaften. Die
@@ -4715,17 +5128,17 @@ Wirkstoffe aufgebrochen und zur vollen
 Wirkung gebracht. Die Erreichung der
 vollen Entfaltung beginnt beim Erwachen.
 Balu fühlt sich, wie er sagt ,,ich bin ein
-🎈.“ Und tatsächlich: Claudia 👾hält
-den Balu 🐘über sich an seiner geliebten
+?.“ Und tatsächlich: Claudia ?hält
+den Balu ?über sich an seiner geliebten
 Rasselkette in der Luft schwebend fest.
-Sonja übergibt 😱sich overdosed. Die Kotze
-verwandelt sich zurück in kleine 🍄 Pilze,
+Sonja übergibt ?sich overdosed. Die Kotze
+verwandelt sich zurück in kleine ? Pilze,
 denen man beim Wachsen zusehen kann,
-und fangen🎵 an zu singen:„Alles verändert
+und fangen? an zu singen:„Alles verändert
 sich, wenn du es veränderst, wenn du dich
-veränderst, verändern sich alle©.“🍄:„Kalle malle
+veränderst, verändern sich alle©.“?:„Kalle malle
 ralle rolle olle rock’n‚roller volle, dolle Pulle,
-alle JUA’s hackendicht!“ 🎌Oder nicht?
+alle JUA’s hackendicht!“ ?Oder nicht?
 
 2021®©Georg Dickas✓Schorsch Tantekel.
 Blunot©Rec.BR4711:CDLPCC,lMEi:EU,J,✓
@@ -4733,7 +5146,9 @@ Made in Germany,Cosmische Kalkurier ©
 
 Autor Schorsch Tantekel
 Kapitel 60
+
 Datum 23. März 2021, 00:51
+
 60. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -4742,7 +5157,7 @@ DUB zwischen den Riesen-Kakteen nicht
 mehr finden können, dann ‚gute Nacht JUA‘.
 Uns wird klar, daß wir zurück gehen sollten
 zu Artur und Kai. Auf halben Weg kommen
-sie uns beide entgegen🐜.3meterlang-Artur,
+sie uns beide entgegen?.3meterlang-Artur,
 die Ameise hat ordentlich Gepäck geladen,
 oben drauf,‚voll-drauf‘ Komanchero Kaakai.
 Sie singen aus Leibeskräften ,‚Take it easy‘,
@@ -4756,10 +5171,10 @@ logo, längst eingeplant von unserer uns
 immer wieder überraschenden, kreativ uns
 motivierenden Zeitreisenzuweisungsinstanz.
 Und das in weiser Voraussicht natürlich.
-Er wird uns 🐜 eine wehrhafte Hilfe sein. Wir
+Er wird uns ? eine wehrhafte Hilfe sein. Wir
 kleiden ihn fein ein, sorgen für eine gute
 Versorgung mit seiner gewohnten Ernährung
-mit ‚Aber-Hallu🍄Pilz-Zucht‘-Ernährung und
+mit ‚Aber-Hallu?Pilz-Zucht‘-Ernährung und
 bilden ihn erotisch, sorry, ein Versprecher ich
 meine: motorisch, waffentechnisch, politisch,
 psychologisch so gut aus, daß es eine
@@ -4772,19 +5187,21 @@ Made in Germany✓Cosmische Kalkurier ©✓
 
 Autor Schorsch Tantekel
 Kapitel 61
+
 Datum 23. März 2021, 01:03
+
 61. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Wir pflücken unterwegs die für die 🍄
+Wir pflücken unterwegs die für die ?
 Pilz-Zucht‘-Ernährung nötigen Pflanzen,
 die hier in der Erde-Inner-Blase reichlich
 wachsen. Besonders Hanf sammeln wir
 soviel wir in den nächsten Jahren brauchen
 werden. Am DUB angekommen veranstaltet
-die Blattschneider-Ameisenkolonie 🐜 eine
-Abschiedsfeier für Artur und Jua. ☀️Die 🐜
-Ameisen👑Königin erscheint in einem mit
+die Blattschneider-Ameisenkolonie ? eine
+Abschiedsfeier für Artur und Jua. ☀️Die ?
+Ameisen?Königin erscheint in einem mit
 Silberfaden durchwebtem zwanzig Meter
 langen Festkleid, das um ihren gewaltig
 großen ,fünfzehn mal fünf Meter dicken
@@ -4812,9 +5229,9 @@ Präzision des Balance-Aktes. Die
 Körper-Pyramide windet sich um das DUB
 herum bis zur 144 Meter langen Oberkante.
 ln allen Farben leuchten ihre knallbunten
-🐜Ameisen Kostüme und sechsbeinigen
+?Ameisen Kostüme und sechsbeinigen
 Outfits. Zum Schluß bekommt Artur als
-Andenken einen 🔥Feuer-verzinkten
+Andenken einen ?Feuer-verzinkten
 vergoldeten Stahl-Ameisen-Beiß-Zangen-
 Verstärkungs-Überschutz mit ultra
 scharfen Iridiumstahl-Klingen überreicht.
@@ -4841,7 +5258,9 @@ Made in Germany✓Cosmische Kalkurier©✓
 
 Autor Schorsch Tantekel
 Kapitel 62
+
 Datum 23. März 2021, 01:06
+
 62. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -4852,7 +5271,7 @@ möglichst enge Schlaufe gedreht, bevor
 es knapp unter der Oberfläche in
 waagerechter Position stoppt. Artur schafft
 es spielend sich nach oben zu graben.
-Gummi ,🐻 ebenfalls mit Höhlen-Erfahrung,
+Gummi ,? ebenfalls mit Höhlen-Erfahrung,
 als nächster; er bessert den
 Aufstiegsschacht mit Hilfe von Balu und
 Blatt-Schneider-Wald-3m-langen
@@ -4909,7 +5328,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 63
+
 Datum 23. März 2021, 01:20
+
 63. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -4944,10 +5365,10 @@ schnell, weil Arminius zu lahm ist, da er,
 Nomen est Omen, lasch ist, eine, Lusche
 ist. Oder nicht, oder doch? Nur ein guter
 schneller Arminius kann RWE abstoßen!
-Geschnallt? Oder nicht?“ Ropterex 🐶
+Geschnallt? Oder nicht?“ Ropterex ?
 spricht gestochen scharf artikuliert, Armin
 hat jedes seiner Worte gut gehört, er sitzt
-direkt an seinem 👂 Ohr. Was er von diesem
+direkt an seinem ? Ohr. Was er von diesem
 Deutsch-sprechenden Saurier-Hund hört, der
 neben ihm auf der Auto-Rücksitzbank hockt,
 hört er bestens, und es hört sich auch gut
@@ -4958,7 +5379,7 @@ aber ich merke nichts.“ Antwortet er auf
 die höfliche Anfrage, ob bei ihm wieder
 alles im Lot ist, seines ihm vertrauten
 Fahrers, der den genau hinter sich
-hockenden Ropterex 🐶nicht bemerken
+hockenden Ropterex ?nicht bemerken
 kann.„Armer Armin.“Sagt er zu
 sich. „Bin ich am Leben? Oder bin ich schon
 tot?“ Als Kanzleranwärter, so gut wie. Das
@@ -4972,22 +5393,24 @@ Made in Germany✓Cosmische Kalkurier©✓
 
 Autor Schorsch Tantekel
 Kapitel 64
+
 Datum 23. März 2021, 01:23
+
 64. Teil, Schelmenroman von Georg Dickas:
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Ropterex🐲🦚
+Ropterex??
 spricht den Fahrer an, er möge
 ihn bitte aussteigen lassen. Der
 verstörte
-Fahrer muß Ropterex🐉versprechen,
+Fahrer muß Ropterex?versprechen,
 daß er ihn nie gesehen habe. JUA’s
 neuer Saurier-Freund, der sich als
-Deutsch-sprechender 🐉 gibt,
+Deutsch-sprechender ? gibt,
 bittet eindringlich
 darum. Der Fahrer wird blaß,
 diskutiert nicht und streichelt ihm das
-blaue Gefieder.„Du bist 🍄🐇🦚
+blaue Gefieder.„Du bist ???
 keine Halluzination, du bist real.“
 „Mach gut, und beruhige Armin,
 der gerade deine
@@ -4999,8 +5422,8 @@ nieder.„Hatten Sie den blauen
 gefiederten Jecken mitgebracht?“
 „Chef, träumen Sie, hier ist außer uns
 niemand im Auto.“„Dieser komische
-🦚Vogel war ein sprechender 🐕 Hund,
-ich bin wohl eingeschlafen und träumte 🍄schlimm….
+?Vogel war ein sprechender ? Hund,
+ich bin wohl eingeschlafen und träumte ?schlimm….
 Oh, meine Nerven.„Bringen Sie mich
 bitte ins Ensener Klösterchen.“
 „Sie haben heute Mittag ein Essen
@@ -5026,25 +5449,27 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 65
+
 Datum 23. März 2021, 01:35
+
 65. Teil, Schelmenroman von Georg Dickas
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Da segelt er heran,🐦 Ropterex 🐶,
+Da segelt er heran,? Ropterex ?,
 JUA’s Reggae-Fan mit Wachhund-Talent ,der
 Natty-Gefieder-Flug-Saurier-Hund. Er landet
-behänd auf der Riesen 🐜
+behänd auf der Riesen ?
 Blattschneiderameise, namens Artur, dem
 er kundtut von der Reise, vom Gespräch mit
 Arminius, und dessen Tor-‚Tour‘,Tortur im
 Auto dorthin.
 
-🐜 Ropterex und Artur 🐶 🐦 mögen
+? Ropterex und Artur ? ? mögen
 sich, wurden Freunde im Nu.
-Wie Gummi🐻, ich und Balu🐘
+Wie Gummi?, ich und Balu?
 jetzt gerne spielen, Musik machen.
 Wir spielen, probieren, es gibt viel zu lachen.
-Claudia und Fips 🐒 sind unzertrennlich.
+Claudia und Fips ? sind unzertrennlich.
 Sie reimen zu Melodien und singen.
 Mit Christiane und Sonja wird’s sinnlich.
 Stephanie und Robert Stimmung bringen,
@@ -5066,7 +5491,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 66
+
 Datum 23. März 2021, 02:02
+
 66. Teil, Ein Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -5082,17 +5509,17 @@ verschwinden. Es wird aussehen wie ein
 Riesen-Maulwurf-Hügel. Ein Maulwurf der so
 groß wie ein Seelöwe sein müsste. Ein RWE-
 Maulwurf. Armin hat doch Humor. Oder nicht?
-Kai 🦅startet das DUB extra vorsichtig.
+Kai ?startet das DUB extra vorsichtig.
 Trotzdem wird es hier und im Aachener Raum
 ein winziges Erdbeben geben, mit Epi-Zentrum
 unter Armins Garten.
 Wir tauchen auf. Diesmal senkrecht vor der
-Küste vor Sylt. 💈Wie ein Leuchtturm ragt unser
-DUB aus der 🌅Nordsee. Balu 🐘lässt uns
-einsteigen. In den 🦅Kahn, der im Bastkorb auf
+Küste vor Sylt. ?Wie ein Leuchtturm ragt unser
+DUB aus der ?Nordsee. Balu ?lässt uns
+einsteigen. In den ?Kahn, der im Bastkorb auf
 seinem Rücken befestigt ist und schwimmt
-zum🏖️ Dünen-camping-Platz, dem besten
-Mückenfreien 🦟einzig wahren mir wohl
+zum?️ Dünen-camping-Platz, dem besten
+Mückenfreien ?einzig wahren mir wohl
 bekannten, ohne Strand-Kur-Taxe zu bezahlen.
 So eine Woche auf Sylt im July ,sollte man
 sich gönnen. Obwohl es gestern bei Armin
@@ -5101,17 +5528,17 @@ Hochsommer. Mal sehen was sich unsere, uns
 immer wieder überraschende
 Zeitreisenzuweisungsinstanz, an neuen
 Aufgaben ausdenkt. Balu macht es Spaß über
-den Strand zu rennen und 🐘 elefantische
+den Strand zu rennen und ? elefantische
 Posaunenstöße zu schmettern. Vor der
 Kur-Konzert-Bühne stoppt Balu. Ihm gefällt
 genau wie mir die Jazz-verwandte-Musi, die
 aus der Riesen-Muschel tönt. Der begnadete,
-singende Pianist, Götz 🕺Alsmann mit seiner
+singende Pianist, Götz ?Alsmann mit seiner
 fabelhaften Combo, macht Stimmung. Abends
 spielen wir,☀️ Jua-Band also, ohne Strom⚡ zum
 reinen Vergnügen bis tief in die Nacht hinein
-am Strand. Gummi 🐻🐘 🐦 🐒, Balu,
-Ropterex, 🐵Fips schlafen schon längst. Oder
+am Strand. Gummi ?? ? ?, Balu,
+Ropterex, ?Fips schlafen schon längst. Oder
 nicht? Die Nacht kühlt kaum ab und sie ist so
 kurz, daß wir einfach auf dem Sand im Strand
 einschlafen werden, obwohl es gerade hell
@@ -5129,7 +5556,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 67
+
 Datum 23. März 2021, 02:13
+
 67.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -5140,17 +5569,17 @@ Nach nur zwei Stunden Schlaf weckt
 uns Kai. Er befürchtet, daß es für Aufsehen
 beim hiesigen Militär sorgen wird.
 Euro-Jets der dänischen Luftwaffe donnern
-mehrfach darüber. Ein mit 🦈
+mehrfach darüber. Ein mit ?
 Haifisch Zahn-Kranz bestückter
 Leuchtturm, den vorher noch niemand
 gesehen hat. Jeder sieht den 70m hoch,
 30m breit und rund und schief stehenden
-Turm, 💈der mit diesem stählernen
+Turm, ?der mit diesem stählernen
 Fräsvorbau gekrönt ist, und manch einer
 wird sich darüber wundern. Außerdem
 schüttet es heftig. Wir hocken unter
 einer Rand-Überdachung der Dachfläche
-des Camping 🏕️Duschbad-Häuschens.
+des Camping ?️Duschbad-Häuschens.
 Das große Uralt-Zeltdach der Toten Hose-
 Fans kann das Gewicht des Wassers nicht
 tragen und bricht unter dem Geschrei der
@@ -5166,14 +5595,14 @@ wir sie eben schon noch beneidet haben,
 angesichts unserer Lage. Der Sturzregen
 versickert hier augenblicklich im
 Dünensand. Alles halb so wild auf diesem
-empfehlenswerten Dünen-🏕
+empfehlenswerten Dünen-?
 ️Campingplatz auf Sylt in Westerland. Das
 Frühstück muß ausfallen. Balu alias
-Mammuta 🐘steht bis zu den
-Stoßzähnen in der 🏖️Nordseebrandung.🐒
-Ropterex🦖, Fips und🐻 Gummi sind schon
+Mammuta ?steht bis zu den
+Stoßzähnen in der ?️Nordseebrandung.?
+Ropterex?, Fips und? Gummi sind schon
 oben. Gemeinsam schwimmt er, wir alle
-obenauf, zum 💈DUB. An idealer Stelle
+obenauf, zum ?DUB. An idealer Stelle
 gelegen, direkt an der Wasserkante, ist
 der seitliche Beladeeingang.
 Der DUB-Motor gekoppelt mit einer
@@ -5183,7 +5612,7 @@ mehr, bis es langsam kippt und schließlich
 mit tösendem Platschen wie gewünscht
 auf die Seitenlage umfällt. Die T.H.Fans
 könnten das seltsame Ungeheuerliche der
-Militär-Polizei 💂bezeugen. Na, die werden
+Militär-Polizei ?bezeugen. Na, die werden
 ihren Spaß haben. Oder nicht?
 Der Anker läßt sich nicht mehr einholen.
 Wir trennen uns von dem ⚓ Anker und
@@ -5192,8 +5621,8 @@ von uns am Victoriasee 1942 den Nazis
 dort nach deren Tötung übernommene
 Drill-U-Boot, Fahrt aufnimmt. Mit Hilfe
 unserer befreundeten Jua-Nilkrokodil-
-Eskorte, 🐊die damals, die von Jua, die
-oben auf 🐘Balu musizierend sitzend
+Eskorte, ?die damals, die von Jua, die
+oben auf ?Balu musizierend sitzend
 den See durchquerten, überraschten,
 abgelenkten Nazis, mit großem Appetit
 verspeisten, gelangte das DUB blitzschnell
@@ -5203,13 +5632,13 @@ Nazi-Geheimwaffe-Drill-U-Boot, das ’42
 vorher von den Nazis selbst, dem Solar
 in Atlantis gestohlen wurde. Die Nazis
 hätten so eine high-Tech-Maschine
-niemals herstellen können. Mit der 🦈
+niemals herstellen können. Mit der ?
 Zahnkranz-Aushubvorrichtungs-Fräse
 voraus, fast senkrecht in den
 Meeresgrund bohrt, ‚drillt‘ sich das DUB
-in das Innere des 🌎Erde-Planeten durch.
-Co-Pilot Nik gratuliert Pilot 🦅Kai, der ihm
-nach 🕺Georgs leider monsterlangen
+in das Innere des ?Erde-Planeten durch.
+Co-Pilot Nik gratuliert Pilot ?Kai, der ihm
+nach ?Georgs leider monsterlangen
 Schachtelsatz-Konstruktionen dessen
 Pfeife ✓weiterreicht, zu dessen gelungener
 zeitiger Abzug-Aktion von der Insel Sylt,
@@ -5220,7 +5649,7 @@ ist JUA☀️ samt Freunden gelungen.
 ‚Wahnsinn‘!„ Kunst zu machen ist
 grundsätzlich eine Flucht vor dem
 Wahnsinnig-Werden.Oder nicht?“
-„Schorsch du spinnst!“ Bin ich 😱des
+„Schorsch du spinnst!“ Bin ich ?des
 Wahnsinns? Oder nicht?
 
 2021®©Georg Dickas✓Schorsch Tantekel ®
@@ -5229,7 +5658,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 68
+
 Datum 23. März 2021, 14:48
+
 68.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -5270,8 +5701,8 @@ Urzeiten existierende Seher von Solar,
 ich muß aufpassen was ich sage, oder was
 ich vermute, der Laban war ein, er war,
 eventuell ist er noch immer der mächtigste
-Magier des🔯 Allmächtigen, aller Universen.
-Das DUB haben nicht die Scheiß-Nazis🔞
+Magier des? Allmächtigen, aller Universen.
+Das DUB haben nicht die Scheiß-Nazis?
 konstruiert, gestohlen hatten sie es 1942.
 Mit Hilfe eines Verräters. Das DUB ist
 das Produkt reiner Gedankenkraft….Die
@@ -5284,7 +5715,7 @@ suchen; sie ‚kaufen‘ sich diese mit dem
 ‚Verkaufen‘, mit dem ‚Opfern‘ dafür!
 das bedeutet: Das Opfer ist das
 versprochene ständige Ermorden
-aller Juden 🕎♾️in aller Zukunft.
+aller Juden ?♾️in aller Zukunft.
 Das ist das Opfer für Nazi-Welt-Herrschaft.
 Zur zukünftigen Machtergreifung und
 Erhaltung dieser machen die
@@ -5301,12 +5732,12 @@ diabolischem Verständnis unzweifelhaft
 ihnen zustehende, ‚Geschäft ist Geschäft‘.
 So glauben sie in anmaßender Weise, den
 kommenden-‚Endsieg‘ zu erlangen, wenn sie
-alle Juden🕎♾️ zügig ausschalten. Ein Geschäft
-mit dem 👹Teufel? Das niederträchtige
+alle Juden?♾️ zügig ausschalten. Ein Geschäft
+mit dem ?Teufel? Das niederträchtige
 Scheiß-Nazi-Pack ist auf dem Holzweg.
-Jakob, der jüdische 🔯Patriarch hält ewig
+Jakob, der jüdische ?Patriarch hält ewig
 mit seiner ♾️göttlichen Macht dagegen!
-Deshalb verrät sogar der Leibhaftige 👹sich
+Deshalb verrät sogar der Leibhaftige ?sich
 selbst, soviel ich weiß. Ach, weiß der Teufel?
 Oder nicht?
 
@@ -5316,11 +5747,13 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 69
+
 Datum 23. März 2021, 15:18
+
 69. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Schon wieder ändert sich die 🧲Schwerkraft.
+Schon wieder ändert sich die ?Schwerkraft.
 Wir wiegen locker das Doppelte und so
 fühlen wir uns auch. Mir fällt die ✓Pfeife aus
 dem Mund. Eben noch high, jetzt völlig
@@ -5374,7 +5807,7 @@ Kaakai versucht zu bremsen.„Mein Fuß
 klebt am Boden, meine Hand wird platt
 wie Papier.“ Der Schall seiner Worte
 gelangt in Form von von
-Spielzeug-Magnettäfelchen 🧲herbei geflogen
+Spielzeug-Magnettäfelchen ?herbei geflogen
 und haften am Schlagzeug-Becken-Ständer
 in der richtigen Reihenfolge gut lesbar fest.
 Mit einem Mal rammen wir den Schneeball.
@@ -5398,7 +5831,7 @@ DUB’s in das wir gebannt diese
 grünlich-metallische Kugel anstarren. ln
 diese Weihnachtskugel die vor dem DUB
 schwebt stürzen zuerst die lachenden
-vier👥👥 Sonja’s, nachdem sie vor das DUB
+vier?? Sonja’s, nachdem sie vor das DUB
 nach draußen gelangt sind, sie
 durchdringen einfach so Materie. Danach
 verschwindet das Vorderteil des DUBs,
@@ -5414,7 +5847,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 70
+
 Datum 23. März 2021, 15:26
+
 70. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -5422,7 +5857,7 @@ Wir sahen unser Ende nahen.
 Zum Glück ist Sonja ☀️zurück.
 Die erste Eine, sonst keine, die wahre.
 Eine, zwei, dann vier, waren eben noch hier.
-Mit DUB sind🌅 Jua, inne‘ zehn cm grüne
+Mit DUB sind? Jua, inne‘ zehn cm grüne
 Kugel eingedrungen.
 Reingezogen, hineinversetzt in diese Kugel.
 Das ist einfach so, uns irgendwie gelungen.
@@ -5432,13 +5867,13 @@ Wie passt das da rein, oh‘ Himmel, ein
 Traum? Ich nichts bemerke, mir nur anders
 werde. Das DUB rast einem Berg-Massiv
 hinther’n. UFO, Meteor oder was ist das?
-Tja, ein🏔️ Berg. Setzen auf am
+Tja, ein?️ Berg. Setzen auf am
 Teilchenbeschleuniger in Cern.
 Wir sehen kein schwarzes Loch, oder
 doch? Der fliegende Berg schrumpft,
 löst sich auf. Von innen her schmilzt und
 wir schnell noch rein ins DUB, zu spät,
-das Mikro-Schwarzloch in Kaakai’s 🍾Pulle
+das Mikro-Schwarzloch in Kaakai’s ?Pulle
 rein. Er schnell Korken drein,
 Der Geist in der Flasche, der Spuk ist vorbei.
 Ans Steuer zurück und ab geht’s,
@@ -5446,19 +5881,19 @@ dabei,dabei. Die Fläsch schrumpft, da
 schlägt’s Potz ⚡Blitz. Nein!, Das stimmt
 nicht, das ist nur ein Witz. Vom Blitz
 getroffen, hat zuviel gesoffen,
-vergißt Kaakai den Geist, die Flasche 🍾offen.
-Kippt das Mikro-Schwarzloch-Bier 🍺
+vergißt Kaakai den Geist, die Flasche ?offen.
+Kippt das Mikro-Schwarzloch-Bier ?
 in sich hinein mit lustvoll Gier.
 Schrumpft aber nicht und alle ☀️Jua’s
 wissen, ihm wird so anders, muß
 dringend mal raus. Er wird zusehends
 dünner, jetzt flott hinaus auf’s Örtchen
 das Schwarze Loch auspissen.
-Abziehen, Glück gehabt, es rauscht ins🌌 All,
+Abziehen, Glück gehabt, es rauscht ins? All,
 vom Drill-U-Boot, alles raus mit einem
 ‚Knall‘! Nik hänselt:„Dat Chriss kritt di Kries,
 häd’n Schwattlooch in de ✓Pief, dad Knies.“
-Kaakai 👮steuert mit Ruhe, im Mund ne‘ 🚬
+Kaakai ?steuert mit Ruhe, im Mund ne‘ ?
 Kippe, Kai riskiert besser keine dicke Lippe.
 Lieber nicht?
 
@@ -5468,7 +5903,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 71
+
 Datum 23. März 2021, 15:39
+
 71. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -5491,15 +5928,15 @@ indem sich der Cerner
 Teilchenbeschleuniger befand. Auf dem
 Berg landeten wir. Der schrumpfte,
 verschwand im Mikro-Schwarzloch,
-welches in Kaakai’s 🍾Flasche verschwand.
+welches in Kaakai’s ?Flasche verschwand.
 Direkt danach von ihm ausgeschifft ins
 All mit Knall. Kai hat eindeutig zwei
-mächtige Schutzengel👥 mit strenger
+mächtige Schutzengel? mit strenger
 Anweisung von ganz oben. Was hatten
 wir ein Dusel.. Darauf laßt uns Einen
 heben, Prost, jua, der Kai hält was aus,
 hoch soll er leben. Ich halte mich ja‘ an
-Keith Richards 🎸angeblich empfohlenen
+Keith Richards ?angeblich empfohlenen
 Tipp: Am Folgetag nie dieselbe
 wirkstoffhaltige Substanz einfahren,
 jeden Tag wechseln! Abgenommen hat
@@ -5531,28 +5968,28 @@ vorzustellen hat, der sich krümmt, immer
 weiter krümmt, bis der Stapel zu einem
 Kringel sich formt, bei dem die letzte
 Platte der ersten unterliegt. Wobei für jede
-Schallplatte📀 je ein Universum steht. Ein
+Schallplatte? je ein Universum steht. Ein
 Multiversum also. Das DUB ist quasi in der
-nächsten 💿📀Schallplatte aufgetaucht. Ein
+nächsten ??Schallplatte aufgetaucht. Ein
 Parallel-Universum? Das DUB taucht in
 einem zugefrorenen See auf, auf welcher
 Erde auch immer. Balu bringt uns ans Ufer.
 Wir kennen diese Gegend. Oder nicht?
 Eine Höhle kommt mir bekannt vor, Balu
-auch. Mammuta 🐘 alias Balu ist wieder
+auch. Mammuta ? alias Balu ist wieder
 Natty-Dread-Mammuta, der Beine wie
 Baumstämme hat.„Nicht anpinkeln!“
-brummt 🐘 er mich an. Er erinnert sich
+brummt ? er mich an. Er erinnert sich
 wie ich auch, und wir lachen. Diesmal
 haben wir allerdings unser DUB, Ropterex,
-🐦🐒 Fips, Nik, Lorenz, Gummi 🐻, 🐘
-Moriz, 🎸Lennart🎹, Quwesiga, 🎸Artur, 🐜, Der
-20-Mann-Chor-befreiter 🎤Zwangsarbeiter,
+?? Fips, Nik, Lorenz, Gummi ?, ?
+Moriz, ?Lennart?, Quwesiga, ?Artur, ?, Der
+20-Mann-Chor-befreiter ?Zwangsarbeiter,
 Boris, Igor und noch drei
 ☀️jua-Bewegung-Reise-Genossinnen:
-Stephanie, Claudia und 🎻Geli. Ein
+Stephanie, Claudia und ?Geli. Ein
 Säbelzahn-Tiger ist hier noch nicht, wie vor
-wenigen Wochen, 🐅in Sicht. Oder?
+wenigen Wochen, ?in Sicht. Oder?
 
 2021®©Georg Dickas✓Schorsch Tantekel®
 Blunot®Rec.BR4711CD.LP.CC.IMEI:EU.J.USA
@@ -5560,11 +5997,13 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 72
+
 Datum 23. März 2021, 15:53
+
 72. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Am Himmel geht ein zweiter Mond 🌙 auf.
+Am Himmel geht ein zweiter Mond ? auf.
 Gut drei mal größer als der hochstehende
 Halbmond, und es ist ein Vollmond. Uns
 wird anders. Zum ersten Mal packen wir
@@ -5589,7 +6028,7 @@ aber die haben wir aber auch dermaßen
 zugeknallt mit dem Libby-Extrakt. Das
 selbe hätten die mit uns nicht geschafft.
 Geschenkt. Wir schlafen alle ein und
-Ropterex 🐶 bellt uns wach. Richtig
+Ropterex ? bellt uns wach. Richtig
 dunkel ist es nicht geworden, eigentlich
 dämmerte es die ganze Zeit bis es schon
 wieder hell geworden ist. Und das schon
@@ -5599,11 +6038,11 @@ der ein Tänzchen hinlegt und gut gelaunt
 synkopische Bebop-artige
 Stakkato-Posaunen-Stöße abläßt, kommt
 bei uns allmählich wieder alles ins Lot.
-Seine Circus-Erfahrung 🐘 schlägt durch.
+Seine Circus-Erfahrung ? schlägt durch.
 Obstbäume gibt es. Die Früchte sind
 Fußball ⚽ große blau-türkise unbekannter
 Art. Artur kommt von seiner
-Erkundungstour zurück. 🐜
+Erkundungstour zurück. ?
 Mit Drei-Meter-Länge-Ameise Artur
 fühlen wir uns relativ sicher. Er hat viel zu
 berichten:
@@ -5679,21 +6118,23 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 73
+
 Datum 23. März 2021, 16:12
+
 73.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Der Stein stülpt seine sechs Pyramiden ein
 und schwebt weg.„Artur, gibt es von der
-Sorte mehr?“3 m-Blattschneider- 🐜
+Sorte mehr?“3 m-Blattschneider- ?
 Ameise erklärt mir :„Hunderte hängen in
-einem großen alten 🌳Baum, dessen
+einem großen alten ?Baum, dessen
 schattiges Geäst sie behaglich finden.
 Auch mögen sie sein sonniges Gemüt und
 besonders lieben sie seinen herrlichen
 Humor. Das hat mir der fliegende
 Unstofflich-Schweb-Steinquadrat erzählt.
-ln diesem Baum 🌲, an ihm und davor, auf
+ln diesem Baum ?, an ihm und davor, auf
 ihm und um ihm herum, singen Sie ihm
 gemeinsam vor. Sie hören gern Gesänge
 und wissen durch ihn die geheimen
@@ -5703,20 +6144,20 @@ Gleichzeitigkeitsqualität.“„Aaah, ja, willst
 du dir Spaß mit mir machen oder willst
 du mir ernsthaft klarmachen, daß das
 DUB im Garten Eden gelandet ist, und
-daß der Baum 🌲 der Baum der
+daß der Baum ? der Baum der
 Erkenntnis ist? Das glaubt dir keiner, geht
 es vielleicht auch ne‘ Nummer kleiner?“
 „Frag ihn doch.“„Ich werde mich hüten.“
 „Nie ihn zu fragen, das rat ich dir nur.“
 „dzzzzzz.“.. „Ich glaube dir, mein Artur.“
 lch merke nichts, aber mir ist so anders
-im Gemüte. Balu 🐘 alias Mammuta
+im Gemüte. Balu ? alias Mammuta
 erinnert sich an das Paradies, da war
 noch alles in Ordnung; man alterte nicht,
 man fraß nicht, man jagte nicht, man
 gebahr nicht, man konnte sich
 vervielfältigen lassen, oder auch nicht.„Es
-gab eine gemeinsame Sprache.“Fips🐒
+gab eine gemeinsame Sprache.“Fips?
 ergänzt, kein Zaun, der abgrenzt, keine
 Besitztrümmer, die beneidet würden immer.
 Keine Koexistenz von gut und böse, wie es
@@ -5726,25 +6167,25 @@ es leider bald zu spät, ihr könntet es bald
 erleben. Der Scheiß-Nazis unheilvollem
 Wahn, deren teuflischer Judenausrottungs-
 Plan.
-
 Ein Intermezzo:
+
 Eine Jua-Band-Mitspielerin spricht:
-Hallo🌲 Baum, frag mich was, du bist doch
+Hallo? Baum, frag mich was, du bist doch
 so schlau. Wo ist Adam, Madam?“„lch bin
 doch nicht Eva, wie du weißt, ich bin eine
 ˋJua‘.“„JUA-Band spielt mir vor das Lied
-Chang Chang, das lieb ich, bin ganz 👂
+Chang Chang, das lieb ich, bin ganz ?
 Ohr.“JUA:„Damdadadada, Damdadadada,
 und drei und vier, und…“„Beißt in den Apfel
 ihr Lieben, da bittesehr, ich bin die
-Schlange, 😈🐍 hört auf mich, es wird
+Schlange, ?? hört auf mich, es wird
 auch euch dann Sein Wissen geboten,
 was soll denn dabei sein? Warum soll’s
 sein verboten?“„Mag sein, werd’s gönnen
 mir, wie auch ihr, wir fragen nicht nach,
 sonst ist’s aus mit dem Plaisir.
 Damdadadada, damdadadada, und drei
-und vier, und….Hallo🌲 Baum, frag uns,
+und vier, und….Hallo? Baum, frag uns,
 wir dich lieber nicht, haben keine Fragen,
 müssen das ertragen, wir sind leider
 sterblich, leider erblich. Leider zu sterben,
@@ -5761,18 +6202,20 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 74
+
 Datum 23. März 2021, 16:36
+
 74. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Alle drei Stunden wird es hier hell und
 dunkel. Nach dem Aufwachen machen wir
 uns sofort auf den Weg zu dem
-sagenhaften 🌳Baum. Das ist kein
+sagenhaften ?Baum. Das ist kein
 Schlaraffenland. Paradiesisch sieht es hier
 eher nicht aus, es ist kühl, aber
-naturbelassen und schön. Artur 🐜 kennt
-den Ort. Keine 🥭Früchte essen und keine
+naturbelassen und schön. Artur ? kennt
+den Ort. Keine ?Früchte essen und keine
 Fragen zu stellen, das haben wir uns fest
 vorgenommen. Eine absolut lebenwichtige
 Vorsichtsmaßnahme, falls er wirklich der
@@ -5780,16 +6223,16 @@ Baum der Erkenntnis ist. Die Quadratsteine
 im Baum hängen wie Früchte, und singen
 Choräle. Es sieht aus, als wären hunderte
 kleine, mattgold lackierte Lautsprecher-
-🥊 boxenim Baum verteilt worden.
+? boxenim Baum verteilt worden.
 Kabellos und mit
 Batterien betrieben, und mit transparenten
-unsichtbaren Fäden befestigt, klingt der🌲
+unsichtbaren Fäden befestigt, klingt der?
 Baum fantastisch gut.“„Die perfekte P.A.-
 Anlage für Jua auf einem Konzert, z.b. auf
 der Merheimer Heide.“ Nik:„Wer sollte das
 bezahlen und installieren,die Kosten für so
 einen Aufwand ist nichts für Jua.“„Soll ich
-den Baum 🌲 fragen,
+den Baum ? fragen,
 ob..“„Georg!!.Bloß, nicht!“„Ich mach doch
 nur Spaß.“Es hört sich dermaßen gut an,
 als ob die Beach Boys Dub-Arrangements
@@ -5810,18 +6253,18 @@ Naturhall-Effekt perfekt im Super-Multi
 -Hifi-Stereo-Sound abgemischtes
 Klangerlebnis, von absolut
 unerreichbarster köstlichster Güte. Uns
-fallen die 👂 Ohren ab. Fips 🐒 freut sich;
+fallen die ? Ohren ab. Fips ? freut sich;
 im Nu flitzt er im Geäst. Zack, hat ihn die
-🐍 Paradies-Schlange erwischt. Sie lässt
+? Paradies-Schlange erwischt. Sie lässt
 ihn brav laufen, frisst ihn nicht. Er
 bekommt von ihr einen Apfel. „Ich bin Ka.“
 „Angenehm, Fips mein Name, nein
 danke, bin grad satt. lch bin aus Atlantis
 lebe da beim Solar seiner Schar.“„Guten
 Appetit, Laß es dir schmecken.“ Wünscht
-der 🌲 Baum, der spricht zum Äffchen.🐵
-Doch der verzichtet.„🐍 Die liebe Ka mag
-dich und 🌈Jua. lch höre gerne euch zu und
+der ? Baum, der spricht zum Äffchen.?
+Doch der verzichtet.„? Die liebe Ka mag
+dich und ?Jua. lch höre gerne euch zu und
 der Chor der weisen Steine auch, genau
 wie du. Aus der Nichtstofflichkeit der
 seelenvollen Musik wird Stofflichkeit und
@@ -5829,11 +6272,11 @@ Zeit.“„Hab ich mir gedacht, hätte auch
 nicht danach gefragt. Wir sind sterblich,
 das ist erblich, und das schon lange. Das
 wissen wir seit Adam und Eva verführt von
-der 🐍 Schlange, obwohl
+der ? Schlange, obwohl
 ihnen ward verboten, es wissen wollten;
 seither wir sterben durch den Tod, der ist
 die Zeit, dafür wir bezahlen sollten.
-Ich frage dich lieber nicht, lieber Baum 🌲
+Ich frage dich lieber nicht, lieber Baum ?
 der göttlich
 Wissen kennt, daß die Göttlichkeit,
 genannt Gott, beseelt das Lebendige,
@@ -5853,11 +6296,13 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 75
+
 Datum 23. März 2021, 16:47
+
 75.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Der Baum 🌲 der Erkenntnis prägt die
+Der Baum ? der Erkenntnis prägt die
 Session mit Jua, dem von uns befreiten
 20-Mann-Chor Köln-Deutzer-Nazi-U-Boot-
 Hafen-Zwangsarbeiter von1942, und den
@@ -5879,7 +6324,7 @@ vielfach wiederholt wird, drauf. Der Baum
 scheint alles hier zu steuern. Wo kommt
 die unerschöpfliche Energie, die uns erfüllt
 und uns endlos spielen lässt, her? Fraglos
-vom 🌲 Baum, wir glauben, fragen also
+vom ? Baum, wir glauben, fragen also
 nicht, weil wir gläubig werden, immer mehr
 und mehr. Fragen sind hier tabu, wir hören
 nur noch zu. Wir spielen nicht, wir werden
@@ -5887,7 +6332,7 @@ gespielt, die Musik spielt uns, sie wird uns
 lieben, sie wird uns beleben, die Fragen
 hören uns zu. Das DUB tanzt, singt,
 kommt fraglos uns zu, und singt,
-bewegt und 🕺tanzt sich, holt sich jua.
+bewegt und ?tanzt sich, holt sich jua.
 startet sich fraglos in den unbekannten
 Orbit des Doppel-Mond-Planeten des
 unbekannten Parallel-Universums in
@@ -5902,7 +6347,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 76
+
 Datum 23. März 2021, 17:06
+
 76. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Band, Der Steinzeit-Trip:
 
@@ -5936,7 +6383,7 @@ den Auto-Pilot-Knauf umzuschalten.
 „Meinst du?“Seine übliche Art zu
 antworten bringt den Dämon zu äußerster
 rabiater Tobsucht Raserei. Er zerreißt
-dessen Gitarren-Tasche 🎸und greift sich
+dessen Gitarren-Tasche ?und greift sich
 die Klampfe.,,Mach das nicht, sonst setzt
 es was!“„O.K.,o.k.“Der Dämon kuscht, ich
 glaub es nicht. Mit dem Fuß kickt Kaakai
@@ -5956,7 +6403,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 77
+
 Datum 23. März 2021, 17:39
+
 77. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -6035,14 +6484,14 @@ sie das auch; da stehen 4 Knirpse vor der
 Plastik-Trage-Box, die mit ihrer Öffnung
 hochkant zu mir zeigt, mit der
 Fußmaschine drin, linker Fuß auf der
-Tretbecken-Hi-Hat-Maschine, eine 🥁Snare
+Tretbecken-Hi-Hat-Maschine, eine ?Snare
 dazwischen, und ihre Eltern schaffen es
 nicht diese zum Weitergehen zu bewegen.
 Ich erzähle diesen Knirpsen, singender
 Weise, das sie das, na logo, auch machen
 sollen und es lernen können. Damals, ich
 als 14jähriger mit meinem lieben Papi
-unterwegs, trafen auf ‚Klaus, der 🎻Geiger‘.
+unterwegs, trafen auf ‚Klaus, der ?Geiger‘.
 ,, Wer ist das?“,,Das ist ein Gammler.“,,Ich
 will auch Gammler werden!“Patsch,
 bekam ich einen leichten Klapps, keiner
@@ -6059,68 +6508,70 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 78
+
 Datum 23. März 2021, 18:40
+
 78. teil, Schelmenroman von Georg Dickas,
 Jua-band-Bio, Der Steinzeit-Trip:
 
-Das DUB lassen wir selbst 🗽entscheiden, der
+Das DUB lassen wir selbst ?entscheiden, der
 Auto-Pilot hat seinen Willen durchgesetzt.
 ‚All wat se‘ tate, p…, suffe kaate.‘
 Besser als Skat spielen ist Ska spielen mit
 Jua.☀️ Oder nicht? OK, abwechselnd ist
-optimal. Im Garten 🌈Eden, nicht in der
-Steinzeit 💀waren wir zuletzt. Das DUB
-rauschte durch den dortigen 🗻Kratersee
+optimal. Im Garten ?Eden, nicht in der
+Steinzeit ?waren wir zuletzt. Das DUB
+rauschte durch den dortigen ?Kratersee
 grub, drillte sich im Seegrund ein und bohrt
-sich zur Zeit durch den🌐 Erdplaneten, ohne
+sich zur Zeit durch den? Erdplaneten, ohne
 daß wir uns einmischen. Mal sehen wo wir
 diesmal auftauchen. Bevor wir ins DUB
-stiegen und den Garten Eden verließen, 🚴
+stiegen und den Garten Eden verließen, ?
 sind wir dort mit unseren Fahrrädern, die
 noch aus dem Scheiß-Nazi-Fundus
 stammten, und seit unserer Übernahme am
 Viktoria-See, an Bord des DUB verblieben
 waren, durchs Paradies geradelt, auf der
-Suche nach dem Baum 🌳des Lebens. Jua
-hatte tags zuvor dem Baum 🌳der Erkenntnis
+Suche nach dem Baum ?des Lebens. Jua
+hatte tags zuvor dem Baum ?der Erkenntnis
 eine halbe Ewigkeit vorgespielt. Die Fahrrad-
-Tour dagegen war relativ kurz. Als 🚴
-Sterbliche, bis auf Fips 🐒 und den anderen
+Tour dagegen war relativ kurz. Als ?
+Sterbliche, bis auf Fips ? und den anderen
 sprechenden tierischen Begleitern, von
 denen wir das nicht genau wissen. Balu
 alias Mammut hat mindestens hundert
-tausend Jahre auf dem Puckel, bei Fips🐒
+tausend Jahre auf dem Puckel, bei Fips?
 der auf der Pyramide ein Gärtner war,
-sieht’s ähnlich aus. Ropterex, 🐉 als
+sieht’s ähnlich aus. Ropterex, ? als
 sprechender Flugsaurier hat locker 260
 Millionen Jahre drauf. Wir normal
 Sterbliche haben, wissendlich der Folgen,
-dem allwissenden Baum 🌲 weder
-Fragen gestellt noch von den🥭 Früchten
-gegessen. Der Paradies-Schlange 🐍hat Fips
-🐒 keinen apfelbißlang getraut, wir hätten,
+dem allwissenden Baum ? weder
+Fragen gestellt noch von den? Früchten
+gegessen. Der Paradies-Schlange ?hat Fips
+? keinen apfelbißlang getraut, wir hätten,
 da wir sterblich sind, zubeißen können,
 haben es uns aber auch verkniffen. Mit ihr
-zu kiffen🚬 nicht. Der Baum 🌳 des Lebens
+zu kiffen? nicht. Der Baum ? des Lebens
 zu finden war nicht schwer, er war nicht zu
 übersehen, den er war so lebendig, daß er
 uns herbei rief. Er, weil Er alles weiß, wußte
-deshalb auch, daß wir seine 🥭Früchte nicht
+deshalb auch, daß wir seine ?Früchte nicht
 anrühren würden, da wir jetzt das Paradies
-kennengelernt haben und wissen,🏞️🏜️🌴
-daß wir nach unserem Absterben eh‚🌴🌳
+kennengelernt haben und wissen,?️?️?
+daß wir nach unserem Absterben eh‚??
 hierher ins Paradies zu Ihm zurückkommen.
 Wer um das Erstaunliche weiß, der glaubt
 das erstaunlich schnell, glaub ich. Oder
-nicht? Die friedlichen singenden 🎼
-Säbelzahn- 🐯 Tiger hatten uns vorher
+nicht? Die friedlichen singenden ?
+Säbelzahn- ? Tiger hatten uns vorher
 schon so erstaunt, daß es echt keinen
 Zweifel mehr gab. Ein Garten Eden, das
 Paradies ist Fakt. Selbst unserJua-Don
 Kosaken-Chor war blaß verstummt, so
-schön bassig die Tiger klangen, bass 🎶
+schön bassig die Tiger klangen, bass ?
 erstaunt waren wir allemal.
-Oder nicht?🐯🐯
+Oder nicht???
 
 2021®©Georg Dickas✓Schorsch Tantekel®
 Blunot®Rec.BR4711CD.LP.CC.IMEI:EU.J.USA
@@ -6128,7 +6579,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 79
+
 Datum 23. März 2021, 19:01
+
 79.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-bio, Der Steinzeit-Trip:
 
@@ -6137,9 +6590,9 @@ die für Sterbliche tabu sind. Gottgleich und
 unsterblich zu werden, so die Heilige Schrift,
 also in Konkurrenz zum Einem, ist absolut
 ausgeschlossen und versperrt. Wenn von
-uns, bei unserer 🚴Radtour durch den Garten
+uns, bei unserer ?Radtour durch den Garten
 Eden, einer den Versuch gestartet hätte in
-eine jener Früchte 🥭zu beißen ,vielleicht in
+eine jener Früchte ?zu beißen ,vielleicht in
 geistiger Umnachtung, hätte auf Granit
 gebissen, weil wir doch erblich Sterbliche
 sind, so wie wir die☀️ Jua’s, die mit dem
@@ -6153,8 +6606,8 @@ nähern lassen. Eben mit Musik. Zurück auf
 Erden können wir zurecht dann behaupten,
 daß es eine der einfachsten Möglichkeiten
 ist, sich dem Göttlichen zu nähern, eben
-mit Hilfe der 🎸Musik. Beim Musizieren oder
-sich in🥁 Musik zu vertiefen, also ‚drin‘ zu
+mit Hilfe der ?Musik. Beim Musizieren oder
+sich in? Musik zu vertiefen, also ‚drin‘ zu
 sein ist eine einfache Art und Möglichkeit
 sich dem Göttlichen zu nähern. Das ♾️
 ‚Ich-bin‘ im ‚ich-bin-drin‘ wahrzunehmen,
@@ -6168,15 +6621,15 @@ Göttlichkeit, Gott genannt, bin ich also
 gekommen. Oder nicht? Ich habe es schon
 wieder getan, ich kann es nicht lassen,
 sorry, Leute!„Hälst du wieder ne‘ Predigt?“
-Christiane 🙋lästert, kann zurecht nicht ver-
+Christiane ?lästert, kann zurecht nicht ver-
 tragen wenn einer ‚missioniert‘. Lorenz war
 ein überzeugter Atheist. Atheismus ist
 eine, wie ich finde, voreilige Einstellung.
-Er will, wie🧹 Christiane, nichts hören was
+Er will, wie? Christiane, nichts hören was
 Glaubensangelegenheiten betrifft. Ich
 trotze stoisch und mache auch in
 Zukunft keinerlei Abstriche, auch wenn ich
-auf Ablehnung🛑 stoßen werde. Aber nur
+auf Ablehnung? stoßen werde. Aber nur
 noch wenn sich Zuhörerschaften freiwillig
 betören lassen wollen. Ich bekam für mich
 einen persönlichen handfesten Beweis, daß
@@ -6222,35 +6675,37 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 80
+
 Datum 23. März 2021, 21:48
+
 80.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Die Zeitreisenzuweisungsinstanz 🗽
+Die Zeitreisenzuweisungsinstanz ?
 unterbricht die Auto-Pilot-DUB-‚Dikta-Tour‘,
 die uns aus dem jua-Session-Sound-
 Impro-Gedudel entlässt, das DUB bricht
 durch in ein Meer, erreicht die
 Wasseroberfläche und stoppt die
 Maschine. Im Periskop sehen wir, daß wir
-an selber Stelle im Kratersee 🗻aufgetaucht
+an selber Stelle im Kratersee ?aufgetaucht
 sind, gestern bei der Abfahrt aus dem
 Garten Eden. Aber was soll das denn jetzt?
 Der Auto Pilot ließ sich ja nicht umschalten.
 Am Ufer stehend steht da ,das ist jetzt ein
-wenig seltsam der Baum 🌳des Lebens‘. Er
+wenig seltsam der Baum ?des Lebens‘. Er
 hat sich verwandelt, er ist sehr beweglich,
 rumms macht es donnernd, er steht direkt
 am DUB und packt es mit seinem
 mächtigen Geäst und stellt es senkrecht
 auf. Dabei fällt ihm eine Frucht ab.
-Ropterex 🐶 reflexartig sie schnappt. Aus!,
+Ropterex ? reflexartig sie schnappt. Aus!,
 Aus!!, Er frißt sie trotzdem. Es passiert was
 passieren muß, er würgt sie aus. „Leute,
 keine Panik.“Er beruhigt uns, und spricht
 gestochen scharf:„Das ist doch nur ein
-Gleichnis, was die zwei Bäum🌳 betraf.“
-„GENAU !“dröhnt der Baum🌲jua singt mit:
+Gleichnis, was die zwei Bäum? betraf.“
+„GENAU !“dröhnt der Baum?jua singt mit:
 „Atomkraftwerksuper ☢️GAU Alles aus mit
 einem Knall! Sonnensturm✓-Stromausfall,
 Pandemie, dickes Knie,
@@ -6280,22 +6735,24 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 81
+
 Datum 23. März 2021, 21:59
+
 81. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Steinzeit-Trip:
 
-Der erste Raketen-Start mit der DUB mit🚀
-Hilfe des Paradieses Lebensbaums, der🌳
+Der erste Raketen-Start mit der DUB mit?
+Hilfe des Paradieses Lebensbaums, der?
 das DUB aufgerichtet hat. Sein Geäst hält
 uns wie eine Startrampe in Position, Er ist
 sehr lebendig und unsterblich verliebt in
 Seine Schöpfung. Als Abschiedsgeschenk
-katapultiert Er das DUB 🚀extra für uns
+katapultiert Er das DUB ?extra für uns
 Eigenästlich, Eigenhändig ✋mit Schwung,
 Blitz⚡ und Donner Kraft hoch ins All, in
-Richtung Mars.⭐🐫 Camel-🌌
+Richtung Mars.⭐? Camel-?
 Baby erwähnt beiläufig, daß es eventuell
-Probleme gäbe ohne Schutz in die🌍
+Probleme gäbe ohne Schutz in die?
 Erdatmosphäre einzudringen.„Es wird
 heiß werden.“ Überhaupt kein Vertrauen
 hat sie in das DUB. Gelandet sind wir
@@ -6304,28 +6761,28 @@ garantiert im Blick, oder nicht? „Meinst du.“
 Kaakai ist breit aber zuversichtlich und
 bereit:„Leute wir sind schon gelandet.“
 Seht mal durch das Periskop. In nur zehn
-Sekunden später, nach dem göttlichen☄️🎇
+Sekunden später, nach dem göttlichen☄️?
 Wurf, schwimmt das DUB vor Floridas
-Küste an der der Bermudasee 🏖️
+Küste an der der Bermudasee ?️
 zugewandten Seite im Meer. Definitiv
 nicht auf dem Mars.„Von da sind wir
-gekommen.“ Wirft Ropterex 🐶🐦ein.
-„Schätze du hast Recht.“Fips 🐒 klärt uns
+gekommen.“ Wirft Ropterex ??ein.
+„Schätze du hast Recht.“Fips ? klärt uns
 auf:„Der Garten Eden ist auf dem Mars,
 der alten Heimat, das die technisch
 versierten Marsianer vor drei x sieben x
 sieben x sieben x siebenundsiebzich
 Jahrhunderten, vor mehr als einer
-Millionen Jahre verließen, um sich 🌍
+Millionen Jahre verließen, um sich ?
 hier auf die Erde zu retten. Eine Millionen
 Jahre in zehn Sekunden, das war definitiv
-ein Zeitsprung, glaub ich.“Kiekst Fips.🐵
+ein Zeitsprung, glaub ich.“Kiekst Fips.?
 „Meinst du?“Kaakai startet das DUB in
 senkrechter Richtung nach unten in
 Richtung Erdkern. Kurz später zieht er
-hoch und kommt in Donald’s 🏊
+hoch und kommt in Donald’s ?
 Swimmingpool auf.„Lust auf ne‘ Runde
-Golfspielen?“Werden wir begrüßt von 🏌️
+Golfspielen?“Werden wir begrüßt von ?️
 ihm mit:„YourNaziolddirtymotherfxxers ,
 I fuxxx your with my Trumpspecial !“
 Bedeutet bei ihm: Herzlich willkommen,
@@ -6333,19 +6790,19 @@ spiele gerne ne‘ Runde mit euch. Das
 muß man halt wissen. Haben wir nicht,
 außerdem haben wir hier wegen der hier
 wütenden Pandemie keinen Bock auf
-Golfspielen, oder? Sonja gefällt🏞️
+Golfspielen, oder? Sonja gefällt?️
 der wunderschöne Rasenplatz und
 Donalds liebenswürdige Art ihr eine
 gefüllte herrlich duftende Pfeife mit ✓
 feinstem Jamaika-Grass anzubieten
 und ihr rüberzureichen. Das finde ich
 auch und schnapp Sonja die Pfeife vor der
-Nase ✓👃weg. Die schlägt, ich duck mich
-geschwind, Donald 💥vor die Fresse. Jetzt
+Nase ✓?weg. Die schlägt, ich duck mich
+geschwind, Donald ?vor die Fresse. Jetzt
 wird er richtig spitz, und kniet sich vor ihr
-hin und will… Patsch💥, sie fackelt nicht
+hin und will… Patsch?, sie fackelt nicht
 lange, und er macht ihr auf seine Art einen
-Antrag:👈🦅🙏,,want you fxxx me Bitxx?“
+Antrag:???,,want you fxxx me Bitxx?“
 
 2021®©Georg Dickas✓Schorsch Tantekel®
 Blunot®Rec.BR4711CD.LP.CC.IMEI:EU.J.USA
@@ -6353,33 +6810,35 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 82
+
 Datum 23. März 2021, 22:06
+
 82. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Band, Der Steinzeit-Trip:
 
 Sonja ☀️bemerkt erst jetzt, daß es sich um
 jenen Donald handelt, einer ihrer Top-Hass-
-Ziel-Personen, mit denen sie absolut🏌️🐵
+Ziel-Personen, mit denen sie absolut?️?
 niemals zusammentreffen will, und tritt ihn
 nochmals tüchtig in den ⚡Hintern. Das hätte
 ich auch gerne getan. Wir machen uns
 vorsichtshalber aus dem Staub. Zu spät!,
 Die Leibwächter schießen bereits aus allen
 Rohren mit ihren abgesägten Schrotflinten
-aus allen Richtungen. Balu, alias Natty 🔫
-Dread Mammuta rast uns trompetend 🐘
+aus allen Richtungen. Balu, alias Natty ?
+Dread Mammuta rast uns trompetend ?
 entgegen, nicht ohne die Schießwütigen
 vorher zu jagen, die entsetzt alles liegen
 und stehen lassen und flitzen was sie
 können . Der schlaue Donald rettet sich,
 indem er sich hinter uns klemmt und sich
-nicht abschütteln lässt und mit ins DUB🚀
+nicht abschütteln lässt und mit ins DUB?
 einsteigt. Wir nutzen das schamlos aus,
 daß er uns kiloweise wirkstoffhaltiges
 jamaikanisches Unkraut überlassen will,
-und er bringt uns tatsächlich einen 🌴💰
+und er bringt uns tatsächlich einen ??
 wunderschön bestickten Baumwollsack,
-den er aus seinem Golfcaddy 🏌️
+den er aus seinem Golfcaddy ?️
 herauszaubert, nicht ohne Charme von
 der Güte und Großartigkeit seines ‚Krauts
 for Krauts‘ zu schwärmen, mit an Bord:
@@ -6387,13 +6846,13 @@ for Krauts‘ zu schwärmen, mit an Bord:
 „I’m a Nazi, Schatzi,“ Und„l don’t want
 to fxxxk your Nazi Krauts, but you, my
 long tall blond-germ-girl, take me within
-too, in your Zoo !🐂🐗🐎🐁🐘🦅🐯🙈
+too, in your Zoo !????????
 „Der kommt nicht mit!“ Ich greife mir den
-🌈Sack, den Sonja dem Ex-Pres um die 👂
-Ohren schlagen will und Gummi 🐻 brüllt
+?Sack, den Sonja dem Ex-Pres um die ?
+Ohren schlagen will und Gummi ? brüllt
 Donald an:„RAUS ,Get off the DUB !“
 „Great, Grizzly, l’llmake you great again,
-Grizzly 🐻.“🐘 Mammuta brummt :„Get off
+Grizzly ?.“? Mammuta brummt :„Get off
 the bord! You little shitty person.“
 „Everything l’llmake great again, but you
 are so fxxxkng great, Jumbo Dread,
@@ -6409,12 +6868,12 @@ you greata Van Fleed, again.“Donald
 lässt sich nicht abschütteln, irgendwie
 ist er doch noch an Bord geflutscht. Unser
 russischer Ex-Zwangsarbeiter-
-Gefangenen-Chor🎶 ist begeistert:„Er ist
+Gefangenen-Chor? ist begeistert:„Er ist
 jetzt unser Spülhelfer in der Bordkajüte.“
 Hey my russian friends, I‘ ll make your
 great again.“„Oh‘, Potatoes, l’ll make your
 fxxxxng potatoes great again, peel and
-cook you great again.“Oder nicht?🛸✓
+cook you great again.“Oder nicht??✓
 
 2021®©Georg Dickas✓Schorsch Tantekel®
 Blunot®Rec.BR4711CD.LP.CC.IMEI:EU.J.USA
@@ -6422,20 +6881,22 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 83
+
 Datum 23. März 2021, 22:15
+
 83. TEIL, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip.:
 
-Donald nervt alle mit seinem Wahn. Wir 🏌️
+Donald nervt alle mit seinem Wahn. Wir ?️
 werden ihn abgeben müssen. Seine Y.M.C.A.
-Vorliebe in allen Ehren, wir wollen doch 🎶
-keine Reggae✓-Verwurster-Combo 🎼
-werden. Der nächste Stopp gilt der 🛸
-internationalen Raumstation, die gerade 🚅
+Vorliebe in allen Ehren, wir wollen doch ?
+keine Reggae✓-Verwurster-Combo ?
+werden. Der nächste Stopp gilt der ?
+internationalen Raumstation, die gerade ?
 von einer russischen Cosmonauten-Brigade
 besucht wird, wir haben den 21.2.‚21. Ein
 Leck muß repariert werden, es war höchste
-Zeit gewesen. Sie haben den nötigen 🚀
+Zeit gewesen. Sie haben den nötigen ?
 Sauerstoff mitgebracht. Das Andock-
 manöver klappt. Deren Insassen haben
 zwar einen kleinen Schock bekommen,
@@ -6448,7 +6909,7 @@ Den zweiten richtig schlimmen Schock
 haben sie jetzt hinnehmen müssen mit dem
 leider schwer, leider richtig schwer schlimm
 kranken, manisch schlimm, unzumutbaren
-🏌️🦅📢🔫🦸🐂, den wir ihnen auf’s Auge
+?️?????, den wir ihnen auf’s Auge
 gedrückt haben. Oder nicht?
 
 2021®©Georg Dickas✓Schorsch Tantekel®
@@ -6457,16 +6918,18 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 84
+
 Datum 23. März 2021, 22:27
+
 84. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Wir machen es kurz, wir bleiben im DUB,🏌️
+Wir machen es kurz, wir bleiben im DUB,?️
 Donald bleibt in der ISS zurück, Kai startet
-das Abkoppelmanöver, zündet den🎇🌀
+das Abkoppelmanöver, zündet den??
 Teilchenbeschleuniger-Antigravitations-
-Antrieb und geschafft. Wir sind ihn🦅🏌️
-endlich losgeworden. Das DUB versinkt🚀
+Antrieb und geschafft. Wir sind ihn??️
+endlich losgeworden. Das DUB versinkt?
 in den Weiten des Alls. Das DUB reitet auf
 einer Gravitations-Welle mit Über-☄️
 Lichtgeschwindigkeit-Tempo, gleich
@@ -6476,13 +6939,13 @@ früher als vorhin, zurückversetzt sein. Der
 blaue Planet nähert sich. Es ist eindeutig
 unsere Erde. Die Zeitreise dauerte
 vierzig Minuten. Das DUB umkreist
-mehrfach die 🌍Erde, bevor es an der
+mehrfach die ?Erde, bevor es an der
 einzigen Stelle, an der künstliches Licht
 erkennbar ist, runter zieht.
 Es verschlägt uns den Atem: Eine Hoch-
 kulturauf einer Fläche, vielleicht so groß
 wie Italien. Nur da, außerhalb gibt es
-anscheinend nur unkultivierte 🏞️ Natur.
+anscheinend nur unkultivierte ?️ Natur.
 Das DUB stellt sich vollautomatisch
 auf seinen wohl
 zugewiesenen Platz senkrecht auf. Wir
@@ -6492,7 +6955,7 @@ sitzend. Sie landen, besser gesagt
 docken an Balkone an, und steigen aus,
 betreten wohl ihre Wohnung.„Luft-Taxen?“
 „Meinst du“„sieht so aus.“ Kai zählt acht
-Stockwerke pro Haus.🌁
+Stockwerke pro Haus.?
 Freiflächen gibt es nicht. Es ist komplett
 bebaut. Unten wo man Straßen, Autos,
 Fußgänger, Radfahrer erwartet ist nichts.
@@ -6506,19 +6969,19 @@ einer ausgefahrenen Plattform der
 Ausstiegsluke des DUB’s. Es ist, obschon
 es nur so wimmelt von selbstfliegenden-
 sich selbststeuernden Sessel-Scheiben,
-🛸ausgesprochen leise.
+?ausgesprochen leise.
 Sie haben eine hochentwickelte
 Antigravitationstechnik und dazu eine
 enormhoch entwickelte Sozialstruktur,
 die scharf sich abzugrenzen scheint, von
-der unberührten🏞️ Natur außerhalb dieser
+der unberührten?️ Natur außerhalb dieser
 Fläche. Außer Vogelgezwitscher hören wir
 kaum was. Kein Flugzeug, Auto, Industrie,
 Motor, oder irgend sonst ein Lärm. Kein
 Gestank, Stadtmief, Abgase, Industrie, Öl,
 Müll-Grüche. Nichts was unangenehm
 nerven könnte. Christiane ist begeistert,
-kann 🦜🐦🐥🦆🦃🦚verschiedene
+kann ??????verschiedene
 Singvögel erkennen.„Schallschutz ist hier
 Gesetz oder was? Das ist beispielhaft
 gut hier. Und das vor einer Millionen
@@ -6530,14 +6993,14 @@ verloren gegangen, untergegangen? So eine
 beispielhafte Hochkultur.“Fragt sie uns.
 „Da kommt die Antwort.“ Lennart geht ein paar
 Schritte zurück und lässt die
-Begrüßungssessel-Dame? 👩‍✈️Chefin,
+Begrüßungssessel-Dame? ?‍✈️Chefin,
 Generälin, Kommandöse, sie steht kurz
 auf, setzt sich wieder und hält uns einen
 Geigerzähler entgegen. Ihre Sprache ist
 ruhig singend und klingt italienisch, ist
 aber fremd. Unser
 Sigi, das Übersetzungsprogramm, zeigt
-das an. Sonja🙋 zeigt ihr mit Gebärden an,
+das an. Sonja? zeigt ihr mit Gebärden an,
 Sie möge einfach nur reden. Sie versteht,
 gibt uns aber zu verstehen, daß wir reden sollen, da sie auch einen kleinen
 Übersetzungs-Apparillo in derHand hält.
@@ -6547,19 +7010,19 @@ unsere Sprache dechiffriert. Eine
 gigantische Leistung ist das. Ein enorm
 hohes Niveau besitzt deren
 I.T. Technik. Wir staunen. Sie erzählt
-uns, daß nach der großen🎇
+uns, daß nach der großen?
 Atom-Super-Gau-Katastrophe, ☢️aus
 wenigenhundert Überlebenden, vor
 knapp 900 Jahren, hier die 37 Milliarden-
 City entstanden ist, die
 autark sich selbst erhaltend, nur an dieser
 Stelle hier existiert und seit dieser Zeit die
-Natur, dort außerhalb der Megacity,🌁
+Natur, dort außerhalb der Megacity,?
 in Ruhe lässt, und daß sie abwarten
 müssen, bis die verstrahlte☢️ Natur sich
 erholen kann, was noch hunderte Jahre
 dauern kann. Es ist aber für sie jetzt schon
-möglich, mit ihren fliegenden🛸
+möglich, mit ihren fliegenden?
 Glaskuppeln, in denen sie sicher und
 bequem sitzen, die City zu verlassen und
 von oben, fliegend also, die Natur zu
@@ -6573,7 +7036,7 @@ verbrannt, unbewohnbar bleiben.
 „Irgendwann vielleicht, in fernerZukunft,
 werden wir zurückkehren können. Auch da
 kam es durch Kriege zum ☢️Supergau. Dann
-auf die Erde 🌐 ausgewandert, setzten sich
+auf die Erde ? ausgewandert, setzten sich
 abermals Nazi-Diktaturen durch, diese im
 Grunde deshalb weil man Grund und
 Bodenbesitz zuließ, was hier jetzt tabu ist.
@@ -6597,7 +7060,7 @@ lässt.“Kaakai hat Lunte gerochen und wird
 jetzt richtig deutlich:„LOS JETZT! Alle rein,
 Tür zu !“ Er versäumt keine Sekunde und
 flitzt zur Pilotenkanzel, das DUB macht
-sich vom Acker und donnert 🚀in den Orbit.
+sich vom Acker und donnert ?in den Orbit.
 Das war knapp, oder nicht?
 
 2021®©Georg Dickas✓Schorsch Tantekel®
@@ -6606,7 +7069,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 85
+
 Datum 23. März 2021, 22:36
+
 85.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -6615,7 +7080,7 @@ in der Vergangenheit einzuwirken wenn wir
 aus der Zukunft kommen. Besonders dann,
 wenn es sich um eine Millionen Jahre
 handelt. Tatsache ist, daß sie technisch
-weiter als wir sind, was🛸fliegende
+weiter als wir sind, was?fliegende
 Antigravitations-Flugteile, diese-Mini-
 Sessel-Flug-Taxis betrifft, andererseits
 haben wir Techniken drauf, die sie bisdahin
@@ -6641,7 +7106,7 @@ Die kommen aber auch nicht weiter als die
 Nazis damals. Die Scheiß-Nazis haben
 jene Außerirdischen wahrscheinlich
 totgefoltert. So die Legenden, die mit
-Vorsicht zu genießen sind, 🛸 die
+Vorsicht zu genießen sind, ? die
 immer wieder mal kursieren. Aber die
 Nazis, das grauenhafte real existierende
 Unheil, das hemmungslos sich ausbreitet,
@@ -6679,19 +7144,19 @@ vorbildhaften positiven Einstellung eines
 respektvollen Umgangs mit der Natur, der
 göttlichen Schöpfung, unseres Lebens-
 Fundaments. Das hat unser JUA-DUB-Zeit-
-Reise in die Zukunft im Auftrag der 🚀🦸
+Reise in die Zukunft im Auftrag der ??
 Zeitreisenzuweisungsinstanz bewiesen.
-Das 💀Mullah-Regime, 🔫der IS, die Staaten
+Das ?Mullah-Regime, ?der IS, die Staaten
 die Atomwaffen ☢️besitzen, sind die echt
 schlimm schwer lodernd brandgefährliche
 Bedrohung der Existenz der Menschheit, in
-der Zeit vor dem Ausbruch der ersten 🌋
-schwer schlimmen Folgen des 🌊🌀🌡️
+der Zeit vor dem Ausbruch der ersten ?
+schwer schlimmen Folgen des ???️
 kommenden Klimawandels: der richtig
 schwer schlimm alles hinweg fetztenden
-Monsterstürmen, die Kernkraftwerke 🌪️
+Monsterstürmen, die Kernkraftwerke ?️
 wegpusten werden können. Das will sich
-keiner vorstellen wollen, sollten🙈🙉🙊
+keiner vorstellen wollen, sollten???
 wir aber„Dann wären wir in dieser 50
 Milliarden-Einwohner-Mega-City doch
 besser da geblieben. Fortflanzung wäre
@@ -6706,7 +7171,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 86
+
 Datum 23. März 2021, 22:40
+
 86. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -6717,8 +7184,8 @@ wurde. Alles wiederholt sich. Leider. Der
 eine Tonne schwere Mars-Rower findet
 das schon bald heraus. Das Klima heute
 auf der Erde ist im Wandel. Bald kommen
-die ersten Monster-🌪️Stürme. Die ersten
-AKWes🔥☢️ werden weggepustet werden.
+die ersten Monster-?️Stürme. Die ersten
+AKWes?☢️ werden weggepustet werden.
 Dann geht alles ganz schnell
 ans Eingemachte. Riesige unbewohnbare
 Zonen, das gewohnte Leben oben unter
@@ -6754,7 +7221,7 @@ ordnung gegenüber der Ur-Natur, die dann
 das neue Klima einpegeln wird. Dieses
 Zenario gilt es nachhaltig zu verhindern,
 bevor es keine Verhinderungsmöglichkeit
-mehr gibt.🌄 Jua hilft dabei diesen
+mehr gibt.? Jua hilft dabei diesen
 Sachverhalt zu vermitteln. Die erste
 wichtige Addresse sind Kinderohren,
 dann die Jugend, die Schullehrerinnen,
@@ -6786,9 +7253,9 @@ kommt beispielsweise im Krankenhaus vor
 einer Operation. Bequemlichkeit stramm
 ablehnen, überwinden und mal richtig Gas-
 geben in Sachen Erneuerung:
-Singen, Sport, Wandern, 🎸 Gitarre spielen,
+Singen, Sport, Wandern, ? Gitarre spielen,
 Lesen, Noten lernen, Klavier-Unterricht,
-🥊Boxen, Skaten, Schreiben, Dichten, Foto-
+?Boxen, Skaten, Schreiben, Dichten, Foto-
 graphieren, Schwimmen, Tanzen, Studieren,
 Verlieben, nicht zu planen, sondern das
 was anliegt machen, dran bleiben, weiter
@@ -6798,7 +7265,7 @@ lassen, es lieben, sich hingeben, das sich
 Hingeben zulassen, sich darauf einlassen,
 sich reinhängen, reinsetzten. Sich
 einsetzten, helfen, kehren, einkehren,
-aufräumen, zuhören, 💏 küssen, lieben,
+aufräumen, zuhören, ? küssen, lieben,
 Lieben lieben.
 Oder nicht?
 
@@ -6816,18 +7283,20 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 87
+
 Datum 23. März 2021, 22:46
+
 87. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Der fluchtartige Abgang klappt, die Gravitat-
 tionswelle reißt uns mit. Zweimal verdoppelt
 sich die Amplitude,so schnell waren wir
-noch nie. 🐫 Camel-Baby, Ropterex 🐶🐦🐒
-🐘 Balu, Fips kristallisieren, zerstäuben,
+noch nie. ? Camel-Baby, Ropterex ???
+? Balu, Fips kristallisieren, zerstäuben,
 werden zu Möbius-Achten, zu
 Brummkreiseln, alles nacheinander, in
-dieser Reihenfolge nur Gummi 🐻 und
+dieser Reihenfolge nur Gummi ? und
 Jua, der Chor und alle anderen nicht,
 sobald wir uns jedoch bewegen
 verändern wir uns drastisch, ohne es zu
@@ -6835,10 +7304,10 @@ spüren, Lorenz schwimmt flüssigwerdend
 sich selbst in quecksilbrigen Wellen
 verwandelnd, als er einen Schritt zu
 Mammuta geht. Christiane wird von ihrer
-🎺 Trompete, als sie diese greift vergoldet
+? Trompete, als sie diese greift vergoldet
 und zerfließt auf dem DUB-Flurboden,
 steigt, schwebt, und goldfolienartig
-umwickelt sie Quesigas Ballon🎈-artigen
+umwickelt sie Quesigas Ballon?-artigen
 Kopf, den er gerade von der Liege, auf der
 er liegt, beim Aufstehen hochreckt, zu
 einem Turban. Ich muß lachen,
@@ -6849,7 +7318,7 @@ etwas wackelpuddinglich-zittriger und
 leicht plastisch verzerrt
 aus sich aussteigend aussehend. Kaakai’s
 Temporeglerknauf ist in seiner fabelhaften
-Verschmelzung Teil seiner Faust 👊
+Verschmelzung Teil seiner Faust ?
 geworden. Er drückt durch und mit
 unglaublich lauten Stakkato-Geknatter
 durchbricht das DUB die Urknall-Grenze
@@ -6879,7 +7348,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 88
+
 Datum 23. März 2021, 22:53
+
 88.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Steinzeit-Trip:
 
@@ -6891,19 +7362,19 @@ Einheit mitströmen sahen, in der ewigen
 Gleichzeitigkeitszone, wie im Möbiusband
 mit eingeschleift, rast das DUB, in dem wir
 uns gleichzeitig ja auch befanden, aus dem
-Urknallgrenzübergangsbereich von dem🌀
+Urknallgrenzübergangsbereich von dem?
 nicht-stofflichen Bereich zum stofflichen,
 uns bekannten Bereich des Multiversums,
 in unser Weltall. Wo dieser Übergang war,
 wo und wann wir durschgeknallt sind, im
-wahrsten Sinne des Wortes, kann nur🦅
+wahrsten Sinne des Wortes, kann nur?
 einer erklären: Unser Physiker, der Kai, alias
-Kaakai. Er erklärt es sinnbildlich:🍾
+Kaakai. Er erklärt es sinnbildlich:?
 Er läßt eine Sektpulle knallen, Prost,
 Kaakai, zum Wohl, ein dreifach;
 jua, jua, afrijua!
 Wahrscheinlich war´s unsere weise
-Zeitreisenzuweisungsinstanz. 🎇
+Zeitreisenzuweisungsinstanz. ?
 Oder nicht?
 
 2021®©Georg Dickas✓Schorsch Tantekel®
@@ -6912,7 +7383,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 89
+
 Datum 23. März 2021, 22:57
+
 89.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 Die Reise nach Vesta, Teil 1:
@@ -6947,7 +7420,7 @@ den Orbit und erreicht Vesta, den 500 Km
 Durchmesser Asteorid in Punktlandung.
 Das Dub bohrt sich ein in den Zwergplanet.
 Er ist hohl, das war nach knapp sechzig
-Kilometern Einbohren, klar. Kai 🚬hatte es wie
+Kilometern Einbohren, klar. Kai ?hatte es wie
 immer geahnt und drosselte schon lange
 vor dem Durchbruch das Tempo. Stunden
 lang Meter für Meter schleicht er bohrend
@@ -6989,12 +7462,14 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 90
+
 Datum 23. März 2021, 23:04
+
 90.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 Die Reise nach Vesta, Teil 2:
 
-Kaakai macht die dritte 💀Pulle auf und
+Kaakai macht die dritte ?Pulle auf und
 wartet auf eine Antwort aus seinem
 zuverlässigen Unbewußtem:„ Die klare
 Flüssigkeit ist kein Wasser, aber was dann?
@@ -7010,7 +7485,7 @@ Angriff ist die beste Verteidigung.„Brummt
 Kaakai und läst die Drill-Fräs-Motoren
 anlaufen, so leise es geht. Wir treiben auf
 Das Monster-Bauteil zu und uns wird ganz
-anders, als sich alles ultramarin verfärbt 🌀
+anders, als sich alles ultramarin verfärbt ?
 und wir blind im blauen Nebel stecken. Der
 Tintenfischtrick verrät uns daß da was
 reagiert und plötzlich werden wir
@@ -7023,14 +7498,14 @@ es sind Morsezeichen, die bedeuten:
 Parole? Kaakai’s Antwort morsend:„Nazis
 töten!“ Die antworten mit:„Herzlich ❤️
 willkommen.“ Eine Falle? Auf dem Monitor
-erscheint Neptun, oder ein Bild auf dem 🧜
+erscheint Neptun, oder ein Bild auf dem ?
 wir solchen meinen erkennen zu glauben,
 da er eine Schwimm-Schwanz-Flosse
 anstatt Beine hat. „Das ist ein Fake-Bild!“
 Warnt Nik.„Meinst du? Wir haben keine
 Wahl; wir müssen raus und vorsichtig
 auskundschafften. Lasst uns erstmal
-abwarten bis wir klare Sicht in dieser 🌀
+abwarten bis wir klare Sicht in dieser ?
 blauen Brühe haben.“Kaakai macht auf
 cool‘. Leider werden wir jetzt angebohrt,
 wie es sich anhört.„Das können die lange
@@ -7055,7 +7530,7 @@ schiebt. Wir tauchen durch die etwas zähe
 Flüssigkeit und sehen schließlich in ein
 Fenster eine bizarre Fisch-Menschen-
 Gruppe. Einer in der Geschichte der
-Evolution übersehene Fischart?,🧜
+Evolution übersehene Fischart?,?
 Menschenart? eine gezüchtete Art eines
 vergessenen Menschgeschlechts?
 Eine Hochkultur, technologisch versiert
@@ -7080,7 +7555,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 91
+
 Datum 23. März 2021, 23:08
+
 91.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip:
 Die Reise nach Vesta, Teil 3 :
@@ -7132,16 +7609,16 @@ IM SCHELMENROMAN ETWAS REALES:
 
 DIE NAZIPOSSE IM III REICH IN KÖLN
 DER DENUNZIATIONS-WURFZETTEL
-DER INS FEUER KAM : 🔥
+DER INS FEUER KAM : ?
+Es gab eine Anzeigepflicht, eine ´Denunzierungsverordnungˋ, um Anders- Denkende, wie Faulenzer, Arbeitslose Querulanten, Kommunisten, Künstler aus dem Verkehr zu ziehen, so geschehen in der Kölner Nazi-Zeit. In alle Kölner Haushalte wurde ein Wurfzetteln in die Postkästen eingeworfen, der fertig ausgefüllt abgegeben werden mußte, mit eben diesen Fragestellungen. Das Ergebnis war unbrauchbar und ist sackweise ins Feuer geschmissen worden, weil die Bevölkerung aus? Angst vor Ärger nichts angeben zu können, irgendeinen Nachbarn, meist den direkten nebenan, denunzierten, auf jenem Ankreuz- Zettel, mit genau diesen Fragen. Das fiel der Kölner SA auf und sie verbrannten alles, da es sich deswegen als unbrauchbar erwies. Das ist amtlich, und keine Legende. ?
 
-Es gab eine Anzeigepflicht, eine ´Denunzierungsverordnungˋ, um Anders- Denkende, wie Faulenzer, Arbeitslose Querulanten, Kommunisten, Künstler aus dem Verkehr zu ziehen, so geschehen in der Kölner Nazi-Zeit. In alle Kölner Haushalte wurde ein Wurfzetteln in die Postkästen eingeworfen, der fertig ausgefüllt abgegeben werden mußte, mit eben diesen Fragestellungen. Das Ergebnis war unbrauchbar und ist sackweise ins Feuer geschmissen worden, weil die Bevölkerung aus🔥 Angst vor Ärger nichts angeben zu können, irgendeinen Nachbarn, meist den direkten nebenan, denunzierten, auf jenem Ankreuz- Zettel, mit genau diesen Fragen. Das fiel der Kölner SA auf und sie verbrannten alles, da es sich deswegen als unbrauchbar erwies. Das ist amtlich, und keine Legende. 🔥
 WEITER IM SCHELMENROMAN:
 
 2021®©Georg Dickas✓Schorsch Tantekel®
 Blunot®Rec.BR4711CDLPCC.IMEI:EU.J.USA
 Made in Germany✓Cosmische Kalkurier®✓
-
 Kapitel 92
+
 92.Teil, Schelmenroman von Georg Dickas
 Jua-Band-Bio, Steinzeit-Trip, aus dem
 Die Reise nach Vesta, 4.Teil:
@@ -7262,9 +7739,9 @@ den Asteoriden in Schlepptau nehmen.
 Die äußerst geringe Gravitation Vestas
 erlaubt sowohl das Abschleppmanöver,
 als auch die Mitnahme der unglaublich
-riesigen Masse dieser transparenten🐙
+riesigen Masse dieser transparenten?
 ‚Quallen’Innen-Bentonitartigen-Flüssig
-keit. Wie eine Made im 🥓 Speck lassen
+keit. Wie eine Made im ? Speck lassen
 wir uns unbeteiligt auf die Reise ein. Das
 haut uns um. Wo wollen die mit Vesta hin,
 und wer steuert? Wir sollten die Brücke
@@ -7296,7 +7773,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 93
+
 Datum 23. März 2021, 23:25
+
 93. Teil, Schelmenroman von Georg Dickas
 Jua-Band-Bio, Der Steinzeit-Trip,
 Reise nach Vesta, Teil 5:
@@ -7310,7 +7789,7 @@ durch ihn ins Freie knapp über Vestas
 Oberfläche in das kalte All hinaus.
 Im Moment des Austretens zündet er
 nicht eine Sekunde zu spät, den Antrieb
-des DUB’s und rast in Vestas Orbit.🚀
+des DUB’s und rast in Vestas Orbit.?
 Die abertausenden ultra stabilen im
 Vesta Grund☄️ fest verankerten c.a. 20
 Kilometer langen Seile straffen sich
@@ -7324,8 +7803,8 @@ angesichts der
 grandiosen Demonstration ihrer
 Kräfte und Hightech-Kenntisse. Vesta hat
 die c.a.50 millionenfache Masse des
-Raumkreuzers. 🛸Er hängt jetzt wie ein
-🌒 Satellit an Vesta. Plötzlich löst sich
+Raumkreuzers. ?Er hängt jetzt wie ein
+? Satellit an Vesta. Plötzlich löst sich
 ein riesig großer Teil der Oberfläche
 Vestas und hängt an den ‚Tentakeln‘ der
 Qualle, dem Raumkreuzer also, wie wir
@@ -7351,21 +7830,21 @@ eine so enorme Zugkraft entwickelt,daß
 der Asteroid tatsächlich ganz langsam
 gezogen werden kann. Alles vor unseren
 erstaunten Blicken. Kai fällt die Kippe
-aus dem Mund. 🚬Als diplomierten🔔
+aus dem Mund. ?Als diplomierten?
 Physiker klingeln bei ihm die Alarmglocken.
 Was haben die vor? Er errechnet in welcher,
 bei zunächst sehr geringen Beschleunigung
 es dauern würde, bis er aus der Bahn
 zwischen Mars und Jupiter ausbrechen
 könnte, sich dann nochmals extrem
-beschleunigen wird und dann eventuell🌍
+beschleunigen wird und dann eventuell?
 auf die Erde, oder unseren Erdtrabanten
-treffen kann. Daß das überhaupt🌙
+treffen kann. Daß das überhaupt?
 möglich ist, und wie lang das dauert,
 berechnet er.
 Kakai stellt singe Fläsch wäch und kotzt.
 „Dad Teil möd ich afschiesse, ewer janz
-flöck.“ Gesagt, getan💥. Das war echt
+flöck.“ Gesagt, getan?. Das war echt
 knapp, oder nicht?✓
 
 2021®©Georg Dickas✓Schorsch Tantekel®
@@ -7374,7 +7853,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 94
+
 Datum 23. März 2021, 23:32
+
 94. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip,
 Die Reise nach Vesta,Teil 6:
@@ -7394,7 +7875,7 @@ rasiere mir erst mal meinen Zehnjahres-
 Bart. Das war ein Scherz. Na, ja, es ist
 ja schon eine große Ehre dabei zu sein,
 bei jua und bei John, Schatten-Welt-
-Präsident-🗽Lennon’s, geheimer
+Präsident-?Lennon’s, geheimer
 interstellaren
 Zeitreisenzuweisungsinstanz, und mit
 dem DUB unterwegs zu sein, die Welt
@@ -7446,7 +7927,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 95
+
 Datum 23. März 2021, 23:38
+
 95. Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip,
 Persönliche Chronik, Teil1:
@@ -7499,7 +7982,7 @@ Nazi-Zeit und über unsere Familie,
 und über mich erfahren konnte, was ich
 von Muttern nicht erfahren hätte können.
 August hielt seinen Kumpels drei Bücher
-vor die 👃 Nas: Hitlers ‚Mein Kampf‘,
+vor die ? Nas: Hitlers ‚Mein Kampf‘,
 Karl Marx, ‚das Kapital‘ und die ‚Bibel‘.
 Das Ergebnis war, daß alle vorgaben, daß
 sie jetzt dringend etwas zu erledigen
@@ -7564,7 +8047,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 96
+
 Datum 23. März 2021, 23:42
+
 96.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip,
 Die Reise nach Vesta, 7. Teil:
@@ -7604,7 +8089,7 @@ Außerdem ist sie der Treibstoff dieser Nazi-
 Bombe, cosmischen Ausmaßes. Falls Vesta
 nur den Mond treffen würde, könnte dieser
 aus der Bahn geraten, und auf die Erde
-fallen. Oder nicht?🌕
+fallen. Oder nicht??
 Der wahsinnige Größenwahn eines Irren.
 Um das zu verhindern gilt jetzt für uns:Nicht
 nervös werden und nicht schludern. Kai
@@ -7617,13 +8102,13 @@ Moment kein Wylan und dreht sich erst
 mal neˋKippe. Die Zeit vergeht, und einige
 Pullen leeren sich. Leider fällt eine um, und
 ergießt sich über die Tastatur. Schlimmer
-noch, seine Kippe 🚬kommt in Berührung
+noch, seine Kippe ?kommt in Berührung
 mitdem teuflichen Flüssigkeitsrest der auf
-seiner Jacke klebt und explodiert,💥 so
+seiner Jacke klebt und explodiert,? so
 daß er vom Hocker fällt. Er hat jetzt genug
 und hat überhaupt kein Bock mehr für
 irgendwas. Jetzt muß er schlafen, ich auch.
-Oder nicht?🛌
+Oder nicht??
 
 2021®©Georg Dickas✓Schorsch Tantekel®
 Blunot®zuRec.BR4711CD.LP.CC.IMEI:EU.J.USA
@@ -7631,13 +8116,15 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 97
+
 Datum 23. März 2021, 23:45
+
 97.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip,
 Die Reise nach Vesta, Teil 8:
 
 Nur keine Panik, Kaakai hat sich bei der
-Explosion 💥nicht verletzt. Wir haben
+Explosion ?nicht verletzt. Wir haben
 die Tastatur trocknen lassen. Zwei Tage
 lang, in denen Jua endlos feierten,
 während Kai und Igor und Bo
@@ -7659,7 +8146,7 @@ in die Köpfe zieht und offenbart. Dann
 fix zur Aufnahme ins Studio und….
 ,„weiterträumen!“
 Unterbricht mich Christiane:„Und dann
-kommen die 💰💸Moneten-,
+kommen die ??Moneten-,
 Knete-, Zaster-und Kohle-Säcke
 angekrochen und managen uns auf dem
 ´Highway to Hell Kursˋ auf unsere letzte
@@ -7673,7 +8160,9 @@ Made in Germany✓Cosmische Kalkurier®✓
 
 Autor Schorsch Tantekel
 Kapitel 98
+
 Datum 23. März 2021, 23:49
+
 98.Teil, Schelmenroman Von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip
 Die Reise nach Vesta 9.Teil:
@@ -7690,7 +8179,7 @@ Experten auf dem Gebiet, vorsichtig aus
 der Qualle, dem
 Gigant-Raumkreuzer heraus ins Weltall,
 und überlassen dem Autopilot die
-Qualle.🐙
+Qualle.?
 Die wird ´Nazturn´, den Saturnmond in
 Zukunft Nazi-frei machen. Mal sehen
 wohin uns die weise, aber uns immer
@@ -7705,7 +8194,7 @@ lag unter dem Brückenkopf der alten
 Deutzer Brücke auf der rechten
 Rheinseite. Angebaut war dort die zu jener
 Zeit schon kurz vorher von den Nazis
-zerstörten jüdischen 🕎Synagoge. Heute
+zerstörten jüdischen ?Synagoge. Heute
 total vergessen.Keinerlei hinweis darauf
 an der 1982 erweiterten
 Deutzer-Brücke. Dabei wäre das heute
@@ -7757,7 +8246,7 @@ Andererseits bekamen sie am
 Bahndamm betelnd halbverhungernd auf
 deutschem Gebiet von Amerikanern nur
 Apfelsienenschalen aus vorbeifahrenden
-Militär-Eisenbahnzügen aus den🚂
+Militär-Eisenbahnzügen aus den?
 Fenstern zugeworfen, was sie halb in den
 Wahnsinn getrieben hätte. In Kirchen
 verwehrte man ihnen hier, diese
@@ -7784,7 +8273,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 99
+
 Datum 23. März 2021, 23:52
+
 99.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip,
 Sigmund Freud, Teil 1:
@@ -7881,7 +8372,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 100
+
 Datum 23. März 2021, 23:55
+
 100.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Steinzeit-Trip,
 Sigmund Freud, Teil 2:
@@ -7890,7 +8383,7 @@ DEM SCHREIBER SEI DAS SEINE PFLICHT:
 BELEHREN UND PREDIGEN SEI VERPÖNT.
 FÜR SCHELMENROMANE GILT DAS NICHT:
 
-Die Koksnase 👃,das ist das einzige was
+Die Koksnase ?,das ist das einzige was
 Leute über Sigmund Freud zu wissen
 scheinen, so meine Erfahrung, wenn ich
 etwas von ihm zum Besten gebe. Das
@@ -7903,7 +8396,7 @@ nicht mehr benutzen wollte, da er dann
 nicht mehr arbeiten konnte, sondern
 ständig einschlief, Kokain vom
 Arzt bekam mit dem er, statt mit
-Opium, die enormen Schmerzen einer 🚬
+Opium, die enormen Schmerzen einer ?
 Mundhöhlen-Krebsgeschwür-Erkrankung
 mindern konnte. Nicht um sich dem
 Rausch zuergeben, wie es ihm die Nazis
@@ -7946,7 +8439,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 101
+
 Datum 23. März 2021, 23:58
+
 101.Teil, Schelmenroman von Georg Dickas,
 Jua-Band-Bio, Der Steinzeit-Trip
 Sigmund Freud, Teil 3:
@@ -8039,7 +8534,9 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 102
+
 Datum 24. März 2021, 00:00
+
 102.Teil,Schelmenroman von Georg Dickas,
 Jua Band Bio, Der Steinzeit-Trip,
 Reise nach Vesta letzter, Teil 10:
@@ -8053,7 +8550,7 @@ Umprogrammierung langsam aber
 sicher zurück in die alte Umlaufbahn.
 Wir werde den Plan ändern. Die Tentakel
 der Qualle werden gekappt, damit diese
-alleine zum Saturnmond 🧿Nazturn, wie wir
+alleine zum Saturnmond ?Nazturn, wie wir
 ihn nennen, fliegt und dort einschlägt. Die
 Zeitreisenzuweisungsinstanz hat uns
 doch 9,5 Jahre zurückversetzt, ohne daß
@@ -8071,7 +8568,7 @@ belüfteten zugänglichen Räumen
 unter Sauerstoff-Überdruck stehen , die
 wir ohne Taucheranzug betreten können.
 Wir werden sie mit aufs DUB nehmen
-und ihnen 🥁eine effektive 🎸musikalische
+und ihnen ?eine effektive ?musikalische
 Schulung zukommen lassen, damit sie
 Jua ☀️bereichern können.
 
@@ -8081,7 +8578,7 @@ andere aufbauend beteiligen und
 mitsingen, mitspielen, mit
 schwingen, mitbauen am musikalischen
 Geschehen. Bumann, ein musikalischer
-🐶 Hund, war in der Lage mit dem Kopf
+? Hund, war in der Lage mit dem Kopf
 rythmisch im Takt zu swingen. Bei☀️ Jua-
 Auftritten oft beobachtet, war er voll drin,
 er liebte den off-Beat-Rhythmus-betonten
@@ -8090,7 +8587,7 @@ Rheinufer vor unserem Deutzer- Brücke-
 Probenraum Sonntags Nachmittag regel-
 mäßig aufspielten. Die Liegewiese füllte
 sich. Roma-Familien mit inbegriffen, die
-treu sich regelmäßig von💃 Sonntag zu
+treu sich regelmäßig von? Sonntag zu
 Sonntag in zunehmender Anzahl sich
 einfanden und sich mit dieser Art
 Weltmusik anfreundeten. Sie lieben das,
@@ -8104,13 +8601,13 @@ Brückenkopf Rampe sah aus ihrem
 geöffneten Glasbausteinwand-Fenster
 unsere Jua-musik☀️ spielender Reggae-
 Combo ebenfalls gerne
-zusammen mit ihren Pflegehunden, 🐶
+zusammen mit ihren Pflegehunden, ?
 und ihren afrikanischen Freunden, die sich
 liebenswert um die Hunde kümmerten,
 wenn Elke mit H.A.auf Welttour musste, zu.
 Da sie auch eine Liebhaberin der Reggae-
 Musik schon immer war, und als ausge-
-bildete 💃Sängerin, 🧚Tänzerin, Schauspielerin,
+bildete ?Sängerin, ?Tänzerin, Schauspielerin,
 Malerin, Vollblutkünstlerin bedeutete ihr
 Lob für jua-Musik uns sehr viel. Eine echte
 Anerkennung. Als Muse des
@@ -8120,7 +8617,7 @@ Schult bekannt im ganzen Land wird
 Positionierung auf der Severinsbrücke
 damals, auf ihre Ideen beruhte.Die liebe
 Elke musste wie ☀️Jua, mit ihren Tierheim-
-Alt- 🐕 Hund-Veteranen aus der Brücke,
+Alt- ? Hund-Veteranen aus der Brücke,
 in der sie ein fantastisches kleines
 Reich aufbaute, leider ausziehen.
 Die Kölner Technokratie versperrte
@@ -8134,39 +8631,41 @@ Made in Germany✓Cosmische Kalkurier ®✓
 
 Autor Schorsch Tantekel
 Kapitel 110
+
 Datum 16. April 2021, 02:21
+
 110. Teil Schelmenroman von Georg Dickas
 Jua-Band-Bio Steinzeit-Trip:
 
-Das DUB🚀 muß dringend in die Werkstatt.
+Das DUB? muß dringend in die Werkstatt.
 Es stottert, es macht was es will, als sei es
 in der Pubertät stecken geblieben. Es
 benimmt sich trotzig und es ist zuletzt
-kriminell geworden. Es ist mit Schlüssel 🚀
+kriminell geworden. Es ist mit Schlüssel ?
 DUB’s auf Abwege geraten und auch noch
 schlimm verwahrlost. Wir haben das
-Drill-U-Boot, kurz 🚀DUB genannt, auf die
+Drill-U-Boot, kurz ?DUB genannt, auf die
 DUB-Schule schicken müssen.
-Kommandante 👮Kaikowski, ersetzte Kai,
+Kommandante ?Kaikowski, ersetzte Kai,
 da dieser keinen Bock mehr hatte auf den
 Kinderkram. Er ließ sich auf das Space DUB
 Radiomaria versetzen und schiebt dort
-Rock’nRoll Dienst a’la 🎸🚬Kaakai.🍺🥃🍸
-🍹🍾🍷🧜🧚💃🕺🛌🎶🔊🍄🥂🍻💰
+Rock’nRoll Dienst a’la ??Kaakai.???
+??????????????
 Die Auswüchse der künstlichen Intelligenz
-sind nahezu menschlich, ja‘ kindisch. Kai 🦅 brauchte eh‘ eine kleine Auszeit. Die Nazi
-🔞 Jagd, der Stress mit der uns immer
+sind nahezu menschlich, ja‘ kindisch. Kai ? brauchte eh‘ eine kleine Auszeit. Die Nazi
+? Jagd, der Stress mit der uns immer
 wieder überraschenden
 Zeitreisenzuweisungsinstanz und ganz
-besonders mit 💀✓✓~🐗🍵🔨🔔🦏👾✨
-Schwad-Schorsch🥁 haben ihm doch ganz
+besonders mit ?✓✓~??????✨
+Schwad-Schorsch? haben ihm doch ganz
 schön, leider schlimm gut, zugesetzt.
-Solars Leuterer wird die DUB🚀-
+Solars Leuterer wird die DUB?-
 Sorgenkinder wieder auf Vordermann
 bringen. Ropterex vermisst uns Pilot Kai
-🦅. Artur auch 🐜.Jua☀️machen 🥁eine
+?. Artur auch ?.Jua☀️machen ?eine
 Tour: Die ‚Verzichte auf die Symbole,
-Status und die Kohle💰 Tour‘. In der
+Status und die Kohle? Tour‘. In der
 Nähe von Böblingen spielen wir nachts.
 Wir sind erst um 22 Uhr angekommen.
 Zusammen mit der örtlichen Avantgarde-
@@ -8190,7 +8689,7 @@ Frenetisch werden sechs splitternackte
 Rocker_innen empfangen. Seelenruhig
 schlendern die langhaarigen Haschleichen,
 Gestalten denen man nicht im Dunkeln
-begegnen möchte 🍄, auf die uralte
+begegnen möchte ?, auf die uralte
 niedrige Bühne. Zum Glück verdecken die
 E-Gitarren ihre Gemächte. Nur der Bassist
 hat sein E-Gerät unter dem Kinn hängen.
@@ -8205,16 +8704,16 @@ donnert sie mitten in diese Ansage rein
 und jagt ihren Höllen-Beat los, als gäbe
 es kein Morgen mehr. Der Sänger
 pudelnackt singt gar nicht, sondern packt
-in seinen mitgebrachten 🐟Wasch-Eimer,
+in seinen mitgebrachten ?Wasch-Eimer,
 der voll Schokocreme ist und schleudert die
 ‚Scheiße‘, so denkt jeder der das sieht, auf
 die durchgedrehte Nackt-Turbo-Drummerin
 Er macht immer weiter, alle Musiker die
 anscheinend überrascht werden,
 werden jetzt auch noch von der irren
-Bühnensau🐗 🍺💀🍄 beworfen und
+Bühnensau? ??? beworfen und
 auch noch, bäh, abgeleckt. Jua ☀️
-applaudiert, nur Quwesiga 🎸 ist schon
+applaudiert, nur Quwesiga ? ist schon
 so blau, daß er angeekelt rausgeht, dem
 Kassenwart zurecht in DicKass kotzt, voll
 angewidert von der ‚Scheiß‘-Show, wie er
@@ -8234,7 +8733,7 @@ singen? Ne lecker Jong‘, R’n‚R-Bon Bon‘
 Das Publikum will mehr Zugaben als die
 Band verträgt. Sie hören einfach auf ,so
 ausgelaugt und fertig sind sie, daß sie
-cola bier en 🍻. Unsere gute Deutsche
+cola bier en ?. Unsere gute Deutsche
 Kunst-Freiheit über alles, sie lebe hoch,
 oder nicht?
 Die Band Nuttella, die jetzt bekleidet, sich
@@ -8301,7 +8800,7 @@ Kazetts, die Menschenvernichtungsfabriken
 sind höchste Steigerungsformen des
 Obszönen. Daher ist die Freiheit der Kunst
 der Maßstab unserer Freiheit. Wer die
-zurückrängen will ist unser wahrer🔞 Feind,
+zurückrängen will ist unser wahrer? Feind,
 den Jua ☀️ und alle lieben Menschen der
 Welt bekämpfen und entfernen muss.
 Oder nicht?
@@ -8312,7 +8811,9 @@ Made in Germany✓Cosmische Kalkurier©✓
 
 Autor Schorsch Tantekel
 Kapitel 111
+
 Datum 17. April 2021, 01:50
+
 111.Teil, Schelmenroman von Georg Dickas,
 JUA-BAND-BIO, Der Steinzeit-Trip:
 
@@ -8404,7 +8905,7 @@ konnte. Folgendes:
 da ist, schließe dich in ihrer Toilette ein. Ruf
 uns übers Handy an, daß du dich so bedroht
 siehst, daß du es nicht wagst, die Türe zu
-öffnen, da sie dich mit einem 🗡️ Messer
+öffnen, da sie dich mit einem ?️ Messer
 abstechen könnte. Das reicht uns, um sie
 wesgsperren zu können.“ Das hab‘ ich aber
 nicht gemacht. Das hat die mir hoch
@@ -8443,7 +8944,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 112
+
 Datum 18. April 2021, 23:50
+
 112. Teil, Schelmenroman von Georg Dickas
 in Fortsetzungsfolgen,
 Jua-Band-Bio, Der Steinzeit-Trip:
@@ -8509,7 +9012,7 @@ den Vögeln, den Insekten, den seltenen
 Fledermäusen . Der winzige12x15×7cm 1Watt
 Batterie-Gesangsverstärker und ein weiterer
 etwas größerer Batterieverstärker für eine
-E-Gitarre🎸und den mitangeschlossenen
+E-Gitarre?und den mitangeschlossenen
 Kontrabass, den Robert rollbar auf eine
 selbst gebaute einachsige Handkarre
 mitbrachte, war alles, was Jua ☀️ an
@@ -8524,7 +9027,7 @@ zum Jesus-Point zu karren. Das ist bei Jua
 ☀️Auftritten normal. Wir spielen überall,
 aber besonders gerne im Freien tagsüber
 auf, damit Jua ☀️ auch Kindern zu Gesicht
-und zu 👂 Ohren kommen kann. Christiane
+und zu ? Ohren kommen kann. Christiane
 geht nach dem Song: ‚Alles verändert sich,
 wenn du es veränderst.‘ ans Mikrofon und
 klagt lauthals mit spöttischem Tonfall die
@@ -8578,8 +9081,8 @@ Deeskalierungsmaßnahme, und fährt
 mit Vollgas fast über die Verstärker, knapp
 zwischen den Zuschauern und Jua ☀️ ,
 mitten-durch. Hoch lebe unsere mutige
-Jua-Co-Sängerin, Songschreiberin, 🎸
-Gitarristin, und Flügelhornistin🎺 Christiane
+Jua-Co-Sängerin, Songschreiberin, ?
+Gitarristin, und Flügelhornistin? Christiane
 ☔Niesel! Oder nicht?
 
 Tage später wurde ein erster Rodungsstopp
@@ -8589,7 +9092,7 @@ Abrodungsstopp befahl, nachdem Angela
 vom kanadischem Premier dazu angefeuert
 wurde, nachdem er Jua ☀️ im
 Frühstücksfernsehen erleben durfte, ob ihr
-es glaubt oder nicht.“„Meinst du.“ Kai 🦅
+es glaubt oder nicht.“„Meinst du.“ Kai ?
 kennt mich: „Nee Alter, nicht was du da am
 Schluss verzapft hast?“Christiane:„Ja doch,
 ja, nee, du spinnst, Schorsch.“
@@ -8600,44 +9103,46 @@ Made in Germany✓Cosmische Kalkurier ©™✓
 
 Autor Schorsch Tantekel
 Kapitel 113
+
 Datum 20. April 2021, 17:42
+
 113. Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Dort am Rhein an der Schütte-Allee im
-schwarzen Block von Chris🦅 Braun, 200
+schwarzen Block von Chris? Braun, 200
 Meter vor der historischen Drehbrücke im
-Grünen herrlich an den Poller Wiesen🌄
+Grünen herrlich an den Poller Wiesen?
 gelegen, ein Musik-Übungsraum, für mich
-🥁ein Segen; Dagegen spielenJua ☀️als
-Band da eher selten bis kaum.🎸
+?ein Segen; Dagegen spielenJua ☀️als
+Band da eher selten bis kaum.?
 
 Meist spielen Jua bei Sonja im Garten ihres
 schiefen Hauses. Oder im Wohnzimmer im
-schiefen 🏠 Haus.🌈
+schiefen ? Haus.?
 Schöner ist es im Garten zu üben, da ich das
 Publikum glaube zu fühlen fast ganz und bin
-dann so richtig drin, mach mein klein🕺Tanz,
-beim🥁 Trommelrühren wenig Firlefanz. Die
+dann so richtig drin, mach mein klein?Tanz,
+beim? Trommelrühren wenig Firlefanz. Die
 Kinder der Nachbarschaft werden von der
 Musik gefangen, hängen auf Schaukeln, an
-Trockenstangen, teils Kopf-über, 🤸hocken
-versteckt in Baumhäuschen, oder 🌳klettern
+Trockenstangen, teils Kopf-über, ?hocken
+versteckt in Baumhäuschen, oder ?klettern
 lieber in die Bäume, oder auf’s Kabäuschen,
-hinter Garagen, zwischen Zäunen, Hunde-🐶
+hinter Garagen, zwischen Zäunen, Hunde-?
 Hütten, sie wollen hören, sehen☀️Jua überall,
 auf Schuppen, auf Schober hocken auf dem
-🐗Stall, in oberen Etagen auf deren Balkone.
+?Stall, in oberen Etagen auf deren Balkone.
 
-Die Pandemie ist 🔥branntgefährlich und
+Die Pandemie ist ?branntgefährlich und
 gar nicht ohne. Das sind auch manch Eltern
 nämlich, sowie das Ordnungsamt, leider oft
-pandämlich.👮 Oder tut’s nur seine Pflicht?
+pandämlich.? Oder tut’s nur seine Pflicht?
 Maske geht bei Jua’s meist nicht. Dann gilt:
 „HE, Abstandspflicht, sonst Standgericht!“
 Blaulicht hat Jua aufgemischt. Teuer wird’s,
-mit Drumsticks 🚓erwischt, mit Jazzbesen
+mit Drumsticks ?erwischt, mit Jazzbesen
 wär’s erlaubt gewesen. Ich mach nur Verzäll,
 mach nur Spaß. Stress gab’s kaum, nur der
 Doof da, der mäht lautstark das Gras:„HE,
@@ -8653,7 +9158,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 1.014
+
 Datum 21. April 2021, 15:40
+
 1.014.Teil, Schelmenroman=SR von
 Georg Dickas, in Fortsetzungs-Folgen:
 Jua-Band-Bio, Der Steinzeit-Trip.
@@ -8787,8 +9294,8 @@ Altenheime betreuen durfte.
 Verpönt sind Belehrungen, Predikten,
 Gebete, Rel. Ansicht, für meinen SR gilt das
 nicht.
-
 Teil 3:
+
 Eine passende Inhaltsangabe ist nicht so
 leicht zu machen. Bei meinem nicht immer
 humorigen spöttischen
@@ -8855,7 +9362,8 @@ Teil 5:
 
 Formell: ineinandergreifende bislang 114
 Einzel-Kapitel: Reportagen in
-Gegenwartsform, Erzählungen meist Vergangenheitsform, Schlimm und schlecht
+Gegenwartsform, Erzählungen meist
+Vergangenheitsform, Schlimm und schlecht
 Gereimtes, teils Lieder, werden eingestreut.
 Hörspiel-, Filmspielhaftes in
 Gegenwartsform, Autobiografische
@@ -8867,7 +9375,8 @@ Teil 6:
 Handlungstränge:
 
 1. Handlungsfaden: Eine von John Lennon
-als Schatten-Präsident geführte Zeitreisenzuweisungsinstanz.
+als Schatten-Präsident geführte
+Zeitreisenzuweisungsinstanz.
 2. Ein U-Boot- Raumschiff-Maschine, das
 sich nicht nur durch Wasser, sondern
 auch durch Erdreich tauchen, graben kann,
@@ -8903,7 +9412,8 @@ zum und in ein schwarzes Loch, ein
 Gravitationswellenritt jenseits der Urknall-
 Grenze, mit Eindringen
 in Dunkle-Energie-Nicht-Räumlichkeiten.
-7. Steinzeit-Trips, Traumerzählungen, Verwandlungsgeschichten.
+7. Steinzeit-Trips, Traumerzählungen,
+Verwandlungsgeschichten.
 8. Mitreisende sprechende: Tiere,
 Apparaturen, Bäume, Maschinen.
 9. Das Grauen nach einer
@@ -8911,7 +9421,9 @@ Atombombenexplosion
 
 Autor Schorsch Tantekel
 Kapitel 1.015
+
 Datum 25. April 2021, 20:43
+
 1.015.Teil, Schelmenroman = SR, von
 Georg Dickas in Fortsetzungs-Folgen,
 Jua-Band-Bio, Der Steinzeit-Trip
@@ -8956,8 +9468,8 @@ Aus: In den Wohnungen des Todes
 Aufbau-Verlag, Berlin W8, 1947, S. 26, 27
 
 Ihr Zuschauenden
-
 Nelly Sachs
+
 Beate Jochims,
 20 Gedichte aus ihrem
 Gedichte Nachlass, 2006, bis 2010,
@@ -9039,8 +9551,8 @@ wer liebt
 derzerstirbt
 und wer nicht
 liebt, auch!
-
 wer stibt aus Schattenmacht derzerstirbt auch ich liebe nur selten aberdannfreueichmich sehr
+
 7. 2011
 He, Neuer Du, der Ton ist rau!
 Das war schon immer so, Du blöde Sau!
@@ -9229,8 +9741,8 @@ Angespannt ist der eine oder andere oder vielleicht tot.
 Das ist klar.
 Ich werde krank und sterbe in guten Zeiten.
 Der Säugling schläft und scheint satt.
-
 Beate Jochims
+
 Friedrich Rückert,
 Aus seiner Übersetzung des Koran
 Die ersten 10 Verse aus:
@@ -9248,8 +9760,8 @@ Erbarmers,
 8. Zur Wahl von Gut und Bös sie angeleitet!
 9. Selig ist, wer sie läutert,
 10. Unselig, wer sie verschleudert.
-
 Friedrich Rückert
+
 Berger und Nord
 
 (Seite 653, Das neue
@@ -9273,23 +9785,71 @@ in Bearbeitung, aber schon einsehbar ist,
 Berlin. Dazu bald mehr Informationen
 27.4.‚21-Stand.
 Wajischlach
-Und Jakob sandte (bitte beachten, noch unvollst. und in Arbeit z.Zt. )
+Und Jakob sandte (bitte beachten, noch
+unvollst. und in Arbeit z.Zt. )
 
 Wajischlach
 Und Jakob sandte
 
 Und Jakob sandte Botschafter
 
-1) „Denn Er wird Seinen Engeln Herrschaft über dich geben, dich zu behüten.“Wenn ein Mensch auf die Welt kommt, kommt der Böse Trieb sofort mit ihm und beklagt sich immerzu über ihn, wie geschrieben steht: „Die Sünde hockt an der Tür.“ Die Sünde hockt – bedeutet der Böse Trieb. „An der Tür“ – bedeutet die Tür der Gebärmutter, damit ist gemeint sobald man geboren ist.
+1) „Denn Er wird Seinen Engeln Herrschaft über dich geben, dich zu behüten.“Wenn ein
+Mensch auf die Welt kommt, kommt der
+Böse Trieb sofort mit ihm und beklagt sich
+immerzu über ihn, wie geschrieben steht:
+„Die Sünde hockt an der Tür.“ Die Sünde
+hockt – bedeutet der Böse Trieb. „An der Tür“ – bedeutet die Tür der Gebärmutter, damit ist
+gemeint sobald man geboren ist.
 
-2) David nannte den Bösen Trieb „Sünde“, wie es geschrieben steht, „meine Sünde ist ständig vor mir“, denn sie veranlasst den Menschen, jeden Tag gegenüber seinem Herrn zu sündigen. Ab dem Tage der Geburt verläßt dieser Böse Trieb den Menschen niemals mehr. Und der Gute Trieb kommt zum Menschen sobald er sich gereinigt hat.
+2) David nannte den Bösen Trieb „Sünde“, wie
+es geschrieben steht, „meine Sünde ist
+ständig vor mir“, denn sie veranlasst den
+Menschen, jeden Tag gegenüber seinem Herrn
+zu sündigen. Ab dem Tage der Geburt verläßt
+dieser Böse Trieb den Menschen niemals
+mehr. Und der Gute Trieb kommt zum
+Menschen sobald er sich gereinigt hat.
 
-3) Und wann wird der Mensch geläutert? Wenn er 13 Jahre alt ist. Dann verbindet sich der Mensch mit beiden, dem guten Trieb zur Rechten und dem bösen zur Linken. Und diese sind wirklich zwei beauftragte Engel, und sie befinden sich immer beim Menschen.
+3) Und wann wird der Mensch geläutert?
+Wenn er 13 Jahre alt ist. Dann verbindet sich
+der Mensch mit beiden, dem guten Trieb zur
+Rechten und dem bösen zur Linken. Und
+diese sind wirklich zwei beauftragte Engel,
+und sie befinden sich immer beim Menschen.
 
-4) Wenn sich der Mensch zu läutern beginnt, gibt ihm der Böse Trieb nach und die Rechte herrscht über die Linke. Und beide – der gute und der Böse Trieb – verbinden sich, um über den Menschen auf all seinen Wegen, die er geht, zu wachen. Wie geschrieben steht: „Denn er wird Seinen Engeln Herrschaft über dich geben, dich auf all Deinen Wegen zu behüten.“
+4) Wenn sich der Mensch zu läutern beginnt,
+gibt ihm der Böse Trieb nach und die Rechte
+herrscht über die Linke. Und beide – der gute
+und der Böse Trieb – verbinden sich, um über
+den Menschen auf all seinen Wegen, die er
+geht, zu wachen. Wie geschrieben steht:
+„Denn er wird Seinen Engeln Herrschaft über
+dich geben, dich auf all Deinen Wegen zu
+behüten.“
 
-17) Jemand der dem bösen Trieb nicht nachgibt und überhaupt nicht stolz ist, der seinen Geist und sein Herz verringert, und auch seinen Willen gegenüber dem Schöpfer, da wird der böse Trieb umgestürzt und wird sein Sklave, da er ihn nicht kontrollieren kann. Sondern im Gegenteil kontrolliert der Mensch ihn, so wie geschrieben steht: „und du wirst darüber herrschen.“
-23) Die ganze Welt wusste, dass Laban der Größte aller Weisen und Wahrsager und Zauberer war. Und wenn Laban jemanden zerstören wollte, war dieser nicht sicher vor ihm. Und alles was Balaam wusste, kam von Laban. Über Balaam steht geschrieben, „Soviel ich weiß, ist er, welchen du segnest, gesegnet.“ Umso mehr trifft dies auf Laban zu. Und die gesamte Welt fürchtete Laban und seine Magie. Daher war das erste Wort, das Jakob an Esau sandte, „Ich habe mich bei Laban aufgehalten“. Und „nicht für eine kurze Zeit, sondern ich war später über zwanzig Jahre bei ihm.“
+17) Jemand der dem bösen Trieb nicht
+nachgibt und überhaupt nicht stolz ist, der
+seinen Geist und sein Herz verringert, und
+auch seinen Willen gegenüber dem Schöpfer,
+da wird der böse Trieb umgestürzt und wird
+sein Sklave, da er ihn nicht kontrollieren kann.
+Sondern im Gegenteil kontrolliert der Mensch
+ihn, so wie geschrieben steht: „und du wirst
+darüber herrschen.“
+23) Die ganze Welt wusste, dass Laban der
+Größte aller Weisen und Wahrsager und
+Zauberer war. Und wenn Laban jemanden
+zerstören wollte, war dieser nicht sicher vor
+ihm. Und alles was Balaam wusste, kam von
+Laban. Über Balaam steht geschrieben,
+„Soviel ich weiß, ist er, welchen du segnest,
+gesegnet.“ Umso mehr trifft dies auf Laban
+zu. Und die gesamte Welt fürchtete Laban
+und seine Magie. Daher war das erste Wort,
+das Jakob an Esau sandte, „Ich habe mich
+bei Laban aufgehalten“. Und „nicht für eine
+kurze Zeit, sondern ich war später über
+zwanzig Jahre bei ihm.“
 
 ®©Georg Dickas✓Schorsch Tantekel©✓
 ®Blunot Rec.BR4711,CD.LP.CC.EU.J.USA
@@ -9297,7 +9857,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 114
+
 Datum 29. April 2021, 23:16
+
 114.Teil, Schelmenroman von Georg Dickas in Fortsetzungs-Folgen.
 Jua-Band-Bio, Der Steinzeit-Trip:
 
@@ -9307,10 +9869,10 @@ befördert Jua ☀️ im DUB in den weiten
 Weltraum ins Zentrum der Milchstraße
 auf den Planet Erdo, der um den sterbenden
 aufgeblähten roten Fixstern Gan kreist. Fast
-hätten wir dessen 🌙 Mond Hüsnü
+hätten wir dessen ? Mond Hüsnü
 gerammt. Wir können den erschrocken
 Kommander Kaakai nur danken, obwohl
-er mächtig Bier 🍻 tat tanken, daß er
+er mächtig Bier ? tat tanken, daß er
 hochziehen konnte und die Rollbahn des
 Flughafens der Metropole Zündschnür
 erwischte. Funken sprühend, weil
@@ -9399,20 +9961,22 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 115
+
 Datum 1. Mai 2021, 01:54
+
 115.Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen, Jua-Band-Bio,
 Der Steinzeit-Trip:
 
-Das DUB dringt in das schwarze🧿 Loch
-ein und, obwohl es äußerst stabil 🚀
+Das DUB dringt in das schwarze? Loch
+ein und, obwohl es äußerst stabil ?
 konstruiert ist, wird es nicht einfach
 werden unbeschädigt durch die
 unbekannten Räume zu fliegen. Jua
-muß den erhöhten 💀💀Strahlungsbeschuß
+muß den erhöhten ??Strahlungsbeschuß
 ausgleichen, indem sie sehr langsame
-🐌und bleiernde, 🦆gleichmäßige
-Drei-Viertel-Taktrhythmik Musik 🥁
+?und bleiernde, ?gleichmäßige
+Drei-Viertel-Taktrhythmik Musik ?
 erklingen lässt. Die Macht dieser,
 vordergründig sind es Schallwellen,
 musikalisch getrimmten, getakteten,
@@ -9421,132 +9985,132 @@ multiplizierend sich steigernden
 Schwingungen ist gigantisch kraftvoll.
 Höchste Präzision ist beim Spielen
 notwendig, um den half-half-half-time
-Flow, der sich 🔍zeitlupenartig aufbaut, da
+Flow, der sich ?zeitlupenartig aufbaut, da
 der Flow die subhartwellig wirkende ☢️
 Gegenstrahlung erzeugt, die notwendiger
 Weise erreicht werden muß, um die ⛱️
 abschirmenden Kraftfelder zu generieren.
-Das Taktmaß 🎼und das entsprechende
+Das Taktmaß ?und das entsprechende
 Tempo müssen unbedingt aufeinander
 abgestimmt sein, sonst sind wir der
 dunklen Materie ⬛und der unvorstellbar
-hohen Gravitationskraft 🧲schutzlos
-ausgeliefert. 💀Wir verlieren dann unsere
-Materie-Stofflichkeit, 🐗werden
+hohen Gravitationskraft ?schutzlos
+ausgeliefert. ?Wir verlieren dann unsere
+Materie-Stofflichkeit, ?werden
 zusammengeknautscht zu einem
-Billionstel von einem tausendstel🔨
+Billionstel von einem tausendstel?
 Kubikmillimeter, und werden in reine
 Energie verwandelt.„Meinst du?“ Höre ich
 es aus dem Cockpit tönen. Ich reagiere auf
-Kai’s 🦅 coolen Spruch:„Soviel ich weiß, 🐗
+Kai’s ? coolen Spruch:„Soviel ich weiß, ?
 weiß ich nichts“. Wir alle und☀️ Jua können
 uns auf Kai’s Berechnungen verlassen,
 die glücklicher Weise von unserer weisen
 Zeitreisenzuweisungsinstanz⌛, die ja blitz-
 schnell,⚡ gleichzeitig zur Stelle ist wenn’s
-mal 🐮hapert, uns im Blick👀 hat, uns dann
-hoffentlich da 💀☢️wieder rausgreift. Der
+mal ?hapert, uns im Blick? hat, uns dann
+hoffentlich da ?☢️wieder rausgreift. Der
 Groove unserer Mucke lässt aber daran
-keinen Zweifel. Es grooved fantastisch. 🎶
-Balu 🐘 und Gummi Bär 🐻 tanzen. Wenn
+keinen Zweifel. Es grooved fantastisch. ?
+Balu ? und Gummi Bär ? tanzen. Wenn
 die das tun ist das für Jua ☀️ der Beweis,
 daß es gut grooved. Das beruhigt uns sehr.
-Wir durchbrechen 🌀mit der DUB Maschine
-🚀die Grenze zwischen Materie und dunkler
+Wir durchbrechen ?mit der DUB Maschine
+?die Grenze zwischen Materie und dunkler
 Materie, ⬛und es sieht so aus als ob die
-Schallwellen die uns, also Jua als 🐗
+Schallwellen die uns, also Jua als ?
 Klängkörper verursachend verlassen, zu
 dunkler ⬛Energie verwandelt den
-🚀DUB-Innenraumdruck ausgleichend mit
-gelbfarbiger 🍺Flüssigkeit anfüllt, die wir
+?DUB-Innenraumdruck ausgleichend mit
+gelbfarbiger ?Flüssigkeit anfüllt, die wir
 aber wie frische Luft inhalieren können.
 Plötzlich sind wir drin im schwarzen Loch.
-Es🧿 ist hohl, taghell, also nicht wie wir
+Es? ist hohl, taghell, also nicht wie wir
 dachten Stock-dunkel und relativ klein.
 Im Zentrum der höchstens hundert
-Kilometer im Durchmesser großen🔔
+Kilometer im Durchmesser großen?
 goldenen Gewölbekuppel auf frischen
-grünen🌄 Wiesengrund ein roter See, und
-darum herum türkise und schwarze 🇱🇨
-Indianer Tipis, Zelte. Oder sind es 🎳Kegel,
+grünen? Wiesengrund ein roter See, und
+darum herum türkise und schwarze ??
+Indianer Tipis, Zelte. Oder sind es ?Kegel,
 oder Pflanzen. Wir spielen immer noch
-diesen schweren, schweren 🎶⏲️🔍🔔
+diesen schweren, schweren ?⏲️??
 Zeitlupen-Off-Beat-Jazz-Walzer bis uns
-Kai 🦅in Dirigentenpose bittet zum Finale
-zu kommen. Wir lassen uns genug Zeit den Schlussakkord🎶 zu setzten und ein
-gelungenes Tutti 🔨beendet unseren
-Roots-Reggae-Rausch. 💀Wir sind
-schlagartig in Kinder👥🐁👾verwandelt.
+Kai ?in Dirigentenpose bittet zum Finale
+zu kommen. Wir lassen uns genug Zeit den Schlussakkord? zu setzten und ein
+gelungenes Tutti ?beendet unseren
+Roots-Reggae-Rausch. ?Wir sind
+schlagartig in Kinder???verwandelt.
 Geistig nehmen wir keine Verwandlung
-wahr. Euphorisch👾 werdend bemerken wir
-unsere 👶Kinderstimmen, unsere Leichtigkeit,
+wahr. Euphorisch? werdend bemerken wir
+unsere ?Kinderstimmen, unsere Leichtigkeit,
 Beweglichkeit, und die geschärften frischen
-Sinne. So wunderbar 👾🐣🐗🤸☃️🌈🐸🍧
-fühlt es sich doch nur im Himmel an, 🍭🐵
-oder nicht? Runde Objekte 🌏Tennisball bis
-Fußballgröße schweben hier langsam 🦆
-durch die Gegend. Das DUB🚀 steht auf der
-Wiese 🌄geparkt, Es glänzt wie neu im Heu.
+Sinne. So wunderbar ????☃️???
+fühlt es sich doch nur im Himmel an, ??
+oder nicht? Runde Objekte ?Tennisball bis
+Fußballgröße schweben hier langsam ?
+durch die Gegend. Das DUB? steht auf der
+Wiese ?geparkt, Es glänzt wie neu im Heu.
 Fabrikneu und ungebraucht und hat eine
-netzartige🕸️ Lackierung bekommen, ohne
+netzartige?️ Lackierung bekommen, ohne
 daß wir uns erklären können woher, wann
-und warum und wer 🕷️das gemacht haben
+und warum und wer ?️das gemacht haben
 könnte. Allerdings wundern wir uns über
-gar nichts 🦏mehr. Haben wir auch ein
-kindliches 🐒Gemüt erhalten? Das hatten
-Jua ☀️ und wir alle im DUB 🚀schon immer.
-Alles erheitert 🐸uns und uns geht’s einfach
-nur prima in dieser 🍺goldigen gemütlichen
-neuen 🐁Umgebung und unserer neuen
-Jugendlichkeit.🤸 Von Natur aus, instinktiv,
+gar nichts ?mehr. Haben wir auch ein
+kindliches ?Gemüt erhalten? Das hatten
+Jua ☀️ und wir alle im DUB ?schon immer.
+Alles erheitert ?uns und uns geht’s einfach
+nur prima in dieser ?goldigen gemütlichen
+neuen ?Umgebung und unserer neuen
+Jugendlichkeit.? Von Natur aus, instinktiv,
 ohne verfälschte Lust, freudig lebendig,
 genießen wir das neue☃️ Dasein. Wo sind
 wir? Und warum? Zuversichtlich erkunden
-wir singend und 🦗hüpfend die nähere
-Umgebung. Ein blauer 🎾 Tennisball läßt
+wir singend und ?hüpfend die nähere
+Umgebung. Ein blauer ? Tennisball läßt
 sich nicht fangen. Er fliegt sogar durch
 mich durch. Er fällt auch nicht auf die
-Wiese. 🦚Er schwebt ohne jegliche
-Richtungsänderung scheinbar 👾
+Wiese. ?Er schwebt ohne jegliche
+Richtungsänderung scheinbar ?
 unbeeinflussbar weiter. Es erscheint uns
-wie ein 🍭Hologramm. Wer macht das? Es
-fängt an 🌧️zu regnen. Es regnet Buchstaben.
+wie ein ?Hologramm. Wer macht das? Es
+fängt an ?️zu regnen. Es regnet Buchstaben.
 Ich habe sie in der ✋ Hand und sie
 verschmelzen und fließen zu einem
 Buchstaben zusammen. Sonja ☀️ zeigt mir
 ein goldenes A. Das A ist massiv und c.a.
 hundert Gramm schwer. Mein Buchstabe
-ist grün 🐢und eindeutig ein U und aus Pott.
+ist grün ?und eindeutig ein U und aus Pott.
 Ich schnupper dran. Eindeutig erkenne ich
 bestes Haschisch.„Danke schön,
 fantastisch!“ Entfährt es mir unbedacht.
-Kai 🦅 hält mir seine ✋ Hand unter die 👃
-Nase.„ Whiskey🚬🥃.“Christiane genießt
+Kai ? hält mir seine ✋ Hand unter die ?
+Nase.„ Whiskey??.“Christiane genießt
 die Regendusche.☔ Sie ist naß und
 bemerkt unsere erstaunten Gesichter:
 „Wasserscheu? Es ist so herrlich, riecht
 ihr nicht das Frische, das ist Natur pur
-hier.“☔🤸🌳🌦️Balu stimmt mit ihr ein
+hier.“☔???️Balu stimmt mit ihr ein
 und freut sich posaunend. Gummi steht
-in einem See aus 🍇Brombeeren, Fips 🐒in
-🍇🍋🍒 Früchten. Die Wiese ist übersät
+in einem See aus ?Brombeeren, Fips ?in
+??? Früchten. Die Wiese ist übersät
 mit Buchstaben, von Blumen-Blüten-Größe.
 Sie verketten sich eigenständig, lebendig
-wirkend wie ein 🍭 Organismus organisch
+wirkend wie ein ? Organismus organisch
 zu Wörtern und tanzen ,werden größer
 verschmelzen zu größeren Sätzen , diese
 antworten mit freundlichen Grüßen neuen
-Wörtern, die abheben und die gelbe🍺 Luft
-erfüllen. Ein Teich🗻 entsteht und alle
+Wörtern, die abheben und die gelbe? Luft
+erfüllen. Ein Teich? entsteht und alle
 Buchstaben springen aus ihren Wörtern,
 die Wörter aus ihren Sätzen und krabbeln,
-🦗hüpfen in den Teich, der die Form eines
+?hüpfen in den Teich, der die Form eines
 O’s hat, ein Oval eben. Sonja ☀️:„Ein See
 aus gülden Wasser!“„Grün!“ Korrigiere ich.
-„Blau!“ 🌀Christiane zeigt uns mit ihrer
-Hand 🖐🏾 über
-ihr Gesicht🙋 hin und her bewegend die
-Geste, ob wir verrückt seien.„ 🍀Grün“.
+„Blau!“ ?Christiane zeigt uns mit ihrer
+Hand ?? über
+ihr Gesicht? hin und her bewegend die
+Geste, ob wir verrückt seien.„ ?Grün“.
 „Schorsch du spinnst! Aber wo kommt
 der Buchstaben-Regen her, es sind keine
 Wolken zu sehen?“ Plötzlich steigen die
@@ -9556,7 +10120,7 @@ und formen sich zu fünf übergroßen
 violetten Buchstaben. Gleichzeitig erklingt,
 dröhnt, erschallt es von allen Seiten, auch
 aus dem Wiesengrund und von oben herab:
-„ JAHWE !“♾️⚓🎶🎆🔥🌈✡️☪️🕊️✝️☦️
+„ JAHWE !“♾️⚓????✡️☪️?️✝️☦️
 
 ®©Georg Dickas✓Schorsch Tantekel©✓
 ®Blunot Rec.BR4711,CD.LP.CC.EU.J.USA
@@ -9564,23 +10128,25 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 116
+
 Datum 4. Mai 2021, 00:34
+
 116.Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen,
 Jua-Band-Bio, Der Steinzeit-Trip:
 
 Die fünf violetten Buchstaben umkreisen
-uns, verwandeln sich in einen 🌈
-Regenbogen, der im Nachhall des 🔯
+uns, verwandeln sich in einen ?
+Regenbogen, der im Nachhall des ?
 donnernden Wortes JAHWE in den
 goldenen Himmel aufsteigt und im Orbit
-entweicht, bevor sich die sechseckige 🧲 Öffnung der Goldhimmelkuppel über
+entweicht, bevor sich die sechseckige ? Öffnung der Goldhimmelkuppel über
 uns verschliest. Das DUB ruft uns zu sich.
 Es hat noch nie zu uns gesprochen, und
 wir staunen nicht schlecht; In der Piloten
 Kanzel im Cockpit, Kai’s Platz ist besetzt
 von Moses, uns wird anders, sitzt noch
-jemand, seine🐍Schlange.„Ihr seid im
+jemand, seine?Schlange.„Ihr seid im
 vorletzten Himmel, im neunten
 eingedrungen, der der Vorhof zum letzten,
 ist, dem zehnten, auch Gottes Garten Eden
@@ -9596,16 +10162,16 @@ Moses an. Die Schlange verwandelt sich in
 einen Stock und klopft ihr auf den
 Allerwertesten. Das DUB donnert in den
 Orbit und zerschmettert in der Goldkuppel
-nicht. Das DUB, Kai 🦅ist sprachlos, erreicht
+nicht. Das DUB, Kai ?ist sprachlos, erreicht
 die Kuppel irgendwie nicht, da sich diese
 eher entfernt, statt sich zu nähern, obwohl
 wir ständig beschleunigen.
 Beunruhigender Weise ist Moses weg.
-Spurlos verschwunden, samt Stock. Kai🦅
+Spurlos verschwunden, samt Stock. Kai?
 springt ins Cockpit und bremst so stark ab,
 daß wir nach vorne ihm in den Rücken
 fallend stören und zu einem fatalen Fehler
-veranlassen: Ihm fällt die Bier🍺Pulle aus
+veranlassen: Ihm fällt die Bier?Pulle aus
 der Hand ✋. Er verliert auch den Verstand.
 Jetzt stecken wir mit der DUB Maschine in
 der massiven Himmelsstrebe die von Kai
@@ -9625,7 +10191,7 @@ an den ich besser nicht gekommen wäre.
 Das Schalterpult ist von ihm hoch geklappt,
 Ich höre noch:„Finger weg, …!“
 Zu spät, ich habe den Katapult
-ausgelöst; im hohen Bogen fliegt Kai 🦅 in
+ausgelöst; im hohen Bogen fliegt Kai ? in
 Richtung Gold Kuppel. Die gibt blitzartig
 einen Moment eine kleine sechseckige
 Öffnung frei, und schließt
@@ -9639,7 +10205,7 @@ raus.“„Meinst du“„Du bist wieder da?“
 Meinst du.“„Ein Wunder, Gott sei Dank. Hat
 Er dich bei sich nicht haben wollen, oder
 will Er jetzt noch nichts von dir?“„Meinst du.
-„Kai 🚬 treibt🥁mich in den Wahnsinn mit
+„Kai ? treibt?mich in den Wahnsinn mit
 seinem ‚meinst du‘. „Meinst du, daß ich weg
 war?“„Ja sicher Jung, ich hab dich
 versehentlich weggeknallt.“„Das liegt an
@@ -9654,7 +10220,7 @@ Das musst du doch gemerkt haben, oder?“
 Schorsch, nö, nie gehabt.“„Wo warst du?“
 „Jesus, ich hab mir nen‘ Six-Pac abgeholt,
 Alter.“„Ja, wo denn? Oben im Büdchen?
-Gibt’s da 🍺 Bier?“„Nee, nur Alt, kein Kölsch,“
+Gibt’s da ? Bier?“„Nee, nur Alt, kein Kölsch,“
 Im Himmel gibt’s kein Kölsch?“„Doch das
 hoffe ich, aber woher soll ich das wissen,
 ich war kurz weg zum Kühlschrank nach
@@ -9669,7 +10235,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 117
+
 Datum 5. Mai 2021, 23:03
+
 117. Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen,
 Jua-Band-Bio, Der Steinzeit-Trip:
@@ -9686,9 +10254,9 @@ Waagerechte startet er mit Vollgas den
 Antrieb und zieht im hohen Bogen nach
 oben kurz bevor wir aufgeschlagen hätten.
 Die Bierflasche steht noch immer vor im
-auf dem Pult, Kai 🦅 stürzt äußerst
+auf dem Pult, Kai ? stürzt äußerst
 gefühlvoll in den Abgrund, er hat’s als Pilot
-🦅 voll raus. Das DUB donnert auf den
+? voll raus. Das DUB donnert auf den
 Horizont der goldenen Himmelskuppel zu
 und beschleunigt stetig. Der Wahnsinnige
 zieht plötzlich hart nach oben und als hätte
@@ -9697,15 +10265,15 @@ Loch und das DUB jagd hindurch
 und es wird mir schwarz vor Augen. Das
 ist das Finale, das Ende der Vorstellung.
 Ropterex heult auf und Balu klappt sich
-seine 🎸 Ohren vor die Augen, Fips 🐒
+seine ? Ohren vor die Augen, Fips ?
 schreit schrill auf, Sonja ☀️ fällt um, nur
 Christiane starrt auf das Unbegreifliche
-und verwandelt sich in ein Spiegelei.🍳Kai
+und verwandelt sich in ein Spiegelei.?Kai
 zögert nicht lange, hä hät ewer immer jet
 Appetit, doch Christiane höp flink op de
 Pann erus und flitzt in den Bordwald und
 klettert hoch ins Wipfelgeästversteck.
-Fips 🐒 hinterher und es kommt zum
+Fips ? hinterher und es kommt zum
 Äußersten: Fips mag kein Spiegelei, nur
 Rührei! Puuh Glück gehabt.
 
@@ -9715,7 +10283,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 118
+
 Datum 6. Mai 2021, 08:31
+
 118.Teil, Schelmenroman von Georg Dickas
 in Fortsetzungsfolgen,
 Jua-Band-Bio, Der Steinzeit-Trip:
@@ -9731,86 +10301,86 @@ oben. Nur die allmächtigste,♾️
 eine Göttlichkeit steht logischer Weise
 über der Zeitreisenzuweisungsinstanz.
 Christiane ☔findet sich, sie sitzt in der
-Bratpfanne 🍳im 🌳Baumwipfel, in alter
+Bratpfanne ?im ?Baumwipfel, in alter
 Frische, wieder. Sie verliert nach ihrer
 Rück-Verwandlung das Gleichgewicht
 und purzelt von Ast zu Ast vom Baum bis
-auf den Boden im Bordwald 💓 herunter.
+auf den Boden im Bordwald ? herunter.
 Das Herz-Emoticon hat sich selbst
 ungefragt eingeschlichen. Das macht
 Facebook ohne mich zu fragen.Sie ist nun
-kein Spiegelei 🍳mehr. DasWörtchen ‚ist‘
+kein Spiegelei ?mehr. DasWörtchen ‚ist‘
 ist mit nur einem ‚s‘ geschrieben, kein
-Schreibfehler also;🧹sie war ja wirklich
+Schreibfehler also;?sie war ja wirklich
 vor zwei Minuten noch ein Spiegelei.
 Sie ☔hat sich nicht verletzt bei
 ihrem Sturz. Auch der Bratpfanne konnte
 sie ausweichen. Großes Gelächter an
-Bord.„Was hast du 👁️gesehen? Du allein
-🧹 hast in ♾️den zehnten Himmel schauen
-können.“„Da tronte ein 👸🤴Königs-Paar,
+Bord.„Was hast du ?️gesehen? Du allein
+? hast in ♾️den zehnten Himmel schauen
+können.“„Da tronte ein ??Königs-Paar,
 das unglaublich strahlte, ich wäre fast
 verbrannt!“…,,Und zum Glück kein Rührei
-geworden.“unterbricht 🐒Fips:„Du warst ein
-Spiegelei!🍳“ Sie:„Red keinen Unsinn Fips!“
+geworden.“unterbricht ?Fips:„Du warst ein
+Spiegelei!?“ Sie:„Red keinen Unsinn Fips!“
 „Christiane☔ war ein Spiegelei.“ Rufen alle.
 „Du hast Gott gesehen!“„Gott ist ein Paar?
-🥁:“Ja, König und Königin, Mann und Frau,
+?:“Ja, König und Königin, Mann und Frau,
 Gott Vater und Gott Mutter, ein weibliches
 und männliches göttliches Paar,
-sogenannt: Gott.♾️,🔯🌈👁️🔥🌾☪️✝️
+sogenannt: Gott.♾️,???️??☪️✝️
 Wie schön. Beate hat mir das so schon zu
-ihren Lebzeiten erklärt.“„Schorsch🐗 du
+ihren Lebzeiten erklärt.“„Schorsch? du
 spinnst doch. Ihr seid ein Paar gewesen,
 deshalb glaubst du, weil du sie geliebt
 und fast vergöttert hast, daß Gott weiblich
 und männlich, ein Paar also ist. Glaubst du
 das etwa deshalb, daß das heiße
-Königspaar 👸🤴da oben die höchste
+Königspaar ??da oben die höchste
 allmächtige Göttlichkeit sein soll?“
-„Die dich rettete.“„Weil ich zu 🍳Spiegelei
+„Die dich rettete.“„Weil ich zu ?Spiegelei
 und nicht zu Rührei wurde?“„Ja, genau!“Tönt
 die himmlische Bratpfanne mit ihrem
 metallischen Klang in der Stimme ihm
-zustimmend. 🥁:„Die sprechende Pfanne
+zustimmend. ?:„Die sprechende Pfanne
 ist ein Wunder und ein Beweis und ein
 schönes Erinnerungsstück, ein ♾️göttliches
-Souvenir.“„Du hast doch die 🍳Pfanne heiß,
+Souvenir.“„Du hast doch die ?Pfanne heiß,
 Schorsch !“„ Hat er ?“Fragt die ‚göttliche‘,
-plärrende 🍳Pfanne ganz cool zurück.
-,🥁🐗:„Dankeschön!“
+plärrende ?Pfanne ganz cool zurück.
+,??:„Dankeschön!“
 
-Kai 🚬steuert das 🚀DUB sicher aus dem
+Kai ?steuert das ?DUB sicher aus dem
 gefährlichen Dunkle-Energie-Hoch-
 Gravitations-Grenzbereich◼️und dem All.
 Geistesgegenwärtig benutzt er den
 Schwung beim Austritt als Sprungfeder für
-einen Gravitstionswellenritt🧲 entlang der
-💀☢️Strahlungsrichtung, in Richtung
-Milchstraße.🥛 Wie erwartet erreichen wir,
+einen Gravitstionswellenritt? entlang der
+?☢️Strahlungsrichtung, in Richtung
+Milchstraße.? Wie erwartet erreichen wir,
 weit in die Zukunft befördert, den Mars, da
-die Erde längst unbewohnbar 🌪️💀🔨
+die Erde längst unbewohnbar ?️??
 geworden war. Der ✨Mars ist dann unsere
-neue Erde geworden.🌈🗻🔔🔨🔥☢️🌋💀
+neue Erde geworden.?????☢️??
 Der Mars hat wieder Athmosphäre und nach
-Kai’s 🚬Berechnungen haben wir das Jahr
-2470. Eine Mutante 👾empfängt uns am
+Kai’s ?Berechnungen haben wir das Jahr
+2470. Eine Mutante ?empfängt uns am
 Hangar von Köln-Marsdorf in der neuen
-Metropole 🌇Kalk auf dem 👽Mars. Köln ist
+Metropole ?Kalk auf dem ?Mars. Köln ist
 2401 von Kalk eingemeindet worden. Links-
 und Rechtsrheinisch, diese Unterscheidung
 hat sich seit langem erübrigt, da es den
 Rhein seit 2171 nicht mehr gab.
 Ausgetrocknet schon hundert Jahre vor
-Kölns Eingemeindung in 🌇Kalk-City schon
+Kölns Eingemeindung in ?Kalk-City schon
 damals, auf der gerade noch bewohnbaren
-Erde.„Echt kölsch Minsche!“Die Mutante 🐗
+Erde.„Echt kölsch Minsche!“Die Mutante ?
 ist entzückt. Richtige menschliche Körper
 gibt es hier oben schon lange nicht mehr.
-Menschmaschinen 🤖 kann man die
+Menschmaschinen ? kann man die
 Kreaturen, beschönigend ausgedrückt
-nennen. Nik🎤🚬:„ Dat is en KalkMutant.“
-Kai🍺 🚬kräht:„ Ewer du, du al Kalkreatur,
+nennen. Nik??:„ Dat is en KalkMutant.“
+Kai? ?kräht:„ Ewer du, du al Kalkreatur,
 hä, hä, un Jua ☀️spaziere vun Kalkkapell
 nach KalkPost in Kalk-City-Mars-Metaproll,
 hinger Poll, die Metropol.“ Wie gehabt?
@@ -9822,7 +10392,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 119
+
 Datum 8. Mai 2021, 14:52
+
 119.Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen,
 die ständig bearbeitet werden.
@@ -9830,7 +10402,7 @@ Jua-Band-Bio, Der Steinzeit-Trip:
 
 Auf dem Mars, der neuen Erde, anno 2421
 angekommen gibt es in der Metropole Kalk
-City keinen Rhein und keinen Dom. Der 🌇
+City keinen Rhein und keinen Dom. Der ?
 Vorort Köln, das ehemals heilige Köln, ist
 ein Museumsdorf☎️ mit Nachbauten, ohne
 Dom, der riesigen Metropolregion Kalk auf
@@ -9843,25 +10415,25 @@ Nachbau des Doms für das Museumsdorf
 ist in Planung, wird aber, typisch für
 KalKöln, lange, lange Utopie bleiben.
 Sehr traurig deswegen begibt sich Jua zu
-ihrem Auftritt in die Kalkeks-Arena als 🏟️
-Vorgruppe von Niedecken 🗿🗽und der
-Stones,🍡👅 zu ihrer x-ten Kalk-Tour. Das
+ihrem Auftritt in die Kalkeks-Arena als ?️
+Vorgruppe von Niedecken ??und der
+Stones,?? zu ihrer x-ten Kalk-Tour. Das
 Lebensverlängerungskabel ist seit über
 500 Jahren fast ununterbrochen an ihren
-künstlich lebendig erhaltenen💀 Mutanten
+künstlich lebendig erhaltenen? Mutanten
 Körpern angeschlossen. Ihr Wunsch bei
 ihrer Bewerbung 2035 wurde entsprochen.
-Die Stones👅💀und Niedecken 🗿🗽🎶
+Die Stones??und Niedecken ???
 gewannen unter vielen anderen Oldies in
-der interstellaren 👽Ausschreibung der
+der interstellaren ?Ausschreibung der
 Künstler der alten Welt, Erde, hier jetzt auf
 MarsKalk mindestens 500 Jahre älter
 werden zu können, dank ihrer Popularität.
 Sie werden glücklicher Weise noch
 mindestens die nächsten 30 Generationen
 rocken und erfreuen mit ihrem hier als antik
-verstandenem R’n‚R . 🚬👅🕺💀🍡🎶
-Niedecken🗿und Jua ☀️ suwisuh.💃☔🥁
+verstandenem R’n‚R . ??????
+Niedecken?und Jua ☀️ suwisuh.?☔?
 Alter Kalker Adel versteht sich. ☀️Jua ist im
 Gegensatz zu den zwei anderen locker 450
 Jahre jünger. Für Jua ☀️ ist ja nicht 2421,
@@ -9874,7 +10446,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 120
+
 Datum 9. Mai 2021, 17:38
+
 120.Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen, die ständig
 bearbeitet und korrigiert werden:
@@ -9892,16 +10466,16 @@ Adresse:
 Sie geht mit dem Mikro brutal um, und
 erzeugt eine fette Rückkopplung, indem
 sie das Mikro direkt in eine PA-Box steckt.
-Von den 🥭 Kalkreaturen hört man nichts
+Von den ? Kalkreaturen hört man nichts
 mehr. Ich halte mir augenblicklich meine
 mir vorher schon mit Watte bestückten
 Ohren zu. Nach einigen Minuten läuft
 den Brüllaffen-Mutanten der Schmalz aus
-den 👂 Ohren. Jua ☀️bekommt die rote
+den ? Ohren. Jua ☀️bekommt die rote
 Karte; uns wird der Saft, der Strom also
 abgedreht. Zu Recht, oder nicht zu Recht?
-Ich 🥁beginne alleine unverstärkt
-mit dem 🥁Intro der Nummer Riff-Raff von
+Ich ?beginne alleine unverstärkt
+mit dem ?Intro der Nummer Riff-Raff von
 AC/DC. Keith Richards hätte liebend gerne
 dazu in die Saiten geschlagen, schätze ich.
 Niedecken hat schon mal die Bühne mit den
@@ -9913,13 +10487,13 @@ leider keiner.
 Höhenberg/Vingst Realschule-Abschluß-
 Feier den Stecker gezogen. Das Stück
 neigte sich schon dem Ende zu, als ich
-alleine🥁das Stück beenden musste.
-Der dreizehnjährige Hemi 🎸 Hamer, noch
+alleine?das Stück beenden musste.
+Der dreizehnjährige Hemi ? Hamer, noch
 vor dem Stimmbruch sich befindend,
 sang im Stück High Voltage
 die höchsten Stellen, wo unser Sänger
 Miguel nicht in der Lage war, so hoch
-zu krähen. Es war Miguel,s 🏫
+zu krähen. Es war Miguel,s ?
 Schulabschlußfeier. Schon nach den ersten
 Takten AC/DC Hardrockmucke kletterten
 die überraschten Schüler*innen über die
@@ -9928,7 +10502,7 @@ nach oben Richtung Aula-Ausgang; Chaos!
 Der Älteste war Bassmann Hubert T. Er,
 in orangefarbigen ultra kurzen
 Hotpantshosen, donnerte über seine
-Electrovoice Eliminator Boxen 🥊🥊,
+Electrovoice Eliminator Boxen ??,
 erbarmungslos AC/DC-gerecht mit Plek,
 das lange Live-Wire-Intro am Bühnenrand
 der vollen kleinen Schulaula stehend,
@@ -9965,19 +10539,19 @@ sei Dank, Postler-Betriebsfest.
 Zusammen mit ‚Rübezahl‘, die vorher
 auftraten, wir applaudierten höflich den
 späteren Brings und gewannen haushoch
-in der Gunst der Postler; ich🥁robbte mich
+in der Gunst der Postler; ich?robbte mich
 zurx-ten Zugabe offensichtlich
 demonstrierend,
 daß es keine weitere Zugabe mehr geben
 wird, so rasedoll und bierselig-high kam die
 AC/DC-Musi bei der Postfeier an. Da hätten
 wir dran bleiben sollen. Aber Coverbands
-waren total out. Die neue deutsche 🌊
+waren total out. Die neue deutsche ?
 Welle, Tote Hosen, noch ok, und Ärtze-Driss
 versauten uns den Spaß. AC/DC’s folgende
 LP’s wurden leider immer blutleerer. Die
 letzten beiden LP’s lassen hoffen. Vielleicht
-finde ich🥁heute Leute, die AC/DC’s LP:
+finde ich?heute Leute, die AC/DC’s LP:
 Powerage mit mir einüben möchten.
 Bitte melden! Das wärs doch, oder nicht?
 
@@ -9987,7 +10561,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 121
+
 Datum 10. Mai 2021, 14:15
+
 121.Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen, die ständig
 bearbeitet und korrigiert werden.
@@ -10001,11 +10577,11 @@ unter ‚Die schlimme andere Seite von Jua‘
 abgehakt. Eine lange Liste gibt es:
 Da gab’s Auftritte zu dritt, ohne Bass noch
 im heutigen Köln hier auf Planet Erde.
-Akkordeon,🎤 Blockflöte, 🎸Wandergitarre,
-Flügelhorn 🎺in zircensischer Wechsel-
+Akkordeon,? Blockflöte, ?Wandergitarre,
+Flügelhorn ?in zircensischer Wechsel-
 Instrumentierung als Vorgruppe einer
-Punkrockband💀🔨, bei der ich🥁 die
-Bassbegleitung über Mikro brummte🎤🐗
+Punkrockband??, bei der ich? die
+Bassbegleitung über Mikro brummte??
 Das Publikum, nur Punkrockfans hörten
 ungläubig zu, und waren so platt, daß sie
 bei Beendigung des ersten Stücks, der
@@ -10013,7 +10589,7 @@ dämonische klare deutsche Text
 von Sonja ☀️ verriegelte ihre überraschten
 Gehirne, zehn Sekunden in Totenstille
 verharrten, vergaßen zu applaudieren,
-bevor Christiane☔ deren Hypnose 🔨
+bevor Christiane☔ deren Hypnose ?
 löste, mit ihrer Bemerkung, daß sie eigentlich
 lieber bei Paul und dessen Mutter Christine
 bei dessen Geburtstagsfeier, wo sie
@@ -10035,7 +10611,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 122
+
 Datum 12. Mai 2021, 14:40
+
 122.Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen, die ständig
 bearbeitet und korrigiert werden:
@@ -10099,85 +10677,86 @@ Müllannahmeautomaten. Aus
 versicherungstechnischen Auflagen und
 typisch deutsch technokratischer
 Ablehnungshaltung, Faulheit nenne ich das,
-läßt man aber lieber Billig-Subfirmen mit Sklavenhaltermethoden
+läßt man aber lieber Billig-Subfirmen mit
+Sklavenhaltermethoden
 auf die arme, hilflose, im Plastikmüll
 erstickenden Grünstreifen, Parkanlagen,
 Friedhöfe los.
 
 WEITER IM SCHELMENROMAN MODUS:
 
-Wer sind diese 🐗Kreaturen, die mit ihrem
+Wer sind diese ?Kreaturen, die mit ihrem
 umweltfeindlichen Verhalten, die Umwelt-
 Natur schänden, indem sie ihren Müll da
 reinscheißen? Psychophaten, böse herzlose
-Unmenschen🔨? Oder sind’s gedankenlose
+Unmenschen?? Oder sind’s gedankenlose
 Konsumenten, denen es lästig ist ihren Müll
-im abfallbehälterdichtesten🗑️ Land der
-Welt, wer sonst,seid ihr mal in🇬🇧London
+im abfallbehälterdichtesten?️ Land der
+Welt, wer sonst,seid ihr mal in??London
 gewesen? Wer also ist bereit
 den ganzen schweren Weg bis zum
 nächsten Abfallbehälter durchzuhalten und
-das richtig schlimm, leider schwere🦛🤲
+das richtig schlimm, leider schwere??
 Teil die ganze Zeit in den Händen zu halten
-und dann erst ihren mitgeschleppten 🛷
+und dann erst ihren mitgeschleppten ?
 ‚Kaff to Go‘ Becher darin zu entsorgen? Es
 sind wir. Wie wir? Ich doch nicht! Menschen
-wie Du und🐗 ich! Das sind die frevelhaften Umweltschänder. Die anderen machen das
+wie Du und? ich! Das sind die frevelhaften Umweltschänder. Die anderen machen das
 doch auch, oder nicht? Da gibt es ein ☔
 psychologisches Problem. Was wird hier
 verdrängt? Wenn wir schlecht drauf sind,
 Identifizieren wir uns unbewusst mit dem
 Müll. Schmeißen wir die lästige Scheiße in
 den Scheißunkrautdrecksbusch rein geht’s
-uns irgendwie besser. Das nennt man🔨
+uns irgendwie besser. Das nennt man?
 Abreagieren. Sowas machen Kleinkinder
 ständig. Das sogenannte Unbewußte
 dirigiert, treibt ca. 80% unseres Handelns
 an. Es kennt, wie das fünfjährige Trotzkind,
 nur zwei Argumente:„ Lass ⚡mich!“,oder:
-„Mehr, mehr, mehr!„🐮🍭🍺⛽💸🛢️🛥️🏍️
-Das fälschlich auch Unterbewußte🚨🔫📺
+„Mehr, mehr, mehr!„???⛽??️?️?️
+Das fälschlich auch Unterbewußte???
 genannte Unbewußte übermächtigt uns
 ständig, wenn wir nicht ständig gegen-
 kontrollieren. Das Gefühl überrumpelt den
 Verstand, wenn wir nicht hellwach sind.
 Immer wieder Umnachtungen, für die wir
 uns leider immer wieder schämen müssen.
-Revierkonflikte 🔫feuern 🔥🌋zusätzlich an.
-Das ist menschlich. Leute mit ☃️🌚🖐🏾🧕💃
-Migrationshintergrund🗿👽👹🦏🗽🦔🌈
+Revierkonflikte ?feuern ??zusätzlich an.
+Das ist menschlich. Leute mit ☃️?????
+Migrationshintergrund???????
 hassen ⚡unbewußt deshalb öfters, weil sie
 ihre Heimat und Heimatnatur, die sie lieben
 und ehren würden, aber entbehren müssen,
 eintauschen mussten gegen ein fremdes
-Land, nur damit sie endlich mal Geld 💸 in
+Land, nur damit sie endlich mal Geld ? in
 die Finger kriegen können, da man im
 eigenen Land trotz guter Ausbildung so gut
 wie nix kritt. Ein Land, das sie
 daher unbewußt hassen, auch wenn sie es
 bewusst lieben, immerhin gibt es hier einen
-funktionierenden 🇩🇪Sozialstaat, erzeugt
-unbewußt einen 🐮Selbsthaß, den man
+funktionierenden ??Sozialstaat, erzeugt
+unbewußt einen ?Selbsthaß, den man
 beruhigen kann, wenn man andere, oder
 anderes haßt. Die fremdländische Natur
 unbewußt zu hassen, zu beschmutzen wird
 dann verständlich, ist verständlich besser
 als Einheimische zu hassen, zu strafen. Auf
 jeden Fall fühlt sich der Mensch besser,
-wenn er sich irgendwie an irgendwas 🌪️
+wenn er sich irgendwie an irgendwas ?️
 abreagieren kann. Mir auch und Dir auch.
-Da könnte Aufklärung oder finanziell💸
-schmerzhafte 💥Bestrafung für
+Da könnte Aufklärung oder finanziell?
+schmerzhafte ?Bestrafung für
 Naturschänder uns Konsumenten
 Erhellung, Erleuchtung bringen. Dann
-könnten ☃️🚴🏋️🍺💋🎸🍳👀☔🧗🤸🏌️
+könnten ☃️??️?????☔???️
 wir uns irgendwie anders, beispielsweise
-beim🥁 Schlagzeugspielen oder🥊beim
+beim? Schlagzeugspielen oder?beim
 Sport oder beim nervigen bösen Nachbarn
-🦏🖕nebenan, ich 🐗mach nur Spaß,🔨
-abreagieren👊. Das ist absolut kein🔞 Anti-
+??nebenan, ich ?mach nur Spaß,?
+abreagieren?. Das ist absolut kein? Anti-
 ‚Ausländer‘ Statement, daß das klar ist. Zur
-Hölle 👹mit dem, der mich hier
+Hölle ?mit dem, der mich hier
 mißverstehen will! Meiner Meinung nach
 bringt und will der Nationalismus Krieg,
 oder will einen Krieg auslösen;
@@ -10191,7 +10770,9 @@ Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
 Kapitel 123
+
 Datum 14. Mai 2021, 11:11
+
 123.Teil, Schelmenroman von Georg Dickas,
 in Fortsetzungs-Folgen, die ständig
 bearbeitet und korrigiert werden.
@@ -10234,15 +10815,15 @@ Raketenbeschuss ⚡von der Hamas
 auf Israel passiert, oder nicht, erhält, da er
 wie meist bei einem israelischen ✡️
 Arbeitgeber beschäftigt war, will etwas mit
-der Hamas 👹 zutun haben wollen? Neben
+der Hamas ? zutun haben wollen? Neben
 Deutschland ist Israel das weltweit einzige
-Land, daß seine freiwillig ausgezahlte 💸
+Land, daß seine freiwillig ausgezahlte ?
 Sozialhilfe nicht zurückfordert. Also nicht
 als Kredit rausgibt, der nachträglich, wenn
 der Mensch nach seiner Bedürftigkeit
-wieder einer 💸bezahlten Arbeit nachgehen
-kann, per Lohnpfändung🦉 zurückgezahlt
-werden müsste, wie beispielsweise in🗼
+wieder einer ?bezahlten Arbeit nachgehen
+kann, per Lohnpfändung? zurückgezahlt
+werden müsste, wie beispielsweise in?
 Frankreich. Patriarchale Strukturen feuern
 den Wahn der irren Haßstrotzer und
 National-Blut-und-Boden-Fetischisten
@@ -10284,17 +10865,19 @@ seine Eigene kommt ihm dazwischen.
 
 Autor Schorsch Tantekel
 Kapitel 124
+
 Datum 14. Mai 2021, 22:46
+
 124.Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen die ständig
 bearbeitet und korrigiert werden.
 Jua-Band-Bio, Der Steinzeit-Trip:
 
-Das DUB startet 🚀vom Mars 👽 zum
+Das DUB startet ?vom Mars ? zum
 Saturnmond Enceladus. Ein
-Musikerparadies🎶erwartet uns dort.
+Musikerparadies?erwartet uns dort.
 Die älteste humanoide
-Auswanderercolonie der frühesten 👥
+Auswanderercolonie der frühesten ?
 Erdebewohner*innen ist hier seit über 65
 Millionen Jahren im Inneren absolut sicher
 vor cosmischen ☄️Störungen aller Art. Daß
@@ -10321,18 +10904,18 @@ Energie der Wärme der Erde. Das „Es“
 lebt andauernd und fast ewig also. „Es“
 ist halt nur ortsgebunden. Man kann das
 „Es“ aber besuchen, (siehe Kapitel 1)
-Kai🦅nutzt die Flugreise auf seine Weise
+Kai?nutzt die Flugreise auf seine Weise
 und macht drei Ehrenrunden um Saturn,
-bevor Christiane ☔ findet, es sei jetzt 🧿
+bevor Christiane ☔ findet, es sei jetzt ?
 genug der Durchkreuzung der weißen
-Ringe, bevor das DUB 🚀 mit einem der ☃️
+Ringe, bevor das DUB ? mit einem der ☃️
 weißvereisten unzähligen Gesteinsbrocken
 kollidiert. Kai riskiert, er kann rechnen, so
 gut wie nichts. Das Schauspiel der
 optisch sensationell günstig sich vor
 unseren Augen auf dem riesigen
-halbkugelförmigen Großbildleinwand-📺
-Bildschirm sich im abgedunkelten DUB🚀
+halbkugelförmigen Großbildleinwand-?
+Bildschirm sich im abgedunkelten DUB?
 darbietenden Durchquerung der Saturnringe
 will Kai immer wieder erleben. Christiane ☔
 kann ihn nicht im Geringsten daran hindern.
@@ -10353,8 +10936,10 @@ versierter Maschinerie umzusetzen. Keine
 400 Jahre nach ihrer Entdeckung der
 Elektrizität, und der dann sich
 explosionsartig weiterentwickelten
-Wissensstandes über alle physikalischen Erkenntnisstufen der
-biochemischen mit einer nicht-biologischen Verflechtungs-Strategie-Mathematik hinaus,
+Wissensstandes über alle physikalischen
+Erkenntnisstufen der
+biochemischen mit einer nicht-biologischen
+Verflechtungs-Strategie-Mathematik hinaus,
 unter Einbeziehung ultraschneller,
 selbstprogrammierender, intelligenter
 Fertigungsrobotik, konnten sie eine alles
@@ -10363,21 +10948,21 @@ subatomare Aufbau-Strukturen nutzen,
 um die riesigen stabilen Raumkreuzer
 unglaublich schnell und einfach, quasi aus
 jedem Stoff, wie Wasser, Pflanzen und
-Steinschutt im Nu zu krähiehren🦅. Spaß
+Steinschutt im Nu zu krähiehren?. Spaß
 muß sein, oder nicht?
 Die Zeit bis zum, von ihnen schon tausend
 Jahre vorher berechneten Einschlag des
-großen Meteoriten im heutigen☄️💥
+großen Meteoriten im heutigen☄️?
 Mittelamerika, damals wegen der Platten
 Tektonik an anderer Stelle sich befindend,
 feuerte die rasante Entwicklung der bis
 heute bei uns nicht mal denkbaren hohen
-Hightech-Niveaus enorm 🛸an. Schon vor
+Hightech-Niveaus enorm ?an. Schon vor
 ca. einer Millionen Jahren gab es eine
-Hochkultur auf der 🌏Erde, die unserer
+Hochkultur auf der ?Erde, die unserer
 überlegen war, die nach einer fahrlässigen
-Klimawandel-Katastrophe🌪️🔥🏜️💀 vom
-ursprünglichen Heimatplaneten Mars, 👽
+Klimawandel-Katastrophe?️??️? vom
+ursprünglichen Heimatplaneten Mars, ?
 abermals nach einer Katastrophe, diesmal
 ein Atom-Weltkrieg☢️ auf der erstmals von
 Menschen besiedelten Erde, gezwungen
@@ -10409,7 +10994,7 @@ im Wasser von Enceladus in dessen Mitte
 verankert ist und die Lebensgrundlage der
 Menschen solide sichert, und eine Stadt
 beherbergt, die so einzig wunderbar schön,
-durch und durch echt raffiniert verstrebt, 🕸️
+durch und durch echt raffiniert verstrebt, ?️
 von allen Enden her durchzogen ist von Glas
 -Bahnen, türkis, weiß, zitronengelb und matt
 -schwarz-dunkeltransparent-blau, teils ➖
@@ -10417,25 +11002,26 @@ Röhren, teils bewaldet über in übereinander
 angelegten Flächen, Etagen, bewegliche,
 und helle aus sich, wie Leuchten strahlende
 Pflanzen überall. Ich bin zu möd um wigger
-zu schriewe, lewe Lück, bis morje.🛌. Im
+zu schriewe, lewe Lück, bis morje.?. Im
 letzten Traum, bin gerade im DUB-Bordwald
 aufgewacht, da schlafe ich immer noch am
 liebsten, zwitschert mir ein Vögelein, daß es
 lange nicht geregnet hat und ich soll nicht
 vergessen aufs Wassertanken hinzuweisen
-in Enceladus dem Kommandeur 🦅Kaakei,
-🍺der das tun muss, wenn wir durchs Eis
+in Enceladus dem Kommandeur ?Kaakei,
+?der das tun muss, wenn wir durchs Eis
 durch sind, direkt dann im Anschluss. Uns
-DUB 🚀,ein intergalaktisch flugreisefähiges,
+DUB ?,ein intergalaktisch flugreisefähiges,
 rohrförmiges Drill-U-Boot, gräbt sich bereits
-durch die hunderte 🔘Kilometer dicke
+durch die hunderte ?Kilometer dicke
 meist aus Eis bestehende Oberfläche des
-eisigen Saturn-Mondes🌖. Es wird ruhiger,
-da das DUB 🚀 jetzt durch ist, abtaucht und
+eisigen Saturn-Mondes?. Es wird ruhiger,
+da das DUB ? jetzt durch ist, abtaucht und
 schwebend durch tausend Kilometer tiefe
 Wasserschicht zwischen dem Oberflächen-
 Eismantel und der nächsten Eisschicht, der
-Schutz-Ummantelung mit der Hightech-Schutzvereisungskühlungsschicht
+Schutz-Ummantelung mit der Hightech-
+Schutzvereisungskühlungsschicht
 schwimmt. Das durchbohrt dann das DUB,
 vollautomatisch gelotst von Enceladus, bis
 zur Andockstelle, von unten nach oben
@@ -10455,42 +11041,42 @@ wie Zauberei, oder wie Erschaffung
 aus Gedankenkraft, ist hier auf Enceladus
 normale Fertigungstechnikstandartnorm.
 17.5.‚21
-Die letzte Schleuse ist zu. Kai🦅 verriegelt
+Die letzte Schleuse ist zu. Kai? verriegelt
 die Ausstiegsluke des DUB. Ein Aufzug
 bringt uns vom U-Boot-Hafenkai in die
 Dusel-Bar-Lounge im Metropol Hotel
 im Rathausanbau der Megacity „Duseldorf“
 lästert Nik ‚Knatterton‘ krähend und lacht
-auch so. Kai 🚬 bestellt Kölsch, bekommen
-aber Alt. Egal, deutsches 🍺 Bier gibt’s hier,
+auch so. Kai ? bestellt Kölsch, bekommen
+aber Alt. Egal, deutsches ? Bier gibt’s hier,
 Sensationell! Die Ober-Bürgermeisterin, die
 eine dunkelhäutige zierliche freundliche
 uralte Person im schwebenden Sessel ist,
-lacht herzlich über unsere Freude am 🍺
+lacht herzlich über unsere Freude am ?
 Bier. Wir können unsere Corona-Schutz-
 Masken abnehmen. Die Leute hier unten
 sind unheilbar uninfizierbar gesund. Und
 das schon länger. „seit 65.450.001 Jahren,
 um genau zu sein.“antwortet sie Jua’s Nik,
-ob das ok sei mit der Schutzmaske. Nur🎤
-Sonja☀️ und🥁 Schorsch sind 1 x geimpft.
-Das Bier🍺 war eine 🦠Falle, uns wird ganz
-💥anders. Wir schaffen es nicht, alles 🤪
-auszukotzen, 🤮bevor wir auf einen echt
-mächtigen ☔schwer schlimmen🐛 leider
-richtig 💥bösen 💀Alptraumtrip 👀sind. Es
-fällt bei jedem 🧟Wort, mit dem wir Juas
-gemeinsam 🦃protestieren die👅 💀Zunge
-aus dem Mund und fährt uns in die 👃Nase
-der anderen 🐄hinein. So versteht die 🧞
-Oberbürgermeisterin nicht was😵wir wollen.
+ob das ok sei mit der Schutzmaske. Nur?
+Sonja☀️ und? Schorsch sind 1 x geimpft.
+Das Bier? war eine ?Falle, uns wird ganz
+?anders. Wir schaffen es nicht, alles ?
+auszukotzen, ?bevor wir auf einen echt
+mächtigen ☔schwer schlimmen? leider
+richtig ?bösen ?Alptraumtrip ?sind. Es
+fällt bei jedem ?Wort, mit dem wir Juas
+gemeinsam ?protestieren die? ?Zunge
+aus dem Mund und fährt uns in die ?Nase
+der anderen ?hinein. So versteht die ?
+Oberbürgermeisterin nicht was?wir wollen.
 Sie verlangt jetzt, das wir ihr was vorsingen
-möchten, obwohl das 😱 schwierig wird.
+möchten, obwohl das ? schwierig wird.
 Wir geben alles, aber es klingt leider sehr
 verkrampft. In unserer Not, wir möchten ja
 nicht ausgeschlossen werden beim Reggae
 -Band-Battle am morgigen Abend. Die
-Zungen👅 hören nicht auf Unfug zu treiben,
+Zungen? hören nicht auf Unfug zu treiben,
 jetzt zwingen die uns fremdartige Texte in
 Western-Swing Art zu singen, obwohl der
 Kehlkopf und der Verstand das nicht will,
@@ -10501,8 +11087,8 @@ Das war Alt-Bier, und nicht Jua, oder nicht?
 Die Oberbürgermeisterin ist angewidert und
 läßt uns zurecht wegsperren. Robert muß
 ran. Er ist ein ausgezeichneter Bauchredner.
-Er hält sich seine widerspenstige Zunge 👅
-fest😛 und schaltet sie geschickt aus. Er
+Er hält sich seine widerspenstige Zunge ?
+fest? und schaltet sie geschickt aus. Er
 fängt aus dem Bauch heraus an, B. Marley’s
 ‚No Woman, no Cry‘ zu jammern, und, Glück
 gehabt, er kann die O.B. zum Schmachten
@@ -10510,12 +11096,12 @@ bringen, und wir können endlich auf unsere
 Zimmer gehn. Immer noch mit den uns
 gegenseitig ineinan…. Bäh, wat
 en fies Trip, die uns rinjedeut han. Ich bin
-möd, ab in die 🛌Kist. „ Schorsch Opston,
-Los Jon!“Kapitän Kai 🦅und Nik ziehen mir
+möd, ab in die ?Kist. „ Schorsch Opston,
+Los Jon!“Kapitän Kai ?und Nik ziehen mir
 die Decke weg. Ich steh auf und folge ihnen
 heimlich und trete Kai in den Hintern bevor
 ich mich ins Bad flüchte. Der Luxus hier ist
-angenehm; das lustvolle Badezimmer 🤖
+angenehm; das lustvolle Badezimmer ?
 Roboter-Personal bedient mich wortlos
 genau so wie ich es gerne hätte. Waren das
 jetzt solche? Können die meine Gedanken
@@ -10536,18 +11122,18 @@ wollen. Beim Proben direkt nach dem
 Frühstück im Studio der Musikschule
 entscheiden wir uns für die ‚Wild Dirigat-
 Methode‘, eine von dem legendären Kölner
-Jazz-Schlagzeuger 🥁Frank Köllges, Gott
+Jazz-Schlagzeuger ?Frank Köllges, Gott
 hab ihn selig, vorangetriebene,
 propagierte, für intuitive Improvisation
 gedachte Dirigier-Methode, plus so meine
-eigene Idee, ich bin Jua’s 🥁Georg Dickas,
-🔦Taschenlampen, die jeder von uns parat
+eigene Idee, ich bin Jua’s ?Georg Dickas,
+?Taschenlampen, die jeder von uns parat
 hat, als Helmleuchte, die ein+ausschaltbar
 sind, mittels Signalgeber© 2021 oder eines
-Mund-Schalters oder einer das Licht 💡
+Mund-Schalters oder einer das Licht ?
 steuernden Schaltung über ein Tonsignal
 einer kleinen Flöte ; ich wende meinen Kopf
-und ziele mit dem Lichtstrahl 🔦,den ich mit
+und ziele mit dem Lichtstrahl ?,den ich mit
 einem Pfiff einschalte auf eine
 Mitspielerin und diese merkt das, auch
 wenn sie versehentlich geschlossene
@@ -10556,14 +11142,14 @@ laufende Musikgeschehen. Beim Bemerken,
 beim Anrufen also kann, muß aber nicht ein
 Einsetzen erfolgen. Erlischt der Spielaufruf
 sollte sofort, oder fast sofort gestoppt
-werden. Zusätzlich wird bei jedem eine 💡
+werden. Zusätzlich wird bei jedem eine ?
 Lampe angebracht, eine Idee der Sängerin
 Mary Noele Dupuis, ihr sogenanntes
 Lichtdirigat, für den Fall daß jemand an
 dem Schalter-Pult steht, dirigierend durch
 ein- und ausschalten ohne selbst zu spielen,
 sondern alleine zentral dirigieren möchte.
-Bei mitgebrachten, 🐟 den anderen 🐗
+Bei mitgebrachten, ? den anderen ?
 Mitspielern noch unbekannten vorläufig
 arrangierten Kompositions-Vorschlägen,
 gehen wir, ähnlich dem Be-Bop, so vor, daß
@@ -10571,23 +11157,23 @@ die rhythmische Phrase bevor wir loslegen
 vorgestellt wird, sobald diese gemerkt ist,
 anfangen können mit dem ansonsten freien
 Spielen. Der Vorteil ist offensichtlich,
-wenn mehrere🗿🗽👥Köpfe sich was dazu
+wenn mehrere???Köpfe sich was dazu
 einfallen lassen können, daß dann eine
-fruchtbarere Ausbeute an 💡Ideen 🧠
-wahrscheinlich macht. Eine gute 👣🦌
-Kompositionsidee💡könnte dadurch
-besser, schöner🦄, witziger, geschlossener,
-🎰 substantieller 🍳,niveauvoller
-hitverdächtiger 💣🎰🎯
-und sinnvoller werden. Eine gute alles 🎲
-entscheidende kleine Sache, kann eine 🎶
+fruchtbarere Ausbeute an ?Ideen ?
+wahrscheinlich macht. Eine gute ??
+Kompositionsidee?könnte dadurch
+besser, schöner?, witziger, geschlossener,
+? substantieller ?,niveauvoller
+hitverdächtiger ???
+und sinnvoller werden. Eine gute alles ?
+entscheidende kleine Sache, kann eine ?
 perfekte Wahnsinns-Hook-Line bringen, und
-es wird ein 👂 Ohrwurm🐛geboren. 🐦🎰
-Das mach richtig Spaß, so eine hitzige🔥
-Schweißjagd 🐗📯durch das gemeinsam
-betriebene 🔍Suchen und 🎯Finden, direkt
-beim spontanen🎺 Musizieren. Das nennt
-man übrigens Jazz.🎷Wenn ich 🥁gerade
+es wird ein ? Ohrwurm?geboren. ??
+Das mach richtig Spaß, so eine hitzige?
+Schweißjagd ??durch das gemeinsam
+betriebene ?Suchen und ?Finden, direkt
+beim spontanen? Musizieren. Das nennt
+man übrigens Jazz.?Wenn ich ?gerade
 nicht spiele, nur konzentriert zuhöre, kann
 ich mir währenddessen einen anderen
 eventuell kontrastreichen gegensätzlichen,
@@ -10616,7 +11202,7 @@ ran, ich sabotiere die langatmige Ansage
 und erlöse das ungeduldige Mensch-
 Maschinen und Mensch-Mutantenpublikum,
 daß sich vor Ungeduld dauernd zugedröhnt
-hat mit 🥁💣einer Schlagzeugbombe als
+hat mit ??einer Schlagzeugbombe als
 Intro für Jua’s Roots-Reggae Stück „Stupid
 Heads“.Sonja erklärt dem intergalaktischen,
 interstellar-antinational gesinnten Publikum,
@@ -10635,12 +11221,13 @@ weltweit und die bremst verschwörerisch
 eine Sache aus, bei der es keine
 Zeitverzögerung geben dürfe.„ Buuh“, das
 Publikum will keinen Verzell, kein langes
-Pathosgesülz. Deren organisch integriertes Gehirnerweiterungssystem hat eine
+Pathosgesülz. Deren organisch integriertes
+Gehirnerweiterungssystem hat eine
 cosmische Sprachübersetzungsfunktion,
 sie verstehen Sonjas Texte perfekt. Ich bin
-so 🥁 frei, und beginne mitten in Sonjas☀️
+so ? frei, und beginne mitten in Sonjas☀️
 Lamento Rede mit eins, zwei anzählend,
-‚Zurück auf den 🗻 Berg‘. Die Ska uptempo
+‚Zurück auf den ? Berg‘. Die Ska uptempo
 Nummer puscht und hebt die Laune der
 Reggae-Fans. Sonja bleibt trotzdem cool.
 Christianes Text ist ausnahmsweise frei
@@ -10654,22 +11241,22 @@ unterm Sternenzelt zu übernachten. Das
 mache ich auch schon mal gerne. Das weiß
 sie nur nicht. Ich fühl mich dann leider echt
 schwer gut erneut:
-Hund’s🐕schnut weckt,
+Hund’s?schnut weckt,
 Morgenrot schreckt,
 Sonn heller geht.☀️steh froh auf,
-Schlaf gesackt, Radel 🚴bepackt,
+Schlaf gesackt, Radel ?bepackt,
 Kalkpostkaffee☕gut.
-Es schreibt sonst 🎼💡📝
+Es schreibt sonst ???
 Betroffenheitstexte Christiane☔ pur,
-„Zurück auf den 🏔️Berg“ zeigt’s; nicht nur:
-Sie sang 🎤🎸 🎺🧹🧚 schon vor Jahren
+„Zurück auf den ?️Berg“ zeigt’s; nicht nur:
+Sie sang ?? ??? schon vor Jahren
 auch ein Lied darüber, und darin über den
 Mond, dessen Reise um die rasende Erde.
 Doch dann ein krasses Ende mit Sperrung
-des Naturgeländes; Stadt🕷️-Bebauplan für,
+des Naturgeländes; Stadt?️-Bebauplan für,
 so der infame unglaubliche Immobilien-
 Schacher-Spekulanten Skandal-Plan: Ein
-neuer🚁Rettungs-Hubschrauberlandeplatz
+neuer?Rettungs-Hubschrauberlandeplatz
 soll her. Eine üble Vernebelungstaktik
 beherrscht seitdem, von wegen schnellere
 Rettung von zukünftigen Autounfallopfern,
@@ -10679,44 +11266,44 @@ Immobilienspekulanten stand an:
 So leider geschehen, ging das seit Jahren:
 Ein Millionen Grab, was soll solch Gebahren,
 Hubschrauberrettungslandeplatz-Horst, da?
-Stadt🕷️+💰lmmobilhändlerabzock-Tralala
+Stadt?️+?lmmobilhändlerabzock-Tralala
 
-Auf Naturidyll über Kalks🚙🚗 Autoverpest,
+Auf Naturidyll über Kalks?? Autoverpest,
 Das gibt dem Nord-Kalk-Veedel den Rest.
-Schrubhauberlärm,🚁📣🎌
-da, wo die Lück sin ärm,🐀🚬🧦
+Schrubhauberlärm,???
+da, wo die Lück sin ärm,???
 
-Sinken sollten da die Wohnbaupreise. 💰
+Sinken sollten da die Wohnbaupreise. ?
 Am alten Platz sollen steigen Bodenpreise!
-Korruption in klüngelkölscher Weise?🕷️
+Korruption in klüngelkölscher Weise??️
 Da plötzlich, na sowas, Fehlplanbautirade!
 Der Berg leider instabil, Millionen Euro ade?
 Falsche Gutachten als schlechte Beweise?
 
-Immobillig-Spekulantentusch,🎉 💸💵💰
-Dank dem fiesen Stadt-Baufusch!👷🔨🧨
+Immobillig-Spekulantentusch,? ???
+Dank dem fiesen Stadt-Baufusch!???
 Gewinnmitnahme, getarnt als Platzaufgabe?
-Drei Freunde teilen sich die 🍫 Schokolade:
+Drei Freunde teilen sich die ? Schokolade:
 Baufirmen, Stadt, Immobis kassieren dabei?
 Alaaf dem-Dreigestirn, korrupter Klüngelei!
 
 Kalkberg-Rundblick-Ruh unter Sternenmeer.
-Das🌌 gibt’s heute leider auch nicht mehr.
-Für💰 Millionen kaputt verbaut, versaut,🐗
-haben 🗽freies Subkulturgelände geklaut.
+Das? gibt’s heute leider auch nicht mehr.
+Für? Millionen kaputt verbaut, versaut,?
+haben ?freies Subkulturgelände geklaut.
 
-Darum🗽🔨 ging’s nämlich auch,
-ganz🕷️ nebenher. 🔍💡☔🎺🎶🍳🧚🐀
-Um der Kalk🏔️-Subkult-Platz-Kontrolle?🎦
-📸 Na logo, um die volle!👀
+Darum?? ging’s nämlich auch,
+ganz?️ nebenher. ??☔?????
+Um der Kalk?️-Subkult-Platz-Kontrolle??
+? Na logo, um die volle!?
 
 Für Stadt+Immobilospekulantis lohnt’s sich!
-Erwischt🕵️, kommt eh‘ alles🕷️ ans Licht💡
+Erwischt?️, kommt eh‘ alles?️ ans Licht?
 das auszusprechen, dicas, sei mir ne‘ Pflicht;
 Nomen est omen, ist es nicht?
 
 Ewer suwisu, un anunfüsich,
-dat jilt uch für 🎺🎸🎤☀️💡
+dat jilt uch für ???☀️?
 Jua sing Nam; Jua: Kisuaheli=Sonne=Licht.
 Oder nicht?
 
@@ -10732,9 +11319,11 @@ Kein Mensch ist illegal! Ganz links
 orientierte Sofa-Ideologen“ zugehört:
 Trinker, Süchtige, hochverschuldete per
 Haftbefehl Gesuchte, und die vom Partner
-meist zurecht in die Obdachlosigkeit Rausgeschmissenen, und Personen die
+meist zurecht in die Obdachlosigkeit Raus-
+geschmissenen, und Personen die
 ganz allgemein per Haftbefehl, meist
-können diese nicht mit Geld umgehen, in Zwangsvollstreckungsangelegenheiten
+können diese nicht mit Geld umgehen, in
+Zwangsvollstreckungsangelegenheiten
 durch Inkassobetriebe vors „Stand„Gericht
 gezerrte psychisch labile mathematisch
 ungebildete Kandidaten, gesucht werden,
@@ -10832,7 +11421,7 @@ WEITER IM SCHELMENROMAN:
 Als drittes Stück spielen wir „Chang Chang“,
 eine Jua Coverversion des von Ibrahim
 Ferrer geschriebenen Songs aus dessen
-Hit-Album📀 : „Buena Vista Social Club“,
+Hit-Album? : „Buena Vista Social Club“,
 in dessen Mitte wir Christianes☔Lied
 „Kohlesong“ einfügen können. Da ein Rap-
 Teil in „Chang Chang“ eingebaut ist, der die
@@ -10843,28 +11432,29 @@ frevelhaften Zerstörunggewalt an der Natur
 durch NRW-RWE in NRW bei Köln.
 Es ist ein Afro-Cuban, im sechsachtel
 Samba, zum Viertakter verlängerter
-Doppeltakter, ein von mir so gemodeltes Schlagzeugrhythmus-Arrangment, für die
+Doppeltakter, ein von mir so gemodeltes
+Schlagzeugrhythmus-Arrangment, für die
 „Chang Chang„Komposition. Die umrahmt
-den Kohlesong, der im Halftime-🗿Indianer-
+den Kohlesong, der im Halftime-?Indianer-
 Rhythmus daherkommt, der konstant die
 Eins stark betont, der sich wiederum mit
 einem sog. Purdie-Shuffle-Groove
 abwechselt. Der spezielle„Chang Chang“
 Schlagzeug-Beat hätte mir nie einfallen
-können ohne die 🏫 Schulung durch den
-grandiosen Schlagzeuglehrer 🥁Rolf Behet,
+können ohne die ? Schulung durch den
+grandiosen Schlagzeuglehrer ?Rolf Behet,
 den ich hier unbedingt danken und weiter-
 empfehlen möchte. Eventuell habe ich mich
 bei der Beschreibung der spez. Beats nicht
 korrekt ausgedrückt, ich bin ja kein
-studierter🎼 Notenfresser, aber jeder 🥁
+studierter? Notenfresser, aber jeder ?
 Amateur-Drummer sollte mal bei einem
 Profi Stunden nehmen, das bringt’s leider
 echt richtig gut. Ausgerechnet Sängerinnen
-und 🥁Schlagzeuger*innen hemmen sich
+und ?Schlagzeuger*innen hemmen sich
 oft stur dagegen, Stunden zu nehmen. Das
 finde ich schade und, ich war auch so drauf,
-ziemlich dumm, leider zu dumm zum, 🐗
+ziemlich dumm, leider zu dumm zum, ?
 oder wie, oder was? Kai:„ Is jet? Hau blos af
 do, suns jiddet jet, Fründche!“ Ein Mutant
 nervt unseren Tour-Manager Kaakei, der die
@@ -10918,7 +11508,7 @@ Leistungsshow der galactischen Art; Jua
 kackt hier voll ab. Die Auszählung bestätigt
 den letzten Platz für Jua. Kaakei darf sich
 einen Trostpreis für Jua ☀️aussuchen. Er
-🦅nimmt für sich und Jua nichts wirklich
+?nimmt für sich und Jua nichts wirklich
 Wertvolles aus dem fantastisch obskur
 sortierten Angebot der großzügigen
 Festivalbertreiber, wie z.b.: Ein metallic-rot
@@ -10929,44 +11519,44 @@ mit drei Jahre Garantie und eine einjährige
 bezahlte Unfallvollkasko-Versicherung.
 Wie bescheiden er doch ist, einen Saurier-
 Knochen aus feinstem gepreßten Scrylos-
-Haschisch läßt er 🦅sich aushändigen.
-Das gefällt allen Jua ☀️☔🐗🐀
-🍳☔🧦🚬🍳🎶🧹💀🦴👁️Musikantinnen
-🎸und Musikanten und 🎺besonders mir🥁
+Haschisch läßt er ?sich aushändigen.
+Das gefällt allen Jua ☀️☔??
+?☔????????️Musikantinnen
+?und Musikanten und ?besonders mir?
 Am nächsten Morgen, irgendwo finden wir
 uns wieder, werden alle gleichzeitig wach,
 haben merkwürdige Klamotten und fühlen
 uns federleicht gut, wie glücklich abgeküsst.
-Die Insekten füttern uns mit leider guten🍛
+Die Insekten füttern uns mit leider guten?
 Irish Stew und Irish Coffee. Wir sind stewed.
-☕Außer🦅 Kaakei, der mehr bräuchte um
-so blau wie👥 Jua zu sein. Er verlangt 🥃
+☕Außer? Kaakei, der mehr bräuchte um
+so blau wie? Jua zu sein. Er verlangt ?
 Zuschlag und bekommt prompt Nachschub.
 Die Dudelsack-Musik im Hintergrund ist
 berauschend. Es läuft eine 3D remasterte
 „Laurel und Hardy“,“ in der Fremdenlegion“
-Filmausgabe📽️ in der Dusel-Lounge Bar
+Filmausgabe?️ in der Dusel-Lounge Bar
 auf einer Kino gemäßen großen Leinwand.
 Die hypnotische Dudelsackmucke ist ein
 echter Ohrenschmaus. Die Insekten, es sind
 sympathische Riesenteile erklären uns
 derweil die Filmhandlung und servieren uns
-den duftenden Erdbeer in 🍓Schlagsahne-
-🍦Nachtisch.„Hier bleiben wir.“Markus holt
+den duftenden Erdbeer in ?Schlagsahne-
+?Nachtisch.„Hier bleiben wir.“Markus holt
 seine große elektrische ✓Pfeife aus seinem
 Turban und läßt sie kreisen. Hier werden
 wir bleiben, wir haben keine andere Wahl.
-Haben wir? Erstmal; ☕🥃nein. Nach dem
+Haben wir? Erstmal; ☕?nein. Nach dem
 herrlichen Essen steigen wir auf die
-Miet-Raketenradel🚴. Ein Einführungskurs
+Miet-Raketenradel?. Ein Einführungskurs
 sollten wir nicht ablehnen. Aber erst in drei
 Stunden nach einem ersten Abklingen der
 Wirksubstanzen beim Planschen im Pool
-🤽. Beim Treten in die Pedale merken wir
+?. Beim Treten in die Pedale merken wir
 erst, wie sehr wir das Radeln nicht mehr
-genießen konnten. Zuletzt im 🏞️✨🦃🦚
-Paradiesgarten 🌳war es nur ein kurzes
-Vergnügen gewesen. Siehe Kapitel 78.🚴
+genießen konnten. Zuletzt im ?️✨??
+Paradiesgarten ?war es nur ein kurzes
+Vergnügen gewesen. Siehe Kapitel 78.?
 Es ist gefährlicher zu fahren als zu fliegen.
 Das erklärt uns der Trainer, der im Radel
 eingebaut ist. Das Radel spricht uns Mut
@@ -10980,26 +11570,26 @@ Begleitung, so wie wir es spielen möchten.
 Eine sehr brauchbare Zusatzfunktion. Sie
 gehorchen unseren Gedanken treu und
 ergeben. Wir würden sie gerne mit aufs
-DUB 🚀 nehmen. Damit in Kalk rumdüsen,
+DUB ? nehmen. Damit in Kalk rumdüsen,
 oder eine Jua-Tour im Sommer nach dem
 Corona-Desaster. Das wünschen wir uns,
 das wird schön. „Warum nicht?“antworten
-die Raketenräder🚲 unserem gemeinsam
-gedachten Wunsch* 👀und schon sind wir
-an Kalk Kapell🏰, auf Kurztrip. Enceladusel
-🌉macht’s möglich und holt uns jederzeit
-zurück nach Enceladus, wo das 🚀DUB und
-🚬Kai🦅🍺, Fips🐒, 🐘Balu,🦖 Ropterex,
-🎤 Nik, 🐻 Gummi, 🍵🚀Igor, Moritz🎸,
-Claudia,🚬 Boris, unser 🇷🇺russischer🇮🇱
+die Raketenräder? unserem gemeinsam
+gedachten Wunsch* ?und schon sind wir
+an Kalk Kapell?, auf Kurztrip. Enceladusel
+?macht’s möglich und holt uns jederzeit
+zurück nach Enceladus, wo das ?DUB und
+?Kai??, Fips?, ?Balu,? Ropterex,
+? Nik, ? Gummi, ??Igor, Moritz?,
+Claudia,? Boris, unser ??russischer??
 Chor, auf ☀️Jua warten. Wir spielen bis
-das Ordnungsamt👮 kommt, maßregelt
+das Ordnungsamt? kommt, maßregelt
 und versucht uns zu vertreiben; „alle 20
 Minuten 300 m weiterziehen!“„Sir, yes Sir.“
-die Räder 🚲sind höflich und fliegen
+die Räder ?sind höflich und fliegen
 schwebend und dabei weiter singend ohne
 uns schon mal voraus, während wir mit der
-der Stadtsheriff-Außenbereichs-👩‍✈️
+der Stadtsheriff-Außenbereichs-?‍✈️
 Staffelleiterin, noch blöd rumfeixen. Diese:
 „Verstoß gegen die Deutsche Reichs-
 Straßenmusik-Verordnung!“„Von Anno
@@ -11007,28 +11597,28 @@ Dunnemals 1933?“fragt Stefanie.„Das
 waren wir nicht, das waren die 6 Räder.“
 korrigiert Markus.“SA:„Ach was!“„Seht ihr
 Instrumente?“fragt Robert zurecht und laut.
-Inzwischen hält die ‚Schmier‘ 🚓mit lauter
+Inzwischen hält die ‚Schmier‘ ?mit lauter
 Blaulichtsirene, typisch Kalk, immer massiv
 übertrieben zahlreich präsent, quer vor uns
 auf dem 6 Meter breiten Boulevard der
 Kalker Hauptstraße vor der Kalker Kapelle
-Es gibt ein gepfeffertes 💶Bußgeld;
+Es gibt ein gepfeffertes ?Bußgeld;
 wegen Flugdrohnen-Mißbrauch mit
 drohender Flugverkehrs-Gefährdung, und
 ein Psych-KG-Einweisungsbescheid für
-Christianes dagebliebenes sprechendes🚲
+Christianes dagebliebenes sprechendes?
 Raketenradel. Im letzten Moment flieht es
 mit einem Senkrechtstart auf das Dach
 des Bezirksrathauses und schmettert das
-Jua-Lied : Montagskeller. Die Feuerwehr🚒
+Jua-Lied : Montagskeller. Die Feuerwehr?
 ist schnell bestellt zur Stelle, fährt die Leiter
-aus und nimmt das 🚲Rad, die angebliche
+aus und nimmt das ?Rad, die angebliche
 Flugdrohne für die Schmier in Gewahrsam.
-🚓Es ist blamiert bis auf die Speichen. Es
-kommt in die Klappse nach Merheim, da 💊
+?Es ist blamiert bis auf die Speichen. Es
+kommt in die Klappse nach Merheim, da ?
 war ich auch schon mal zu Gast. Wird es da
 wie üblich 6 Wochen bleiben müssen, oder
-nicht? Ich muß dringend in die Kist 🛌Es ist
+nicht? Ich muß dringend in die Kist ?Es ist
 24Uhr, jetzt aber. „Opston Schorsch! Heute
 ist Relegation in Enceladusel. Vorher wird
 ordentlich geprobt.“ Das Raketenfahrrad,
@@ -11038,14 +11628,14 @@ den Federn.„ Wir haben uns bei Sonja ☀️ein-
 zufinden. Schwing dich auf meinen Sattel,
 es ist Zeit zu ihr in den Garten zu fliegen.
 Die warten auf dich. Katzenwäsche,
-Zähneputzen, und ab geht’s!“🚀
+Zähneputzen, und ab geht’s!“?
 Es regnet und für Mai ist es ziemlisch kalt.
 Kaum sind wir da, kommandieren uns die
 Raketenradel zu Paradidel-Übungen in den
 drei Varianten. „Erst mit den Händen, dann
 mit den Füßen, dann kreuzweise Hände
-mit Füßen. Rechte Hand mit✋linkem🦶
-Fuß, und linke ✋ Hand mit rechtem Fuß 🦶
+mit Füßen. Rechte Hand mit✋linkem?
+Fuß, und linke ✋ Hand mit rechtem Fuß ?
 RRLRLLRL, RLRRLRLL, LLRLRRLR.“ Die uns
 trainierenden, dirigierenden Raketenradel
 haben Jua ☀️ fest im Griff. „Die haben uns
@@ -11054,73 +11644,74 @@ zu intensiv?“„Exakter, bitte, ok.: Das Tempo
 runter ;eintauntazweitaunta, LLRLRRLR.“
 Wir sitzen definitiv an Sonjas rundem ⚫
 Eßtisch und klopfen auf ihm und trampeln
-auf den Fußboden des Wohnzimmers die Paradidelmuster, jedes mal 20 mal bis wir
+auf den Fußboden des Wohnzimmers die
+Paradidelmuster, jedes mal 20 mal bis wir
 sie nach einer halben ⌛Stunde sauber
 unisono draufhaben.„Das reicht jetzt, raus
 mit uns auf die Straße, aufsetzen und ab
-geht’s.“ Christianes 🚲Rad ist auch dabei,
-obwohl es auf der 🍌Geschlossenen über
+geht’s.“ Christianes ?Rad ist auch dabei,
+obwohl es auf der ?Geschlossenen über
 Nacht in Merheim war. Dort hatte man sich
 doch dazu entschlossen, nachdem eine
 akute Selbstgefährdung⚰️,oder ein akutes
-Gefährderpotential🗡️ für andere, als nicht
-mehr gegeben ansah, auf📜 richterlichen
+Gefährderpotential?️ für andere, als nicht
+mehr gegeben ansah, auf? richterlichen
 Anordnungsbeschluss vom 28.05.2021,
 verfügt, daß es auf die Offene überwiesen
-werden solle. Also flog es 🚲augenblicklich
-rüber zu Sonja. 🍄Glück braucht der
-Mensch und auch das 🚀Raketenradel.🚲
+werden solle. Also flog es ?augenblicklich
+rüber zu Sonja. ?Glück braucht der
+Mensch und auch das ?Raketenradel.?
 Oder nicht?
 
-Ich werfe eine 5 Pence Kupfer-Münze, 📀
+Ich werfe eine 5 Pence Kupfer-Münze, ?
 Lusche t, oder Ola f? Zahl! Arminius ist es.
 Scholz verliert. Ich begrüße jeden der
 russischen Regierungsgastgeber beim
-Eintreten in die Militärbaracke mit 🤝
+Eintreten in die Militärbaracke mit ?
 Handschlag. Mein eventuell zu kräftiger
 Händedruck kommt teils gut, teils weniger
 gut an. Wir setzen uns an den 6 m Tisch, ca.
-10 Militärs und warten auf den 💂Chef. Ist
-es noch Putin?👮 „Darf geraucht werden?“
+10 Militärs und warten auf den ?Chef. Ist
+es noch Putin?? „Darf geraucht werden?“
 fragt mich ein lockerer Militär. Ich blicke
-kurz zu Armin, der ist verstört mit einer👀
-sehr lockeren Militär Frau 👩‍✈️abwehrhaft, er
+kurz zu Armin, der ist verstört mit einer?
+sehr lockeren Militär Frau ?‍✈️abwehrhaft, er
 sitzt vollig schräg und gestikuliert grinsend,
 schlimm uncool wirkend, schwitzig. Da kann
-ich nicht hingucken; „rauchen🚬 Sie ruhig
+ich nicht hingucken; „rauchen? Sie ruhig
 weiter.“„Kiffst du?“„Das sollte jeder kennen
-und gelegentlich tuen, daß erweitert die😱
-🙄Denksicht, ja ich mach das schon mal,
+und gelegentlich tuen, daß erweitert die?
+?Denksicht, ja ich mach das schon mal,
 ist in Ordnung, oder nicht?“„Stimmt.“ Alle
-können deutsch, von uns Dreien kann 🇷🇺
+können deutsch, von uns Dreien kann ??
 keiner russisch, wieso eigentlich? Aber das
-wird sich ja bald hoffentlich ändern. Der 🦅
+wird sich ja bald hoffentlich ändern. Der ?
 Chef kommt rein. Unglaublich, es ist immer
-noch Putin. 🤴Totgesagte leben länger, oder
+noch Putin. ?Totgesagte leben länger, oder
 was. „Weiterrauchen!“Seine Begrüßung. Der
 Militär-Putsch mit dem freien Anschluss
 Westeuropas zum 1. Oktober ist ohne Blut-
 vergießen über die Bühne der Weltpolitik
 erfreulich gut gelungen. Der Klimawandel,
 mit dem epochal heißen katastrophalen
-Sommer ’21 hat endgültig🌪️🔥 der ganzen
+Sommer ’21 hat endgültig?️? der ganzen
 Welt klar gemacht, daß aber auch alles
 umgeschmissen werden muß, was eine
 Verzögerung einer Umwälzung der alten
 Lebensweise, der nationalen egozentralen
-Konsumierens, des🌡️ Aufheizens also, des
+Konsumierens, des?️ Aufheizens also, des
 Klimas behindert. Es geht ums nackte
 Überleben der Menschheit, oder was von
-ihr noch übrig ist. Die Hälfte der 🙊🙉🙈
+ihr noch übrig ist. Die Hälfte der ???
 Menschheit hat der Killer-Sommer ’21 ⛈️
 hingerafft. Die drohende Apokalypse im
 nächsten Sommer wird jetzt zu verhindern
 sein. Heute 5.10.2021 wird das eurasische
-Grundgesetz in der endgültigen Form 📜
+Grundgesetz in der endgültigen Form ?
 proklamiert. Lusche wird unterschreiben.
 Zum Glück spielt der Depp mit und zum
-Glück war Russland🇷🇺 bereit anzuführen.
-Ich muß nur dafür sorgen das Olaf und 🎅
+Glück war Russland?? bereit anzuführen.
+Ich muß nur dafür sorgen das Olaf und ?
 Lusche, wie der Chef sie anspricht, das hat
 er von mir empfohlen bekommen, sich nicht
 gegen das Kapitulieren sperren und einfach
@@ -11128,41 +11719,42 @@ die Fresse halten sollen. Ich bin sicher das
 das klappt. Waldi wird sie nicht anschreien
 müssen, er ist echt gerissen, hat er doch in
 den letzten Jahren die ganze Welt mit
-seiner autoritären 👮🔫🚬💀👁️☢️🔫🔨📯
+seiner autoritären ?????️☢️???
 Diktatorart hinters Licht geführt, wir und ich
 befürchteten schon das Schlimmste; eine
-Art rechtsextreme neofaschistsche 🔞
+Art rechtsextreme neofaschistsche ?
 Autokratie. Alles Show, Bluff und immer ein
 As im Ärmel. Von wegen, er sei ein Arsch?
 Denkste! Von wegen Oligarch, nee, er
 ist jetzt der King, der es leider richtig gut
-bringt, oder nicht?🇱🇷USA, ganz kleinlaut
-geworden, 🇻🇳China suwisu, akzeptieren
+bringt, oder nicht???USA, ganz kleinlaut
+geworden, ??China suwisu, akzeptieren
 logischer Weise jetzt alles. Bei den beiden
-ist die Hölle los nach den Monsterstürmen, umgepusteten Kernkraftwerken, und 🎃☣️
-verseuchten Landflächen🌪️☢️🔥.🦅Kai:🐗
+ist die Hölle los nach den Monsterstürmen,
+umgepusteten Kernkraftwerken, und ?☣️
+verseuchten Landflächen?️☢️?.?Kai:?
 „Opston, Schorsch.“ Leute was war das für
 ein realistischer Traum. Das steigert sich ja
-bald täglich. Es ist Sonntag, der 30.5.21,
+bald täglich. Es ist Sonntag, der 30.5.21, das 8
 9.00 Uhr, hab mich um acht noch mal
 ins Bett gelegt, wollte eigentlich aufstehen,
 aber 7 Stunden Schlaf schien mir zu wenig
-gewesen zu sein🛌 , man soll ja laut DLF,
-letztens im 📻Radio gehörte, bestätigte,
+gewesen zu sein? , man soll ja laut DLF,
+letztens im ?Radio gehörte, bestätigte,
 bisherige Vermutung, daß man als
 Vorbeugung vor im Alter eventuell
-einsetzender 😱Demenz, besser mindest
-acht Stunden Schlaf🛌 sich gönnen sollte.
-War das ein prophetischer 👀Traum?
+einsetzender ?Demenz, besser mindest
+acht Stunden Schlaf? sich gönnen sollte.
+War das ein prophetischer ?Traum?
 Wahrscheinlich leider nicht, denn wie
 gehabt, von Siggi Freud entdeckt; nur bei
 Gesprächen im Traum gilt, daßTräume dann
-grundsätzlich Selbstgespräche 🗣️🧠
+grundsätzlich Selbstgespräche ?️?
 egoistischer Manier sind. Ich bin es also
 selber gewesen, ich war Arminius, sowie
 auch der eine wirkstoffsubstanzhaltige
 Kippe rauchende mir symphatische graue,
-mich testende russische🚬Militärsprecher.
+mich testende russische?Militärsprecher.
 „Su isset“. Ein Wunschtraum? In Bezug auf
 die sehr lockere Militär Frau?„Sicherlich“.
 In Bezug auf meine Generalsekretärrolle im
@@ -11181,25 +11773,25 @@ losgelöste, andere, innere, mich nervende
 Ich ab? Ich und ich ärgern sich schon mal,
 aber eine richtig gute Freundschaft kann
 das nicht zerstören. Oder?“ Kai:„Meinste“
-„🐗🐗Ist das eine Frage?“„🍺Nee.“„Dann
-simmer dabei, ich un ich .“„🦅🍺🚬 :Ne
-Kipp?“„🐗🐗Tu mich zwei Kippe, ahl ösch
-Kappes.“„🍺Kaakei: Ewer du Schorsch, du
-hes ene Ratsch im 🎃Kappes.“Zweiter Tag,
+„??Ist das eine Frage?“„?Nee.“„Dann
+simmer dabei, ich un ich .“„??? :Ne
+Kipp?“„??Tu mich zwei Kippe, ahl ösch
+Kappes.“„?Kaakei: Ewer du Schorsch, du
+hes ene Ratsch im ?Kappes.“Zweiter Tag,
 die Relegation, 20 Uhr, Dusel, Enceladus,
 der Bühnenvorhang geht auf, die drei Di
-Castro💃💃💃 Sisters, leben hier erneuert,
+Castro??? Sisters, leben hier erneuert,
 quasi auferstanden, durch Zeit und Raum
 vor mehr als 75 Jahren hier generalüberholt,
 da ihr unwürdiges Dasein auf der Erde den
-Enceladuselern ein Dorn im 👀Auge,
+Enceladuselern ein Dorn im ?Auge,
 gewesen war, spielen, singen fantastisch.
-Ungefragt begleiten wir sie mit Off-Beat-🥁
-Steh-Greif-Trompete📯, Akkordeon 🎹, 🎸
+Ungefragt begleiten wir sie mit Off-Beat-?
+Steh-Greif-Trompete?, Akkordeon ?, ?
 Gitarre Arrangements ohne zu stören, da
 sie Jua ☀️ betören. Mambo Diablo von Tito
 Puente, ein ebenfalls eingeduselter Puerto-
-ricano macht das nötige 🔥Feeling🌋💀🎅.
+ricano macht das nötige ?Feeling???.
 im Hintergrund. Alle tanzen. Mutantenmam-
 bo und Menschmaschinenchacha im R’n‚R-
 jazzy-Groove, immer mit dem schweren
@@ -11212,19 +11804,19 @@ Siebenarmigen lassen sich nicht lumpen,
 und unterlegen die Jamsession mit
 ausgeklügelten spacy, schrägen, witzigen,
 abgefahrenen, nie zuvor gehörten Akkorden
-in dämonischen 😱Tonartstapeln, daß die
-mit Lebensverlängerungskabeln 🔌⚰️bzw.
-Schläuchen vernetzten 🕸️tobenden
+in dämonischen ?Tonartstapeln, daß die
+mit Lebensverlängerungskabeln ?⚰️bzw.
+Schläuchen vernetzten ?️tobenden
 Maschinenmensch-Mutanten-Fangemeinde
-sich verheddern und in 🤖Zuckungen👣
-zappeln und funken, daß 💥Kurzschlüsse
+sich verheddern und in ?Zuckungen?
+zappeln und funken, daß ?Kurzschlüsse
 nur so ⚡blitzen und im violetten Qualm
 pulsend aufleuchten. Es gibt weder Verlierer
 noch Sieger; nur prächtiger Überschwang.
 Sieger ist die Cosmomucke. Tanzwahn im
 Trommelfeuer all der schönsten Gesänge,
 und der wunderbaren Melodien der voll
-aufgeputschten 💃Mädels und 🕺Jungs
+aufgeputschten ?Mädels und ?Jungs
 auf der vollen Enceladus-City Bühne,
 gleich fällt mir noch die fett qualmende
 Pief✓ usem Jesech op di Trumm, die
@@ -11237,7 +11829,7 @@ Enceladusel. Wälder zur Sauerstoffanreich-
 erung und Erholung angepflanzt, verteilt auf
 übereinander angelegten gewölbten Planta-
 gen in hundertfach kilometerweiten Etagen
-und begrenzt von bepflanzten Stufen-🍏🍒
+und begrenzt von bepflanzten Stufen-??
 Pyramiden im Umkreis der Stadt bis zum
 runden Horizont der Hohl-Kugel-Konstrukt
 gigantischen Ausmaßes mit der City im
@@ -11247,13 +11839,13 @@ siehe ab Kapitel 38, nicht unähnlich, aber
 mit diesen Etagen und der bei weitem
 größeren Zahl an Bewohnern, ist sie eine
 richtige Metropole. Sie ist kein Städtchen,
-das von sprechenden Affen 🐒,die ein zig-
+das von sprechenden Affen ?,die ein zig-
 tausendjähriges Alter erreichen können, als
 Gärtner hier in Extralangzeitstellung gerne
 fast auf Ewig beschäftigt sind. Atlantis ist
 ein Paradies, eine von Affen gehegte
 bewirtschaftete Obstgartenanlage, die
-ohne Menschen auskommt. Einzig Fips🐒
+ohne Menschen auskommt. Einzig Fips?
 ist zu Jua mit in das DUB gekommen.
 Menschen gibt es in Enceladus auch nicht.
 In Enceladusel existieren, soweit wir das
@@ -11298,7 +11890,7 @@ selbststeuernd, zu fliegen und zu fahren.
 Wie an einer Kette gereiht ziehen die Räder
 uns durch fantastische Himmelsetagen, die
 frei im Raum schwebend stützenlos,
-strebenfrei, wie 🏝️ Inseln, im Raum herum
+strebenfrei, wie ?️ Inseln, im Raum herum
 schwimmen, sich überqueren, bewegen, als
 wären sie selbst autonome gigantische
 Raumkreuzer. Wenn wir uns von den
@@ -11337,7 +11929,7 @@ uns mit den Rakrädern sehr sicher, schon
 so richtig verwachsen mit diesen sind wir.
 Wir blicken auf eine Waldlandschafts-
 Fläche von ca.10 Quadratkilometern, die
-wie eine ☁️ Wolke sich durch den 🌐 Raum
+wie eine ☁️ Wolke sich durch den ? Raum
 bewegt. Dort hinab bleiben wir legen uns
 auf eine Wiese und fühlen erstaunlicher
 Weise Sonnenwärme auf der Haut. Die
@@ -11351,32 +11943,32 @@ fliegen. Uns wird von der dankbaren
 Duselchefin der Vorschlag eines Gratis-
 Gehirnerweiterungswachstums-Kurpaket
 mit rundum Erneuerungsinfusion
-unterbreitet. Ich zeige auf Kai 🦅 der lehnt
+unterbreitet. Ich zeige auf Kai ? der lehnt
 dankend ab. „Ich wüßte jemanden dem das
-besser zu Gesicht stehen würde!“🐗👀Er
+besser zu Gesicht stehen würde!“??Er
 sieht mich scharf an undweist der Chefin
 an mich operieren zu lassen. Ich freue mich
 über Kai’s Edelmut, und über meine
 zukünftigen erweiterten Denk-Fähigkeiten.
-Nik🚬🎸🍺meint allerdings daß da eh nicht
+Nik???meint allerdings daß da eh nicht
 viel zu machen sei, weil, wo nix is, kütt och
 nix erus, ejal, obse jet rindeue täte.„Ja,
-Dankeschön 🐗 auch!“ Ich werde es denen
+Dankeschön ? auch!“ Ich werde es denen
 zeigen, den feigen Kalkis.„Faisch
 Sackjesech!“„Wenn ihr uns die Radel
 überlassen könntet, wäre er bereit für die
-Hirnerweiterung, schlägt Kai 🦅 vor:
-„Sonja☀️, was meinst du?“„Kaakeis 🍺Idee
+Hirnerweiterung, schlägt Kai ? vor:
+„Sonja☀️, was meinst du?“„Kaakeis ?Idee
 ist doch brilliant, oder nicht?“ Langsam
 dämmert es bei mir „Bleibe ich danach
-zeugungsfähig?“🚬:„Du bist doch schon
+zeugungsfähig?“?:„Du bist doch schon
 im Opa-Alter, Alter!“„Danke,Kai.“„Gerne,
 Schorsch.“lch laß mich mutig doch darauf
-ein.„Ich🥁mach’s. Wie lange dauert der
+ein.„Ich?mach’s. Wie lange dauert der
 Eingriff?“„So ne‘ kleine Sache dauert nicht
 lange; ca. 2 Minuten, eben so lang wie
 eine Impfung dauert.“Sie macht
-die 💉Spritze parat.„ Wo soll ich?“„In den
+die ?Spritze parat.„ Wo soll ich?“„In den
 Hintern besser nicht, der ist schlau genug,
 besser direkt ins Gehirn, oder nicht?“„Schon
 passiert, hat doch gar nicht weh getan.“„Nö.“
@@ -11386,8 +11978,9 @@ Sumpfbackfrau, dat is ming ✓Pief, ahle xxx!“
 Die erschrockene Med-Mutante gibt sie ✓
 dem wüst fluchenden Impfling, mir also,
 zurück, und die verstörte Mutante setzt sich.
-Kai 🦅 ist sonst nicht so:„Sprengt dir deine Gehirnerweiterung die 🍐 Birne, Knallkopp?“
-„Du gehst mir auf den Keks 🍪 Kai.“„Meinst
+Kai ? ist sonst nicht so:„Sprengt dir deine
+Gehirnerweiterung die ? Birne, Knallkopp?“
+„Du gehst mir auf den Keks ? Kai.“„Meinst
 du.“„Der rieß ich de Kopp af, und dir och!“
 Kai:„Der braucht ein Gegenmittel! Schorsch
 dreht ab, der wird mir zu agro, der fängt an
@@ -11397,25 +11990,25 @@ Boden und verbeißt sich in das Fußgestell
 der Frau Dr.Mensch-Mutant-Maschine. Kai
 will ihr helfen und fängt sich eine voll auf
 den Dassel und befindet sich im Würgegriff
-einer Bestie. Die MuTante Dr. 💉spritzt dem
-Tobsüchtigen 😵ein Sedativa 😑in den
-schweißperlennassen Nacken.🐗⚡💀🥁
+einer Bestie. Die MuTante Dr. ?spritzt dem
+Tobsüchtigen ?ein Sedativa ?in den
+schweißperlennassen Nacken.?⚡??
 Zu spät, Kai rührt sich nicht mehr. Ist er tot,
 oder was? Sonja ☀️klatscht ihm ins Gesicht
-und versucht ihn mit Mund 🎃zu Mund-
-Beatmung und schnellen 🥊Druckstößen
+und versucht ihn mit Mund ?zu Mund-
+Beatmung und schnellen ?Druckstößen
 auf den Brustkorb wiederzubeleben. Leider
 macht sie das schwer schlimm richtig gut.
-Kai 🦅 kommt zu sich 👀, und verlangt🍺.
+Kai ? kommt zu sich ?, und verlangt?.
 Die Bestie wird sanft bekommt danach
 sofort eine Hirnerweichungsinfusion ⛽
 eingespritzt. Die zu schnell wuchernde
 Hirnsülze wird ihm aus den Ohren gezogen,
-was leider zu einer heftigen 🥴Verblödung
+was leider zu einer heftigen ?Verblödung
 führen könnte. Muß aber nicht. Wird das
-sein🥁Spiel beeinflussen, wird er, ich also,
+sein?Spiel beeinflussen, wird er, ich also,
 noch kränker, schlimmer, destruktiver
-trommeln als zuvor?🚦🚨🥁🍄🎃🐗💀
+trommeln als zuvor????????
 Oder nicht?
 Leider ja! Aber eine etwas ‚straightere‘
 Gangart soll ich jetzt draufhaben. Es ist
@@ -11433,7 +12026,7 @@ Eigentlich ist das sogar ein Lob. Ist der
 Eingriff vielleicht doch für was gut gewesen.
 Haben die mir wohl ein wenig Enceladus-
 Hirn-Sülze beim Abzapfen drin gelassen.
-Dankeschön.Kai 🦅:„Jän.“„Wieso?“🚬🍺:
+Dankeschön.Kai ?:„Jän.“„Wieso?“??:
 Ich kud mi ding Jammerei beim Afzappe
 ni mi ahür un han die ahl Dok-Mutant
 jetrek se möd uphüre mit däm Zappe,
@@ -11471,12 +12064,12 @@ unterstützt, durch Ortung und innigster
 Hingabe an das Hören jeder Kleinigkeit der
 Mitspieler. Der direkte seelische Anschluss
 beim Hören, darum geht es ja ist, verstärkt
-sich seit der für mich🐗 spannenden,
-ständig und langsam wachsenden 👀
+sich seit der für mich? spannenden,
+ständig und langsam wachsenden ?
 Gedankenverzweigungsaktivität, seit
 meiner Verwandlung, der Operation heute
 Mittag, nach der ‚enceladuseelichen‘ Gratis-
-Gehirnerweiterungsinfusionsionsverab-💉
+Gehirnerweiterungsinfusionsionsverab-?
 reichung, zu der ich mich hinreißen ließ, nur
 damit Jua die Rakräder kräje dät. Also Lück,
 die wollten mich leider richtig schlimm,
@@ -11484,7 +12077,7 @@ schwer gut reinlegen.Typisch Jua; klappt
 bei mir meistens leider wirklich gut. Ich und
 Ich verholzen zunehmend. Wir fühlen uns
 immer besser, gesünder und heller in der
-🍐 Birne.„ Dreimol jod op Holz jeklopp.“🍺
+? Birne.„ Dreimol jod op Holz jeklopp.“?
 schlägt Kaakai vor. Ich schlage hier noch
 Wurzeln auf Duseldorf, so gut gefällt es
 mir. Ein dritter halber Arm ist mir aus dem
@@ -11510,12 +12103,12 @@ Meerschwein, liebe ich mittlerweile für
 seine uneigennützige Hilfe wirklich sehr.
 „Der Himmel hat dich geschickt.“„Das mach
 ich wirklich gerne. Du spielst so schön
-Schorsch. Warte ab was alles trommel 🥁-
+Schorsch. Warte ab was alles trommel ?-
 mäßig demnächst noch möglich sein wird.
 Wir schaffen das. Eine neue, besonders,
 wertvolle und bisher nie erreichtbare
 musikalische Entfaltung .“„Meint ihr?“ Ist
-das eine Frage,🍺 Kaakei?“„Ja.“„Na dann
+das eine Frage,? Kaakei?“„Ja.“„Na dann
 hör dir das an.“ Ein selbst sich tragender
 Off-Beat-Groove, jazzy swingend, schwimmt
 quasi in einem fein gewebten percussiven,
@@ -11609,9 +12202,9 @@ runtergeschüttelten Blätterlaub mitnehmen.
 Wenn sie das in der Pfeife rauchen, aber
 dann Hallelujah, das wird sie in den
 Wahnsinn treiben, oder nicht?
-„Meinst du.“Meint Kai, 🦅 und rät den7x7ern
+„Meinst du.“Meint Kai, ? und rät den7x7ern
 das besser nicht zu tuen, denn das könnte
-zu Beunruhigungen in der Birne 🍐 führen.
+zu Beunruhigungen in der Birne ? führen.
 Die Shanghaias sind abgebrühte Freaks, die
 könnten diese schlimm kranken Gedanken
 verdauen und knapp überleben, wenn sie
@@ -11647,7 +12240,7 @@ Qualität, das war nicht so einfach gewesen
 wie es heute ist, weil das ‚Schengener
 Abkommen‘ noch nicht beschlossen war,
 somit das Schmuggeln gefährlich, echt
-schwierig und riskant:🚓🚔🚧🚨👀war.
+schwierig und riskant:?????war.
 Der Bauer hatte beispielsweise in Vaals
 die Kuhweiden umgestellt, so daß wir
 nachts, in dunklen Tarnklamotten zu Fuß
@@ -11667,7 +12260,7 @@ abführten. Dieser bequemere Schmuggel-
 weg war eine Falle, in die wir nicht tappten.
 Alles verjährt. Ich habe immer noch, was
 das angeht, eine weiße Weste. Alles hat
-seine Zeit.⌛⏰🕰️🔔♾️
+seine Zeit.⌛⏰?️?♾️
 Heute bin ich am liebsten nüchtern. Damals
 ertrug ich das nicht, und war rund um die
 Uhr high. Nüchtern war ich fast nie. Als
@@ -11709,7 +12302,7 @@ an der Dienstabteiltüre klopfen, um Kippen,
 Bier, oder irgend was zu kaufen, dachte ich,
 leider war es der Zugführer, der mit seinem
 Vierkant aufschloss und mich zur Sau
-🐗 machte, ich hätte Geld unterschlagen,
+? machte, ich hätte Geld unterschlagen,
 da ich keine Liegekarten für das vordere
 Abteil in die Reservierungsliste eingetragen
 haben dollte, was ich pflichgemäs sofort
@@ -11773,11 +12366,11 @@ wird nach Ceres zur Bearbeitung in die
 Inner-Space-Studios geschickt werden. Wir
 fahren schließlich in den untersten Keller
 des Rathauses, wo sich der U-Boot-Hafen
-befindet. Kommandeur Kai 🦅 verriegelt
-die Luken und startet das DUB 🚀. In drei
+befindet. Kommandeur Kai ? verriegelt
+die Luken und startet das DUB ?. In drei
 Jahren werden wir hoffentlich wiederkehren
-mit ☀️Jua’s karibischer Musik 🎸🎶🥁🎤
-und tanzbaren🌅 sonnigen 🏖️Jua-Stücken.
+mit ☀️Jua’s karibischer Musik ????
+und tanzbaren? sonnigen ?️Jua-Stücken.
 
 Stand:
 10.6.21, 12.08Uhr, ’21 Cologne, Germany.
@@ -11791,17 +12384,17 @@ Made in Germany✓Cosmische Kalkurier©
 
 DER SONNTAGSTIPP:
 
-Der 🐗Verfasser, der 🥁Drummer von Jua
-gibt bekannt, das ist jetzt nicht eine🍺👅
-schelmenromanhafte, sondern eine 👀🦅
-ernsthafte 👩‍✈️aktuelle Information📯:
+Der ?Verfasser, der ?Drummer von Jua
+gibt bekannt, das ist jetzt nicht eine??
+schelmenromanhafte, sondern eine ??
+ernsthafte ?‍✈️aktuelle Information?:
 
 Jua ☀️ spielt am 13.6.‚21 in Lützerath auf!
-Im RWE-Kraterland, am Kraterrand vor 🎪
+Im RWE-Kraterland, am Kraterrand vor ?
 dem Zirkuszelt. Beginn: 14.Uhr, kann sich
 aber bis spätestens 17.00 verschieben.
 Hygiene, Abstands-, und Maskenpflicht,
-Ordnungsamt marschiert !🚔🚧🚓🏭🚧🚔
+Ordnungsamt marschiert !??????
 Kommt mit dem Radel, das ihr in der S- Bahn
 mitnehmen könnt, steigt in Buir aus. Mit PKW
 könnte es schwierig werden, da die
@@ -11809,29 +12402,29 @@ Kraterland Anfahrtsstraßen eventuell schon
 durch krankes RWE-Wüten unbefahrbar sind.
 Dann geht’s den Rest des Weges nur noch
 zu Fuß, oder mit dem Radel weiter. Bringt
-schönes Wetter und gute Laune mit. 🤡
+schönes Wetter und gute Laune mit. ?
 
 Autor Schorsch Tantekel
 Kapitel 125
+
 Datum 13. Juni 2021, 01:14
+
 125.Teil, Schelmenroman von Georg Dickas
 in Fortsetzungs-Folgen die ständig
 bearbeitet und korrigiert werden:
-Stand: 18.6.‚21,13:10🕖
-Bearbeitet:18.6.‚21,20:40🕖
-Bearbeitet:19.6.‚21,20:20🕖
+
 Jua-Band-Bio, Der Steinzeit-Trip,
 Im Mond Europa:
 
-Das DUB 🚀 startet nach dem Bohren durch
+Das DUB ? startet nach dem Bohren durch
 den Eisschutzmantel der Hohlkugelstadt
 Enceladuseldorf und anschließendem
 Tauchen bis zur zweiten Eisschicht und der
 darauf folgenden Durchbohrung dieser
 obersten Eisschicht in den
-Mond-🌙 Orbit Enceladus, der ein Trabant
+Mond-? Orbit Enceladus, der ein Trabant
 Saturns ist, und nimmt Kurs auf ein neues
-Ziel. Die Zeitreisenzuweisungsinstanz 🗽
+Ziel. Die Zeitreisenzuweisungsinstanz ?
 schickt uns in den Jupitermond Europa. Da
 wir das DUB nicht im Kopfstand aufsetzen
 hätten lassen können, das aber nötig
@@ -11843,13 +12436,13 @@ Zeitreisenzuweisungsinstanz nur zu gut,
 sind wir auf diese angewiesen, auch wenn
 die uns ständig beobachten, uns quasi
 immer auf dem Schirm ☂️haben und uns
-jederzeit irgendwann aus einer Gefahr🔥
-mittels Zeitsprung raudholen können.
+jederzeit irgendwann aus einer Gefahr?
+mittels Zeitsprung rausholen können.
 Rettung ist also sowieso so gut wie sicher.
-Wir sind nur deren Werkzeug.🛠️
+Wir sind nur deren Werkzeug.?️
 Da den Menschen, den Humanoiden ein
 freier Wille zugestanden wurde in der
-göttlichen Schöpfungsidee, Dankeschön 🦅
+göttlichen Schöpfungsidee, Dankeschön ?
 auch. Daß diesem Säugetierkörper ein
 Geist eingeblasen wurde ist ein Wunder.
 Wie Jesus gesagt haben soll, laut
@@ -11862,7 +12455,7 @@ Testament und frühchristliche Schriften,
 übersetzt und kommentiert von Klaus
 Berger und Christiane Nord, Insel Verlag,
 1999, Frankfurt am Main und Leipzig 1999)
-Die Zeitreisenzuweisungsinstanz 🗽unter-
+Die Zeitreisenzuweisungsinstanz ?unter-
 steht direkt der Schöpfungsgöttlichkeit,
 Gott genannt. Da wollen wir uns nicht
 beschweren, im Gegenteil, wir sind stolz
@@ -11872,55 +12465,55 @@ unbequeme Entwicklungen, die durch eben
 den freien Willen der Humanoiden
 entstehen, korrigiert werden müssen.
 zb.: Die Nazi-Welt-Herrschaft verhindern,
-ihnen deren 🔞 Endsieg-Feier, deren Traum
+ihnen deren ? Endsieg-Feier, deren Traum
 vom tausendjährigen Reich zu versauen, ist
 unsere Ziel. Nachhaltige Eingriffe, die wir,
 wenn wir in die Vergangenheit geschickt
 werden, erbringen. Fehlerhaftes Vorgehen
-dabei sollte tunlichst vermieden werden,
-daher die totale Aufsicht durch die
-Zeitreisenzuweisungsinstanz 🗽,
+dabei, sollte tunlichst vermieden werden.
+Daher die totale Aufsicht durch die
+Zeitreisenzuweisungsinstanz ?,
 der wir voll vertrauen. In der salzigen und
 schwefeligen Wasserschicht, taucht das
-DUB 🚀 ab bis zum Grund, in den es sich
+DUB ? ab bis zum Grund, in den es sich
 einbohrt und zu einer von innen hell
 erleuchteten Schicht vordringt. Plötzlich
-wird das DUB 🚀 bevölkert von strammen
+wird das DUB ? bevölkert von strammen
 Nazis. Wo kommen die her. Kai vermutet
 einen derben Scherz unseres Chores. Aber
 das kernige knarrende das „R‘ rollende
 Deutsch, das uns militant entgegen schallt,
-haben die nicht drauf. Balu 🐘 trampelt sie
+haben die nicht drauf. Balu ? trampelt sie
 alle platt. Ropterex beißt sie, wo er nur kann.
 Gummi auch. Aber es kommen immer neue
 hereingeschneit. Im Bordwald rollen die
-ersten Panzer auf. Was ist hier los, zum 😈
-Teufel. Kai 🦅 lässt die Ausstiegsluke des
+ersten Panzer auf. Was ist hier los, zum ?
+Teufel. Kai ? lässt die Ausstiegsluke des
 DUB öffnen und Rommel tritt ein. Der alte
 Wüstenfuchs fordert Jua auf zu spielen. Da
-singt er dazu, „Schwarz braun ist die 🌰
-Haselnuß“. Die Panzer tanzen🕺Ballett und
+singt er dazu, „Schwarz braun ist die ?
+Haselnuß“. Die Panzer tanzen?Ballett und
 schießen im Takt Schreckschußsalven. Die
 Panzer weinen vor Freude und zerfließen zu
 Schmierseife, das Rommel das kalte Herz
 bricht.„ Mein Führer.“Er kniet vor Kai und
-winselt. Kai 🦅 schreit ihn an.„Rrommelz
+winselt. Kai ? schreit ihn an.„Rrommelz
 schroftsackkruttolzaptrroskaftzkehkgvbfuk!
-Rommel knallt die Haxen und fängt 🔥☢️
-Feuer. Ich lösche ihn mit meinem 🍺 Bier.
-Rommel trommelt wie behämmert auf🥁
+Rommel knallt die Haxen und fängt ?☢️
+Feuer. Ich lösche ihn mit meinem ? Bier.
+Rommel trommelt wie behämmert auf?
 meinem Schlagzeug talentfrei und ohne
-Hemmung herum. Fips reißt ihm am👂 Ohr
-und traktiert ihn mit Drumsticks. Markus 🎸
+Hemmung herum. Fips reißt ihm am? Ohr
+und traktiert ihn mit Drumsticks. Markus ?
 packt Rommel und hält dessen Kopf in den
 Gitarrenverstärkerlautsprecher und dreht
 richtig schlimm laut auf, bevor er in die
 Saiten schlägt. „Ich kapituliere und ziehe
 meine Armee von Bord ab!“ Die Panzer
-schäumend auferstehend aus der 🧼
+schäumend auferstehend aus der ?
 Schmierseife schütteln sich den Schaum
 vom Rohr und ziehen ab. Die toten Nazis,
-die zertrammpelten, ebenso. Der 👻Spuk
+die zertrammpelten, ebenso. Der ?Spuk
 scheint so schnell verschwunden, wie☠️
 gekommen zu sein. Hier im Mond Europa
 harren die toten Nazis, ihr tausendjähriges
@@ -11929,25 +12522,25 @@ So tot, wie Zombies, wenn sie Blut saufen,
 nur sein können. Hier überdauern sie im❄️
 Winterschlaf bis sie gerufen werden, um
 das 4. Reich auf Erden auszurufen. Das
-sollte 2028 der Fall sein. 📯:Die Eurasische
-Völkergemeinschaft von Lissabon bis🇷🇺
+sollte 2028 der Fall sein. ?:Die Eurasische
+Völkergemeinschaft von Lissabon bis??
 Wladiwostok, Oktober 2021 gebildet und
-geführt von King Georg.. „Kai:Dem Adoptiv-
-sohn 🤴Putins?“Der muß nach dem ⚰️💥
-Klimacrash des 🌡️Hot-Heat-Sommers ’21,
-der die 🇺🇲USA, 🇨🇳China ua.in den atomaren
-Abgrund nach🌪️ Stürmen, die sogar☢️😈
+geführt von King Georg..„Kai: Dem Adoptiv-
+sohn ?Putins?“Der muß nach dem ⚰️?
+Klimacrash des ?️Hot-Heat-Sommers ’21,
+der die ??USA, ??China in den atomaren
+Abgrund nach?️ Stürmen, die sogar☢️?
 AKWs ☠️auspusteten, für die alleinige Ver-
 antwortung, für drastische Erneuerung der
-Klimawandelpolitik sorgen.„🧹:Und das mit
-Hilfe der auf Mond🌓 Europa befindlichen
-Nazi-🎃Zombies?“Fragt Christiane☔ frech.
-🐒Fips:„Ganz bestimmt nicht.“🦅:„Meinst
+Klimawandelpolitik sorgen.„?:Und das mit
+Hilfe der auf Mond? Europa befindlichen
+Nazi-?Zombies?“Fragt Christiane☔ frech.
+?Fips:„Ganz bestimmt nicht.“?:„Meinst
 du.“Kai’s zweideutige Bemerkung lässt mich
-aufhorchen:„🥁Wie meinst du🍺 das, mit
-„Meinst du“? :„🚬Tjfzjbxhkfclfkgxvnvbosch!
+aufhorchen:„?Wie meinst du? das, mit
+„Meinst du“? :„?Tjfzjbxhkfclfkgxvnvbosch!
 „Ach so, Und wie lange soll das halten?“
-🦅:„Mindestens bis 3028.“„🐗🥁:Da haben
+?:„Mindestens bis 3028.“„??:Da haben
 Jua☀️ ja nochmal Glück gehabt.Oder nicht?“
 
 Die helle harte Schicht, die wir mit dem DUB
@@ -11955,7 +12548,7 @@ durchdringen ist gläsern und nach zehn
 Kilometern wird es strahlend hell. Kapitän
 Kai verlangsamt und stoppt rechtzeitig,
 bevor das Ende der Glasschicht erreicht ist.
-Zuletzt hat das DUB 🚀 bis auf einen Meter
+Zuletzt hat das DUB ? bis auf einen Meter
 genau die optimale Stelle zum unbemerkten
 Eindringen in den dahinter sich befindlichen
 Raum gefunden. Mit Teleskopwerkzeugen
@@ -11990,16 +12583,16 @@ auf Schienen mit mächtigen 30 Meter
 breiten Querträgern deutscher Herstellung,
 für 500t.Last ausgelegt, transportieren
 runde gewölbte stählerne Scheiben von ca.
-25 MeterDurchmesser. Die Gravitation ist
-wesentlich geringer. Mindestens vier Mal
+25 Meter Durchmesser. Die Gravitation ist
+wesentlich geringer; mindestens vier Mal
 leichter fühlen wir uns. Wir holen unsere
-Rakräder aus dem DUB 🚀 und fliegen
+Rakräder aus dem DUB ? und fliegen
 durch die schmutzige nach Öl stinkende
 dampfnebelrauchige, sehr hohe, lärmige,
-riesige Werkhalle. 🤖 Robotikwerkzeuge
-fertigen ,stanzen, montieren, schweißen
+riesige Werkhalle. ? Robotikwerkzeuge
+fertigen, stanzen, montieren, schweißen
 installieren Kabelbäume mit Hilfe von
-Robotern 🤖.Eventuell ferngesteuerte
+Robotern ?.Eventuell ferngesteuerte
 Mutanten? Wir fliegen mit unseren
 Rakrädern, idealer Weise haben wir die,
 seit Jua vor kurzem diese bei der
@@ -12020,56 +12613,62 @@ anderen Ecke, aus einer anderen bösen
 Zukunft. Drohnen umkreisen uns und sie
 klingen bedrohlich mit ihrem Sound der ein-
 deutig den Walkürenritt intoniert. Platten-
-spieler-Dronen dröhnen um uns herum?
-Heil-Humor im Dronenchor. Irgendwie ist
-das leider keine gute Botschaft. Uns ist
-leider irgendwie anders. Keitel sitzt plötzlich
+spieler-Dronen dröhnen um uns herum im
+Dronenchor. Irgendwie ist
+das leider keine gute Botschaft. Uns wird
+irgendwie anders. Kammler sitzt plötzlich
 auf Kai’s Rakradgepäckständer und drückt
 ihm eine Pistole in den Nacken. Wie im DUB
-bevor wir das geparkt hatten, bekommen
+bevor wir es geparkt hatten, bekommen
 wir geisterhaften unerwünschten Besuch
-von Hologramm-Nazis? Keitel wird lustig:
-„Pilot,Tänzchen gefällig?“„🦅:Zdubjtsifkgx-
-bkzgurz!“Keitel springt ab:„Jawoll, Sieg Heil,
-mein Führer!“Er verwandelt sich im Fallen
-in einen Flughund und unten angekommen
-zurück in den Ledermantel-Stiefel-Nazi-😈
-Teufel, den er damals in echt ja‘ einer war.
+von Hologramm?-Nazis.Kammler wird lustig:
+„Pilot,Tänzchen gefällig?“„?:Zdubjtsifkgx-
+bkzgurz!“Kammler springt ab in die Tiefe:
+„Jawoll, Sieg Heil, mein Führer!“ Er
+verwandelt sich im Fallen in einen
+Flughund, und unten gelandet wieder
+zurück in den Ledermantel-Stiefel-Nazi-?
+Teufel, den er damals in echt ja‘ einer war,
+und stiefelt in sein Werkstattlabor zurück.
 Ohne unsere eigene Sauerstoffversorgung,
-wie Taucher also, hier vorsichtshalber ange-
-bracht uns schien, geht hier nichts. Giftige
+wie Taucher also, geht hier nichts. Giftige
 menschenfeindliche Gase verraten uns, daß
 Europa unbewohnt ist. Eine ferngesteuerte
 schwarzbraune Mutantenwerkstatt für
 schlimm kranke Geheimwaffen und
-fliegenden Antigravitationskraftuntertassen.
-Keitel’s Geheimlabor, der Nazi-Magier, der
-„45 mit den Geheimwaffenplänen aus dem
+fliegenden mit Antigravitationskraftantrieb
+ausgestatteten Untertassen?
+Kammler’s Geheimlabor, der Nazi-Magier, der
+sich’45 mit Geheimwaffenplänen aus dem
 Staub gemacht hatte und seit dem als
-verschollen galt. Kai 🦅🚬🍺kommt in
-Erklärungsnot.:„ Die fremdartigen Sprach-
-parolen sind geheime Link-Codes. Hab
-ich, nachdem ich diese geknackt und gelernt
-hatte, wie es funktioniert ,umprogrammiert,
-und das Nazi-Netz, der Vorgänger des
-Internets, das die Nazis 45 erfunden hatten,
+verschollen gilt. Kai ???kommt in
+Erklärungsnot:„ Die fremdartigen Sprach-
+parolen sind geheime Link-Codes. Habe
+ich, nachdem ich die geknackt und gelernt
+hatte, wie’s funktioniert ,umprogrammiert.“
+Das Nazi-Net, der Vorgänger des Dark-
+Nets, daß unter Kammlers Geheimführung
+mit befreundeten Nazi-Aliens, die ihn in
+die Zukunft mitnahmen, in IT ausbildeten
+und alles zur Verfügung stellten samt
+superschneller Hard-und Software, habe ich
 abstürzen lassen und gelöscht.“„Warum das
 denn?“„Es war ein Versehen.“Er köpft eine
-Bierflasche. „Ich sollte der Nachfolger von
+Bierflasche. „Ich solle der Nachfolger von
 Addi werden, und hab nur zur Tarnung da
 mitgespielt, um eine anständige Rolle im
-intergalaktischen „Rettungs“-„Führer“-🔞
+intergalaktischen „Rettungs“-„Führer“-?
 Wettstreit zuergattern. Ich mach doch nur
 Spaß.“Nik:„Heil, Heil, Rock,n,Roll, Kai is voll
-dabei, un von der Roll, He King Kaakei, du
+dabei, un von der Roll, Heh‘ King Kaakei, du
 bringst es voll, ewer nit zu doll, möts wigger
-suffe, los jon, ewer nit zu doll.“🍺🍺🍺🦅:
-„Wat is! Muffe?“„Woher hatte Keitel-eitel-
+suffe, los jon, ewer nit zu doll.“????:
+„Wat is! Muffe?“„Woher hatte Kammler-
 Leder-Scheißel sein Digital-Equipment her?“
-„Tja, Alter, da war wohl einer, oder eine von
+„Tja, Alter, habe ich doch gerade erklärt,
+der war wohl mit einem oder einer von
 der okkulten Nazi-Brut mit Nazi-Aliens in
-die Zukunft gereist, wie auch immer, und
-hat ein Smartphone gemopst.“„Ahja, meinst
+die Zukunft gereist.“„Ahja, meinst
 du.“„So ähnlich, du Ex-Digiphobie-Extremo.“
 „Aber du…, verpeilter Pilot.“„Meinst du.?“
 „Los, rück die Wahrheit raus!“„Teile meiner
@@ -12089,17 +12688,15 @@ hemd und schwarz gefärbtem Quadrat-
 bärtchen den Hitler gebe. Ich musste viel
 üben, hab‘ mir die Rolle nicht ausgesucht.“
 „Das geht doch nicht, der war Nichtraucher,
-Alk-Abstinenzler, Vegetarier,Labertasche und
-humorlos. Das volle Gegenteil von dir.“„🚬:
+Alk’Abstinenzler,Vegetarier,Labertäsch und
+humorlos. Das volle Gegenteil von dir.“„?:
 Der hat sich halt geändert, seit er sich fast
 selbst gerichtet hatte, sich aber verfehlte
 und Eva traf.“„Ach nee?“„Der Drecksack ist
 in Unterhose durch Berlin getorkelt, den
-Kopf mit Blut verschmierten
-Hansaplastheftpflastern versehen, getarnt
-den Irren, brauchte er gar nicht erst zu
-markieren, mit Blinden-Stock, stotternd
-und fast taub, durch seinen
+Kopf mit Blut verschmiert. Den Irren
+brauchte er gar nicht erst zu markieren,
+stotternd und fast taub, durch seinen
 Fehlschuß, heulend und schreiend, aus
 Trauer über den doppelten Verlust, Eva und
 Blondie, fiel er in ein Gebüsch nicht weit von
@@ -12110,84 +12707,4251 @@ Lazarett gebracht, wo er, da er sich als
 Adolf Hitler ausgab als typischen Fall,
 das passierte anscheinend öfters, für einen
 traumatisierten Psychosefall in ein Hospiz
-für Geisteskrankheiten, nach Moskau als Vorführparadefall überführt. Die
+für Geisteskrankheiten, nach Moskau als
+Vorführparadefall überführt. Die
 Profilierungssucht eines
 Militär-Psychologens hatte er das zu
 verdanken. Es passte einfach alles. Die
 Therapie wirkte, kein Wunder, er brauchte
-sich nicht im geringsten verstellen, so
+sich nicht im geringsten zu verstellen, so
 bekloppt, wie er schon immer war. Er lernte
 Russisch und er liebte das Russische. Das
-sind seiner Meinung nach das überlegene
-Siegervolk. Von den deutschen Versagern
-hielt er,‚47 in Moskow entlassen, seit seinem
+seien seiner Meinung nach das überlegene
+Siegervolk gewesen. Von den Deutschen
+hielt er,‚47 in Moskow entlassen, seit dem
 verlorenen Krieg, gar nichts mehr. Er soff,
 rauchte und aß Fleisch in Mengen und
 hatte seinen Humor wieder gefunden.
 Er wurde zuerst Flohmarktverkäufer, in
 Moscow gibt es traditionell 24 Std.täglich
 geöffnette Flohmärkte seit Jahrhunderten.
-Dann endeckte man sein Talent als
+Dann endeckte man da sein Talent als
 Marktschreier mit Improvisationstalent als
 Stehgreif-Märchenonkel-Schauspieler, und
 ein Circus engagierte ihn als Circusdirektor.
-Nazi-Aliens 😈von Jupitermond Europa
+Nazi-Aliens ?von Jupitermond Europa
 imponierte er dermaßen, daß sie ihn, sie
 wußten natürlich sehr wohl wer er wirklich
-war,1949 entführten.“„Das hast du in dem
-Keitel-PC..“🍺🦅🚬„Sicherlich.“🥁„Und den
-spielst du jetzt?“„🍺🍺🦅🚬:Natürlich
+war, 1949 entführten.“„Das hast du in dem
+Kammler-PC..“???„Sicherlich.“?„Und den
+spielst du jetzt?“„????:Natürlich, als
+3-D Holographie Projektion in digitaler Form,
 virtuell, so wie gestern im DUB der Rommel.“
 „Und dich als „mein Führer“ bezeichnete.“
 Die Mutantenarmee und die Geheimwaffen
 sind leider echt und überlegen. Das tausen-
 jährige Reich wird ohne meine feindliche
 Führer Übernahme nicht zu verhindern sein.
-Die Zeitreisenzuweisungsinstanz 🗽 zählt
-auf mich.“ 🦅Kai muß also, eingetauscht
-als ergrauter Adolf des Jahres ’49, der
+Die Zeitreisenzuweisungsinstanz ? zählt
+auf mich.“ ?Kai muß also, eingetauscht
+als ergrauter Adolf des Jahres 1949, der
 durch die Zeitreise um 79 Jahre verjüngt
 ist und wirklich noch lebt, das 1000 jährige
-Reich ’28 proklamieren führen und quasi als
-der„Auferstandene„eine Weltherrschaft an
-streben, na logo, mit Superwaffen, und
+Reich ’28 proklamieren, führen, quasi als
+der„Auferstandene“, eine Weltherrschaft
+anstreben, na logo, mit Superwaffen, und
 das 4.Reich installieren. Der echte noch
 lebende Hitler war stur und wollte nie mehr
 den Führer geben, er ist ein fetter Kippen
 fressender Säufer und spricht aus Freck
-kein Wort Deutsch, nur noch russisch,
-sogar mit seinem deutschen Schäferhund.
-Also bauten die Nazi-Aliens 😈 einen
-Mutanten-Doppelgänger von Adolf, der ein
-Hollographie-Programm ist, wie sie eines
-von Rommel machten. Aber Kaakei wird das
+kein Wort Deutsch, nur noch Russisch,
+sogar mit seinem deutschen Schäferhund
+Блонди, das heißt Blondie. Seine Vorliebe
+für diese Hunderasse, war das einzig
+Deutsche das Adolf überhaupt noch
+ertragen konnte. Stalin nannte er: палка,
+Stöckchen, Reste seiner Traumata-
+Verarbeitung nach der krassen, psychotisch
+bedingten Persönlichkeitsänderung von
+Adolf, Пинетки, dem teuflichen Monster,
+Massenmörder, Kriegsverbrecher, Rassisten
+Faschisten, ?☠️?, und vom deutschen
+Volke in niederträchtiger Weise gewählt.
+Sie wählten die NSDAP. Die Wehrmacht
+machte mit beim Massenmordplan; Sie kö-
+derten ihre Soldaten mit Versprechungen,zb:
+Jedem der mithilft beim Massakrieren, beim
+niederträchtigen Ermorden der russischen
+Untermenschen, so infam diskriminierend
+wurde die russische Bevölkerung benannt,
+bekäme seine eigene Landebahn für sein
+eigenes Flugzeug auf dem eigenen großen
+Landgut, das ihnen nach dem zweifellos
+siegreichen Krieg überschrieben worden
+wäre, geschenkt worden wäre also, als
+Lebensraumerweiterungsmaßnahme. So
+von den Nazis verharmlosend formuliert.
+So sprach mich ein Rentner 2002, auf Höhe
+Engelskirchen, in der Regionalbahn in
+Richtung Köln mir gegenüber sitzend, an
+einem sonnigen August-Nachmittag, aus
+heiterem Himmel, nach einem etwas zu
+langen, einem intensiv standhaltenden
+Blickkontakt, folgendermaßen an, ohne
+daß wir vorher ein Wort gewechselt hätten:
+„Hätten wir den Krieg gewonnen, hätte
+jeder Deutsche eine eigene Landebahn
+auf seinem russischen Anwesen erhalten.“
+Wollte er mich provozieren, mir imponieren?
+Er wirkte so wie er war, ca.85 und auf
+irgendwie gesunde Art geschrumpft, total
+vital, braungebrannt und fast jugendlich
+wirkend mit seinen lebhaften, leuchtenden
+rotbraunen Augen. Was meinte er? War das
+der Versuch einer Kriegs-Glorifizierung? Ich
+schaute ihm weiter, jetzt aber agressiver,
+seinem mörderischen Blick standhaltend,
+tief in die Augen. Sein Blick, die Augen
+gerade noch dämonisch eindringlich,
+wirkten plötzlich erschrocken, als hätte ich
+ihn erwischt, erkannt. Als wolle er mir im
+Sinne eines Geständnisses etwas andeuten:
+Etwas unerhört Unaussprechliches, als
+hätte was Grauenhaftes stattgefunden dort.
+Mir wurde ganz anders, und ich verstummte.
+Der drahtige kleine Greis stand auf und er
+wußte, gleich hält der Zug an, und er wußte
+auch welch mächtigen Eindruck er auf mich
+gemacht hatte. Ein Killer?, Ein Angeber?, Ein,
+mit sich im Reinen, Geläuterter?, Nazi? Eine
+Traumata Erinnerung? Eine versehentliche
+Andeutung, die indirekte Beichte ausge-
+sprochen um sein Leiden am Schuldgefühl,
+einem Fremden, einem zufälligen Fahrgast
+deutlich zu machen? Oder einfach nur ein
+Arschloch? Wahrscheinlich war der Alte
+eben das; ein alter Nazi. Das Rätsel bleibt,
+da ich nicht mit ausgestiegen bin, was ich
+sofort bereute.
+Zurück im Mond Europa:
+Also bauten die Nazi-Aliens ? einen
+Mutanten-Doppelgänger von Stiefelchen,
+der nichts anderes ist als ein high-tech-3D
+Hollographie-Programm ist, wie im DUB das
+von Rommel. Aber Kaakei wird das
 4. Reich, das kann er am besten, versenken.
 Die Zeitreisenzuweisungsinstanz könnte
 das auch alleine
 regeln, aber unser geliebter Welt-Schatten-
-Präsidento-Inkognito, John Lennon mit Co-
+Präsidento-Inkognito: John Lennon mit Co-
 Chefs JFK und Julius Caesar auf
 Zwergplanet Ceres, in der Giganto Pyramide
 residierend, in der dortigen von der
 Intergalaktischen obersten Zentralführung
 IOZ eingesetzt, nur der heiligen, höchsten,
-Einen, allmächtigen Schöpferin-Göttlichkeit
+Einen, allmächtigen Schöpfer*in-Göttlichkeit
+aller intergalaktischen Cosmo-Multiversen
 unterstehenden Exilweltregierungszentrale,
-liebt seinen Job, oder er hat Mal wieder eine
-Wette laufen.“🐗:„Mit Julius Caesar?“🚬:„
-Oder mit J.F.K.“„🍺:
+liebt seinen Job, oder er hat wiedermal eine
+Wette laufen.“?:„Mit Julius Caesar?“?:„
+Oder mit J.F.K.“„?:Ich han fleißisch ming
+Person, ming 3-D Addi-Projektion, verstehste,
+ins neuprogrammierte Nazi-Net injecheck
+Alder, huchjefahre, online op
+nazinet.siegheil@gmail.com Gleich lasse
+ich Adolf ans Mikro, aus der Versenkung
+upjetauch, anträdde, mit singer Stimm zu
+singe Fans und rufe das…“?:„1000jährige
+Reich im Nazi-Net aus?“??:„Im Darknet,
+hauwe Jeck!“„?: Und dann?“???:
+afsuffe los ich dä Driss, dusend mal
+dusend und noch ein Jahr, ..?:die Liebe na,
+ahm kein Ende mehr….Dat mäd de lewe
+Jung, de Lennon, nit ich. Dem John hanijet
+jemat, dat janze Projiamierjedriss.“„Der Chef
+der Zeitreisenzuweisungsinstanz?“?:„Sir,
+yes, Sir!“Der Welt-Schattenpräses persönlich,
+na der wird’s schon richten. Oder nicht?
 
-Stand:
-19.6.21, 20:20Uhr, ’21 Cologne, Germany.
-Fortsetzung folgt, es wird ständig korrigiert,
-bearbeitet, und täglich veröffentlicht.
-Viel Spaß beim Schmökern. Wem was zu
-Jua oder sonst was einfällt, was ich hier
-aufnehmen könnte, dem wäre ich dankbar.
-Auf Gmail: georg.dickas@gmail.com
+Wir sind mit den Rakrädern auf dem Hallen-
+Boden gelandet und rollen mit den
+vorsorglich angelegten Gasmasken mit
+Sauerstoffzuführungsvorrichtung in die
+Richtung, in die Kammler bzw. sein Abbild,
+verschwunden zu sein scheint. Ist Kammler
+ein „Gegen-Laban“ der dunklen anderen
+Seite der real stofflischen Existenzdaseins-
+Dimension, wie die Menschheit, die Natur,
+das Lebendige, es wahrnimmt? Warum
+die merkwürdige Koexistenz von gut und
+schlecht, von Heil und Unheil? Von Liebe
+und Niedertracht? Von freiem Wille und
+Zwang? Von Initiierung und Verdammnis?
+Von Gnade und Ungnade, Von Ewigkeit und
+Moment? Müsste das Böse nicht dem
+Guten überlegen sein, es schon längst
+besiegt haben? Ist das Böse nicht richtig
+gut böse genug? Ist das Böse einfach nur
+zu schlecht, um so richtig gut böse zu sein?
+Hat das Gute eventuell Helfer? Das Gute
+sollte schon längst vom Bösen verdrängt
+worden sein, verschwunden sein. Beteten
+wir, riefen wir das? Böse an, bekämen wir
+auf magische Weise monitäre Zuwendung
+und verstärkte sexuelle Kraft, ? ?Ruhm
+Geldzuwachs und Potenzkräftigung. Riefen,
+beteten wir das Gute an, bekämen wir nicht
+Stofflisches, Körperliches, wie Gesundheit,
+Knete, Sex, Potenz, sondern geistige Kräfte,
+wie Liebe, Glaube, Mut, Denkfähigkeit, Ideen,
+Gerechtigkeitssinn, Mitgefühl, Hingabe,
+Hoffnungskraft, Wahrhaftsliebe, und, logo:
+Freude und Humor, Hallelujah,
+Oder nicht?
+Im Schelmenroman nicht verpönt: Predigen,
+vermeintliches Klugscheißen, Tipps und
+Ratschläge, die niemand hören möchte,
+sowie penetrantes Meinungsaufdrängen,
+Indoktrination, ideologisch oder religiös
+motiviertes Propagieren, Lügengeschichten
+Sarkasmus, Zynismus, Veralberungen und
+ungerechtfertige oder gerechtfertigte
+Gesellschaftskritik. „??:Kurz um; ich
+schrecke vor rein gar nichts ?zurück. Ganz
+schön provokant und selbstschädigend,
+doof,? dumm und leider richtig schlimm
+krank, schwer gut. Oder nicht? Das ist alles
+?durch die Kunstfreiheit gedeckt.??☠️
+Ach ja, Ironie ist strengstens untersagt….Du
+dumme Sau…“?„Hau bloß af du..du häs en
+Ratsch im Kappes!?“ Hat er einen Riss im
+Kohlkopf, im Kopf, d.h. einen Dachschaden,
+ist er noch ernst zu nehmen, sollte man den
+schrägen Autor, ?Möchtegernschrifsteller
+nicht in’s doch längst wieder einzuführende,
+längst überfällige Arbeitslager nazideut -
+scher Manier,Tradition also, werfen, stecken,
+wünschen, verbannen, wie es heutige Nazis,
+ca. 10% der Deutschen, das ist von mir?
+vorsichtig geschätzt, sich wünschen, bis er
+ein angepasstes, züchtiges, ordentliches,
+Mitglied der deutschen Volksgemeinschaft
+wird? ,„Dä mötense all verjase!“hörte ich
+schon vor Jahren, mir von hinten ins Ohr ?
+einflüsternde Stimme auf einem Flohmarkt
+im damals finsteren Vingst in Kölle am Ring.
+Wir drehten uns um, Beate und ich, und
+ein Paar in den Vierzigern an einem Winter-
+Sonntag-Nachmittag traf unsere entsetzten
+Blicke und ihre kalten Augen lenkten sie auf
+die balkanstämmigen Roma, die sitzend auf
+Teppisch ihren Trödel zum Verkauf anboten.
+Kalt lief es mir den Rücken runter, und selbst
+die sonst sehr resolute Beate J. war so ge-
+schockt, daß wir sprachlos eingeschüchtert
+es nicht wagten gegen zu halten. Der Assi
+wirkte zudem gefährlich, und der wollte
+mich nur zu gerne, meines Freak-Habitus
+vermutlich, schätzungsweise, ich spreche
+aus Erfahrung, eine‘ reinschlagen. Der
+Hass gegen Fremde scheint, nein, er ist der
+Dreh und Angelpunkt deutscher, nie klein zu
+kriegender Nazi-Gesinnung, gegen das kein
+Kraut gewachsen zu sein scheint. Oder?
+?:„ Bildung, Bildung,Bildung“„??:„Dat
+sin Aaschlöchere! Dene ?Nazi-Köpp sin
+stockstiew Bildungsresistente; da mäste
+jahnix.?Verschwure dreckelije Drissköpp.“
+
+Die Nazi-Aliens sind soweit. Sie wollen das
+Total-Digital-Reich auf der Erde ’28, prokla-
+mieren. Kammlers Super C-Virus hat das www
+lahmgelegt. Es ist hochansteckend und
+der Link knallt jedem, der seinen ?Monitor,
+oder Smartphone nur Bruchteile anschaut,
+ins Gehirn; demoliert blitzkriegmäßig das
+Dachstübchen des Betrachters?☣️☠️?
+folgenschwer und leider richtig gut schwer
+schlimm krank und unwiderruflich. Zum
+Zombie degradiert legen sich die schlimm
+Betroffenen den Scheitel nach rechts,
+rollen harrrrt das r und schlüpfen in Stiefel,
+rasieren sich den Schnauz zum kleinen
+Quadratoberlippenbärtchen und braunge-
+hemdet marschieren sie nach Berlin zum
+deutschen Armreckwettstreit unter lautem
+ständigen Sieg-Heil-Brüllen. Da erwartet
+sie, Kaakei sei Dank, Kai’s umgemogeltes
+Adolf-Mutant-Digi-Roboter, der glücklicher
+Weise nur das abläßt, was Kaakei ihm live
+einprogrammiert. Stramm und mit über-
+menschlicher Anstrengung sind alle
+8.181.000 nur einmal Geimpften nach
+dem langen Marsch am Bahnhof Zoo, am
+B-Tempel, zu Fuß und mit Privatpanzern,
+Autos also, über Berlin eingefallen, und
+erwarten eine erste Ansage ihres
+auferstandenen Scheiß-Nazi-Idols, vom
+Fühler Adoof Hipler, sorry, ich hab den
+original Namen vergessen, einer meiner
+Covid-Langzeit-Folgeschäden, oder nicht?
+Kai ? legt los:
+„Vorsicht! Delta Mutante rannte vorbei!
+Aus Hut trank krank Wut dabei,
+auf der Hut sein gewesen,
+sein gewesen Mut? Jetzt oder nie verwesen,
+gewesen sein Nazi-Unwesen,
+unter Tresen, Hexenbesen, der aus dem Hut
+Kanin schien gezaubert gewesen-Trug
+Haken geschlagen, Hacken geknallt!“
+
+Kaakei’s umprogrammiert Eröffnungsrede
+im sehr stark vergrößerten Tiergarten
+fesselt die infizierten Nazis. Die mächtige
+Mega-Watt-Giganto-PA donnert die kranke
+Rede über die 10 Quadrat-kilometerweiten
+Festwiese. Das 8×81millionenfache
+Siech Hai übertönt alles.
+Hat Kaakei’s Rede gewirkt?
+Oder nicht?
+Das hysterische Nazi-Dreckspack fängt an
+zu graben, zu buddeln. Im Wahn mit Löffeln,
+mit irgendwelchen Hilfsmitteln, sogar mit
+bloßen Händen. Wie Hasen liegen sie dann
+in ihren Erdlöchern?, und scharren sich
+mit der zuvor ausgegrabenen Erde zu. Sie
+geben den Löffel ab und geben sich selbst
+der bald einsetzenden Verwesung preis.
+Der Reise in die Unterwelt steht nichts mehr
+im Wege. Ist das 1000jährige 4. Reich
+untergegangen? Oder ist es umgezogen in
+die Unterwelt. Entsteht dort, wo das Böse
+richtig böse sein soll, am Hades, ein neues
+Berlin? Der Autor, oh, das bin ja ich, sollte
+da unten mal heimlich eindringen und
+schauen.
+Kavoos, so sah es Beate, war mutig in seine
+neue Rolle geschlüpft. Er war nach seinem
+überraschenden Tod 8.2001, direkt zum
+Racheengel im Zwischenreich, auch
+Unterwelt genannt, berufen worden. Ohne
+mit der Wimper zu zucken, ohne Protest,
+so stark gläubig und überzeugt war er. Er
+hatte zu Lebzeiten einem Kleinkind das
+Leben gerettet, eventuell auch das der
+Mutter. Der Laster wäre unausweichlich
+über…Ich beneidete ihn deswegen ein
+wenig, weil mir klar war, daß er damit einen
+Joker ? gezogen hatte. Wer viel liebt, dem
+wird auch viel vergeben. Bei Kavoos gab es
+einiges, was Vergebung gebraucht hätte,
+aber mit dem Joker würde die Göttlichkeit,
+hier Gott genannt, ihn nicht ins Feuer
+schmeißen lassen, sondern eine spezielle
+Aufgabe bekommen, dachte ich, so denke
+ich noch immer. Die Göttlichkeit verurteilt
+uns, glaube ich folgendermaßen: Unsere
+Absicht wird untersucht und danach
+werden wir bewertet. Und jeder hat schon
+mal in Umnachtung schlechte Absichten,
+aber genau davor müssen wir uns hüten.
+Wiederholungen möglichst ausschließen.
+Wie Kavoos gerne und oft sagte:„Einmal
+ist keinmal, zweimal ist einmal zuviel!“
+Jetzt sei er ein mächtiger Racheengel.
+Das glaubte ich Beate gerne, da das
+perfekt zu ihm passen würde. Dort, so
+Jesus, laut Berger&Nord in Apokryphen als
+Agrapha überliefert, ist das Böse richtig
+böse, und das Gute richtig gut, und niemand
+der da unten hin musste zweifelte noch an
+der Existenz der göttlichen Allmächtigkeit,
+bei uns Gott, Allah, genannt. Kavoos macht
+seinen Job sehr gut, und kein Nazi entgeht
+dort seiner Strafzuteilung. Spätestens da
+kommt alles ans Licht, ans Licht der
+Flammenhölle, in der sie gequält werden.
+Kavoos besorgt das, bis sie abschwören
+und bereuen und ihre unstoffliche Seele
+durch das ? Feuer geläutert ist. Jede
+Seele muß da durch, jedoch gute Seelen
+sollen das reinigende Feuer ? nicht stark
+spüren. Boshaftgewesene Seelen aber
+als sehr schmerzhaft quälend. Nur sehr
+wenige sollen ewig in der Verdamnis
+bleiben. Naja, wir werden es doch alle,
+wenn das letzte Stündchen schlägt, dann
+schauen. Oder nicht?
+Orfeus war da unten und im übertragenen
+Sinne ich auch. Seine Geschichte ähnelt
+meiner. Meine Liebste ging in die Unterwelt,
+in die Psychosewelt und eh‘ ich’s realisierte
+verschwand sie. Sollte ich hinabsteigen und
+nachschauen was sie macht? Orfeus
+machte das und bekam richtig Ärger. Sie
+hatte ihre Neuroleptika abgesetzt. Das
+erklärte ich unseren gemeinsamen
+Freunden.„Die will nichts mehr von dir, sie
+hat dich verlassen, du solltest das
+realisieren Schorsch.“Freund*innen
+glaubten mir nicht, wollten mir nicht
+helfen, bei ihr mal nachzuschauen, da sie
+mir das verweigere, ich schien feindlich
+ihr zu kommen, was sehr merkwürdig
+unerklärlich mir wiederum schien. Die
+Polizei riet mir auf meine Anfrage,
+jemanden zu ihr zu schicken
+den sie reinließe, der sich bei ihr in der
+Toilette einschließe um dann über Handy
+die Polizei um Hilfe bitten solle, er wäre
+in Lebensgefahr, da bedroht. Die Polizei
+käme dann und könnte sie deshalb per
+gesetzlicher Bestimmung für Psych.KG
+in die Landesklinik einweisen. Das brachte
+ich nicht übers Herz, und ich ließ sie in
+der Unterwelt, wohlwissend, daß sie dort
+mit von skrupellosen Drogensüchtigen
+die sie bei ihr in der Wohnung übernachten
+ließ, da diese obdachlos waren und diese
+um deren Zustand wussten und das
+schamlos ausnutzen. Ihre eigene Familie
+wollte ebenfalls, da sie mir nicht glauben
+wollten, nicht helfen. Wie auch. Auch diese
+schickte sie weg. Zurückblicken wie Orfeus,
+das tat, und dem daraufhin der Kopf
+abgerissen wurde, dessen Kopf immer
+noch sang als er im Hades treibend aus der
+Unterwelt in diese Welt gespült wurde,
+wollte ich nicht. Abwarten bis sie zu mir
+aus eigenem Antrieb zurückkehrt war die
+mir einzig richtige Möglichkeit zu sein.
+Ich bin in dieser langen dreijährigen
+Warteschleife festsitzend fast gestorben.
+Im Gegensatz zu Orfeus konnte ich das
+aushalten, ohne zurückzuschauen.
+Seine Euridike wäre nach ihrer Verwirrnis,
+vielleicht auch wieder zurückgekehrt,
+sie wollte mit ihm nichts mehr zu tun haben,
+und er, der Schönling, von vielen Frauen
+umworben, wollte lieber schwule
+Beziehungen eingehen, als mit diesen,
+wie er ihnen besser nicht Bescheid hätte
+sagen sollen. Sie bestraften ihn tödlich. Mei-
+ne gesundete Ex wurde endlich, bis zu ihrem
+Krebstod drei Jahre später, wieder meine
+Liebste. Es begann die schönste Zeit
+unseres Lebens. Zwei traumhafte Jahre
+voller glückseliger Zweisamkeit. Sie hat
+mich echt geliebt. Sind Euridike und Orfeus,
+Abbilder einer sich so, oder eben so, sich
+immer wieder wiederholender Geschichte?
+Oder nicht?
+Kaakei ??drängt zum zeitigen Rückflug.
+Mit den Rakrädern zurück zum DUB ?.
+Eine zweite Rede ist erstmal unnötig.
+8 Millionen Nazis ausgeschaltet und
+die Robotik-Schüssel-Baustätte noch nicht
+ausgeschaltet, Es könnte brenzlig werden.
+Die notwendige Fütterung mit Schadstoff-
+Links der Europa-Zentral-Digital-Steuerung- Rechenanlage findet vorsichtshalber
+außerhalb des Mondes statt. Das DUB ?
+bohrt sich, im Drillmodus zuerst langsam
+noch dicht in der Nähe der Eiswand, dann
+zügig, züjisch, avanti galoppi, weg hier. Den
+Nazis zuvor kommen vor deren ‚Verbrannte
+Erde“- Hardcore Manier, Kriegsverbrecher,
+unheilvolle. Heilfroh zündet Kai ???
+eine Kippe, und mit dem Fuß den Raketen-
+Antrieb.???.?Glück gehabt. Mit
+Links der besonderen Art, von Bo und Igor
+inspirierten aufgefricht sendet das DUB
+an Europas Digitalnetz. Die Robotik fertigt
+jetzt was ganz anderes: …………….Teile.
+Eine Selbstzerstörungsnotschaltung gab es
+zwar, aber die mußte, logisch, vom Orginal-
+Addi genehmigt werden, der aber angelt
+jetzt lieber im Reich, sorry am Teich,
+tausendjährigreichiges
+frisches leckeres, Baggersee ? Fischbrat,
+am liebsten Heilbutt, dabei genießt er Musik
+von GUD. Der von Egowahn, bzw.: Naziwahn
+“Geheilte,“ samt seiner, in seiner
+Herrenmensch-Attitüde-Art,
+“Untermenschen“-Ausrottungstatbeständen
+und queren, verschwörerisch begründeten,
+grausam vollzogener hinterhältigen
+Juden Ausrottungsmaßnahmen,
+mit denen er der ganzen Welt gezeigt hatte,
+wie man ein ganzes Volk dazu bringen kann,
+es von einem Angriffskrieg zu begeistern,
+und beim high-tech Ausrotten ein Auge zu
+zudrücken, und ihm, dem Führer, bis in die
+absurdesten Endsiegfantasien mit Wunder-
+Waffen und okkulter scheinreligiöser Ultra-
+Scheinheiligkeit bis in den eigenen Tod zu
+folgen. 27Millionen Ermordete mindestens!
+Dafür gibt es für das Deutschland
+danach, wie für einen Kinderschänder-
+Strafgefangener nach seiner Haftstrafe,
+lebenslange Sicherheitsverwahrung. So
+ist Deutschland auch heute noch, und das
+nur zurecht, kein souveräner Staat in der
+Staaten-Weltgemeinschaft. Finde? ich ok.
+Nur eine GmbH, eine Firma, die jederzeit
+übernommen werden kann? „Putin? ist da
+zum Glück unser “Bewährungshelfer“.“Wie
+mir ein Vögelein zwitscherte. Rein juristisch
+bleibt der Status Deutschlands nach wie vor
+offen!“ Das behauptet zB. ein Kumpel, der
+allerdings auch so ein Spacko; ein in seiner
+eigenen Digital-Welt lebender, der prinzipiell
+weder Radio noch TV schauen will, obwohl
+doch gut ausgebildete Journalist_innen, die
+das richtige Recherchieren gelernt haben,
+da arbeiten. Dieser Mensch ist ein seiner
+Verschwör-Fantasmen erlegener, lieber und
+mich stets hilfsbereit warnender Nachbar.
+Stimmt das, was er mir glaubhaft erklärt?
+Oder nicht?
+Der schlimmste Teufel aller Zeiten,
+unglaublich aber wahr, fragt selbst bei der
+Zeitreisenzuweisungsinstanz nach, fand
+sein Heil beim Fischangeln
+und nicht beim unheilvollen Dummmensch-
+angeln, und blieb zum Glück nur noch armer
+Spacko mit seiner neuen Блонди….?
+Kaakei? hatte nicht damit gerechnet,daß
+Europa heil bleibt, aber Vorsicht sollte
+schon geboten sein. Diesen Nazis ist alles
+zuzutrauen. Was ich zu “zuzutrauen“
+zukünftig zuversichtlich zu mir zu Ohr
+kommen lassen möchte, ist, daß die
+nichtweiblichen Neonazis alle unbewusst
+ihren Addi homosexuell begehren. Da
+staunt der Hetero und wundert sich der
+Nichthetero. Oder nicht? Entspannt hören
+wir auf der DUB GUD-Band Musik
+und überlegen uns was uns unsere Roboter
+?auf Europa fertigen könnten. Heil
+angekommen im weiten kalten All sind
+wir ohne Gefahr, in jedem Fall. Eine
+Rakräder Produktion gefiel uns allen.
+Eine Musikinstrumentenmanufaktur auch.
+Eine Baumschulenaufbauroboter Fertigung,
+ist wie eine Solarpanel-Produktionsanlage,
+oder eine Fertigungsmaschinerie für
+Trinkwasseraufbereitungsautomaten eine
+gute Idee für die Europamondexnazigeheim-
+waffenfertigungs-
+Hallen, wo vollautomatisch high-tech-mäßig
+ganz ohne Personal ferngesteuert
+produziert werden kann. Idealer Weise
+könnten dort high-tech-Kappen hergestellt
+werden:
+Für jede Autor*in, Musiker*in, Künstler*in,
+für alle kreative Mensch*innen, NRW-RWE-
+Dividendeninanspruchnehmer*innen,
+Politiker*innen, Polizist*innen, in infamer
+und so, meiner Meinung nach, fälschlicher
+Weise, da psychisch ungesund, und meist,
+dadurch schwer krank machend, für alle
+sogenannten Sexarbeiter*innen, und
+deshalb auch geeignet für jene korrupten,
+unheilbringenden, Gesetzgebungsinstanz-
+Mitarbeiter*innen, die solch schräge,
+absurde, weltfremde, obszöne Gesetze
+absegnen, und, bzw oder, meinen erlassen
+zu müssen, um Menschen in die
+sklavereiähnlichen, oder genauso schlimm,
+dem Menschenhandel zuarbeitenden,
+zuführenden und begünstigenden,
+menschenunwürdige Dienste also, zu
+treiben, diese sogar, unglaublich aber wahr,
+legitimieren, und Deutschland zum Puff
+Europas, sogar Eurasiens zu machen. Das
+horizontale Gewerbe, made in Germany, ist
+weltweit in aller Munde; eine unheilvolle
+Entwicklung? Ja, es ist eine schlimm
+selbstgemachte Schande! Freier sind
+definitiv Sadisten, Perverse also, unbewußt
+vielleicht getrieben, aber ich hasse diese
+Typen und breche Kontakte mit solchen
+Arschlöchern…rigoros ab. Solltet ihr auch
+machen.???Kaakei:„Wir haben
+verstanden Schorsch, sag endlich was für
+Kappen du für diese lange Liste von Leuten,
+wie Künstler, Kreative, Politiker, Gesetzgeber,
+Prostituierten, Aktionären, ferngesteuert
+herstellen lassen willst?„??:
+„Aufsetzbare elektromagnetische Dumm-
+Gedanken-Absaug-Kappen, bräuchte
+ich selber auch, die Gedanken
+niederer Art aussieben, neu sortieren,
+optimieren, in den meisten Fällen besser
+löschen, oder umwandeln können zu
+Delta-Dackel-Straßenlaternenholzmast-
+wurzelschnapps.“?:„Prost Jua.“ Hier
+oben im DUB ? wird uns bald etwas
+Gescheiteres einfallen, oder nicht?
+„Dronen“?„Mit eingebautem Teleskoparm-
+Schläger.“„Einsetzbar als selbstsuchender..“
+„Impfverweigererwatschenklatschautomat.“
+„..als Tischtennispartner.“„intelligente
+solarbetriebene Dronenroboter.“„Die ??
+????Musikinstrumente spielen!“„Ok.,
+Aber bitte mit Rücksitz für..“„Mich!“„Für das
+Orchester oder Big Band.“„Alles klar, du
+Honk.“„Im Ernst, Dronen haben Zukunft….
+„Aber bitte nur mit Kofferraum.“„Da kommst
+du rein, Spacko.“Im DUB ? sehen wir beim
+Spaßen auf die Großbildleinwand. Im Bild
+der Mond Europa, den wir umkreisen. Im
+Hintergrund der Riesenplanet Jupiter. Uns
+wird ganz anders, als wir hunderte
+aufsteigende hakenkreuzförmige riesige
+Raumschiffe sehen, die in Staffeln
+ausschwärmen und Kurs auf unser DUB, ?
+auf uns also, machen. Kaakei ? trinkt sein
+1 Litter Maß aus und setzt das zweite an.
+„Denne drieh ich do Saaf af, oppjepas!
+Glich stürze däre eiti-Driss-Nazi-Rechner af.
+Jenau jetz.“ Er flitzt über die Tastatur und
+drückt, “tata“- krähend auf die Befehlstaste.
+Leider passiert nichts. Nur im DUB wird’s
+dunkel. Kaakei hat selbst keinen Saft mehr,
+weil er vergaß die Stromrechnung zu zahlen.
+Die GEW hat vollautomatisch, der neue
+Digitalstromzähler, den Stromhahn ohne
+letzte Warnung zugedreht. Die Nazi-Raum-
+Hakenkreuzer übersehen uns zum Glück, da
+wir weder Licht noch elektrische Signale
+ausstrahlen. Wir ersetzen Kaakei, und Boris
+übernimmt die Pilotenkanzel mit Igor
+zusammen. Kaakei kommt ins Laufrad um
+Strom zu erzeugen, damit wenigstens der
+Bordcomputer läuft. Schafft Kaakei ? das
+alleine? Oder nicht?
+Erst als das Bord-IT-Netz hochgefahren ist
+kann Igor die Not-Strom-Versorgung in
+Gang setzen. Ähnlich dem Atomunglück
+in Fukushima, wo übersehen wurde, wie ein
+Notstromaggregat durch einen Tsunami
+ausgetrickst werden kann, hat das DUB eine
+Sicherheitslücke, die aber letztlich sogar
+für uns sich als ein Glücksfall darstellte, die
+unbedingt gestopft werden sollte. Ohne das
+Hamsterrad im Großformat in der Turnhalle,
+in der DUB-Mucki-Bud‘, eine Schnapsidee
+Kaakeis selbst, er ist halt Elektriker mit Sinn
+für Steinzeit-Elektrik, als hätte er geahnt,
+daß es mal nützlich hätte sein können; um
+zu demonstrieren was Strom leistet ist das
+Hamsterrad mit AC/DC Sound Lautsprecher
+angeschlossen, die um so lauter wird, desto
+schneller man sich im Laufrad bewegt. Die
+Anlage abzugeklemmen, und mit dem Saft
+die Bordcomputer zu speisen, hat uns im
+Prinzip das Leben gerettet. Igor ruft Kai?
+an den Pilotenkanzelbordsteuerungs-
+Rechner und kann dich um die
+Notstromaggregate und die Akkumulatoren
+kümmern, die schon lang leer, da nie
+benutzt, geladen werden sollen. Verdammte
+Schlamperei auch! In Zukunft zahlen wir
+der GEW besser per Dauerauftrag und
+Kontoeinzugsermächtigung, daß so ein
+Schlamperei-Zunamie nicht mehr über uns
+hereinbrechen kann. Jua ☀️ spielt zur Feier
+des Tages “Mundtot gemacht ein ganzes
+(DUB?) Land!“ Das Stück im R’n‚R-Rhythmus-
+Drive, daß sich um die NRW-RWE-Landes-
+politik dreht, die dem Energieriesen dessen
+Verbrechen an der Umwelt durchgehen läßt,
+sogar erlaubt: Quecksilberausstoß und CO2-
+Ausstoß durch sinnlose dreckige unnötige
+umweltfeindliche Verbraunkohlung, Heimat-
+Mord, Naturschändung und Vertreibungen
+von Vögeln, Insekten, bedrohter seltener
+Tierarten, Tieren, alter Wälder, wertvoller
+Ackerböden und, ganz schlimm, der hier
+seit Generationen beheimateten
+Dorfbevölkerung und deren gewachsener
+Kultur. Abrisse heiliger Kirchen, Denkmäler
+uralter Höfe und uralter Festplatzbäume
+sind da mit inbegriffen.
+Das passiert wirklich hier rund um die
+RWE-Krater im Kraterland, im RWE-Land,
+im NRW-Land, im Rheinland vor den Toren
+von uns hillich Kölle am Ring. Das ist leider
+alles wahr, ein unglaublicher Frevel in ’21,
+oder nicht?
+KammlersHakenkreuzer, hakenkreuzförmige
+Raumschiffe drehen sich rechts um die
+Mittelpunktachse ca.10 Mal pro Minute.
+Bei einer mächtigen Größe von 100 Meter
+im Durchmesser entsteht in den 4 letzten
+Armteilen eine Zentrifugalkraft, die den
+Insassen angenehme gewohnte Gravita-
+tionskraft fühlen läßt. Sie bewegen sich in
+Richtung der Mittelpunktachse und
+schrauben sich lautlos aber rasant, mit ca.
+40.000kmh durchs kalte einsame All. Sie
+strahlen in einem fluoriszierenden Weiß,
+das schwach türkisgrün leuchtet, an den
+Enden der Hakenarme rot auf sonst
+schwarz umrandeten rohrartigen Armen.
+Hunderte dieser Hakenkreuzer jagen über
+unser 144 m langes DUB hinweg. Sie
+ignorieren uns einfach und fliegen gestaffelt
+in 4er Formationen in Richtung Erde? Wir
+verfolgen sie und sie bemerken uns nicht.
+Oder doch? Eine Falle? Seine schiere Über-
+macht könnte Kammler dazu veranlaßt
+haben Vollgas zu geben. Die Einrichtung
+des 4.Reichs, sein tausendjähriges Reich,
+soll morgen im Blitzkriegtempo seinen
+Anfang haben? Wahnsinn oder
+unausweichlich methodischer Masterplan
+eines Super-Hitlers? Wir Juas und alle im
+DUB ?folgen ihnen auf dem Fuße. Sind die
+Hakenkreuzer mit Nazimutanten, ?
+Roboter also, besatzt, oder leer? Holen sie
+ihre humannoiden, ihre naturbelassenen
+Ebenbilder endlich ab?
+Oder nicht?
+Leider nein. 6 Jahre nach der Delta-Variante-
+Long-Covid-Folgewirkung, einer Versteifung-
+des rechten Armes und der ✋ Hand, im
+118-Gradwinkel, ein stumpfer Winkel zum
+Körper hin. Das allein behinderte die
+Betroffenen nur wenig gegenüber der
+Tatsache, daß keine Frau mehr schwanger,
+werden konnte, weil nicht nur der Arm von
+der Dauerversteifung betroffen war, auch..,
+tja, die Männer weltweit waren nicht mehr
+in der Lage, da sie sich regelrecht
+auspumpten und im Ejaku permanent fast
+kein Sperm im Sack drin blieb. So redu-
+zierte sich die Menschheit durch das Ableb-
+en der Ältesten um 10%. Neugeborene
+gab es 20 mal weniger. Langfristig war
+Feierabend. Die armen Männer weltweit
+verwandeln sich in debile Turbo-Monster-
+Mastubatoren mit degenerierterm, schlimm
+verwahrlosten Habitus.
+Das Schau-Fliegen der Hakenkreuzer über
+Kalk registrieren die Frauen von Kalk. Sie
+ignorieren das, weil sie es für AFD-Wahl-
+Werbung halten, und sind nur noch genervt.
+Die Europamond-Nazi-Mutanten sammeln
+ihre anscheinend treuen Anhänger, da sie
+diese versteiften Armrecker fälschlicher-
+weise für Fans halten, in die Hakenkreuzer
+ein, und übrig blieben, zuerst in Kalk, dann
+in Köln, dann in D, EU, Amerika, Asien und
+schließlich weltweit nur noch Frauen.
+Die Samen-Banken geplündert, Ende
+Gelände, Ende Nachwuchs, Ende
+Menschheit, Ade. Was bleibt übrig?
+Nazimutantenroboter und regenerierte
+Turbomasturbatoren im Hakenkreuzer.
+Schweine im Weltraum? Oder was? Lew
+Fründe, jod Nacht, bin möd, ich jon schlofe.
+Antarktis ist das Ziel der 180 Hakenkreuzer.
+Auf 9 im Quadrat,3×3, angeordneten Lande-
+Plätzen stapeln sie sich, zu je 20 ca.200 m
+hoch. 9 Hochhäuser, von denen nur das
+oberste Stockwerk aus dem ewigen Eis
+herausragt. Kai hat das DUB ? vorsichtig,
+mit der Zielverfolgungsautomatik, unbemerkt
+verfolgen können. und beim Überflug filmen
+können. Kurz danach verschwindet alles
+unter einer Schneedecke. Die armen Steifen
+werden ihre Entführer erbarmen müssen,
+daß sie keinen neuen Führer wollen.
+Entspannung, Gesundung von der “Steif-
+Krankheit“ wünschen sie ausnahmslos.
+Nichts so sehr als Heilung von der harten
+geilstmachenden neuartigen
+Infektionskrankheit. Sie
+leiden elendisch lustvoll, fast schmerzhaft.
+Sie versteifen sich so stark darin, daß sie
+alles dafür tun würden, sogar einer Covid22
+Astra-Seneca Impfung würden sie jetzt
+akzeptieren. Bis auf wenige Querköpfe, die
+lieber steif bis zur Leichenstarre bleiben
+wollen. Klar ist das Eine: Jeder stirbt früher
+oder später an so einer orgiastischen
+Überanstrengung an Auszehrung, innerhalb
+weniger Jahrzehnte? Achtung, das ist ein
+Scherz, innerhalb kurzer Zeit, weniger
+Wochen oder Tage. Oder nicht?
 
 ®©Georg Dickas✓Schorsch Tantekel©✓
-®Blunot Rec.BR4711,CD.LP.CC.EU.J.USA
+®Blunot Rec.BR4711,CD.LP.MC.EU.J.USA
 Made in Germany✓Cosmische Kalkurier©
 
 Autor Schorsch Tantekel
+Kapitel 126
+
+Datum 14. Juli 2021, 17:25
+
+126.Teil, Schelmenroman von Georg Dickas
+in Fortsetzungs-Folgen, die ständig
+bearbeitet und korrigiert werden:
+Jua-Band-Bio, Der Steinzeit-Trip,
+Die Reise zur Antarktis:
+
+Ebenso um
+79 Jahre verjüngt, weil von Nazi-Aliens in
+die Zukunft mit fast Lichtgeschwindigkeit
+gereist, wie Addi, SS-Kammler hat sich auch,
+unwissend daß Adolf in Russland lebt,
+einen 3D-Addi gebaut, gestrickt,
+programmiert. Humorlos wie ein
+Technokrat hat er keine Chance gegen
+unsereren Programmi-Addi, ein Programm,
+das Kaakei ? mundgeklöppelt hat.
+
+LAMENTO IM SCHELMENROMAN:
+
+Geistgeprägte
+Kreaturen sind wir, Geistbegabte, die durch
+Musik, Musikmachen dem Göttlichen nahe
+kommen können. ♾️Auf diese einfache Art
+und Weise spüren wir alle Göttliches;
+göttliche Nähe. Oder nicht? Hier drei Fälle
+in denen das Gegenteil erreicht wird, also
+vom Göttlichem weggeführt wird, die
+Gläubigen, da sie den Hals von Religion voll
+haben, werden dem Atheismus zugeführt,
+wie es zurzeit dem schikanierten persischen
+Volk ergeht.
+Das iranische Mullah-Terror-Regime, das
+sein Volk irre macht, sowie
+der mit Auslöseschalter in der Hand für
+den Sprengstoffgürtel, als“Endsieg-Ikone“,
+der“Selbstmordattentäterheld“ im Inter-Net.,
+oder der sogenannte IS, die üblen,
+unreligiösen Religionsschänder mit der
+“Verbrannte-Erde-Taktik für Arme“. Sind das
+schlichtweg Internet-Kollateralschäden?
+„Jawoll“, und sowas liefert uns freihaus ein
+Angst einflößendes Feindbild, daß der
+Rüstungsindustrie und dem
+Turbokapitalismus von heute dienlich ist.
+Was ist? Dem Wähler Angst machen,
+damit sie rechts wählen, ein Feindbild
+liefern, der Jude damals, der Moslem heute,
+und Volk wählt seine eigenen Henker. Das
+war schon immer so. Klappt immer. Das
+Autofahren sanktionieren und es wählt
+stramm rechts, Klimatretter kontra
+Autofetischisten im Wahlkampf’21; es siegt
+der rechte Dummbatz. Oder nicht?
+Schwarzer NRWE Arminius, der uns Natur,
+uns Gesundheit schlachtet, uns grünes
+Klimaretter-Wahlvolk linksrot betrachtet, das
+in die Linksextremismus-Ecke gedrückt wird,
+und uns quasi denunziert. Den Klimawandel
+zwar erwartet, aber nichts macht,
+ignorantisch Getier, Natur, und uns martert,
+daß alles so bleibt wie es ist, für uns
+deutsch Konsumfaschist. Zu hart dekliniert?
+Dann sag ich Konsumfetischist, nicht weil’s
+wahrer ist; BRD läßt zu daß Menschen heute
+im Billiglohnland sklavisch schinden und
+rackern müssen, wie einst im Nazi-Kazett-
+Lager. Aber Vorsicht mit Begrifflichkeiten
+wie Faschismus, den will ich nicht
+verharmlosen, denkt man an vollzogenen Judenausrottungstaten in Nazi-Deutschland.
+Das Kennzeichen von Faschismus ist eben
+Lagerhaltung! Von Menschen in Kazetts,
+Arbeitslagern, Gulaks. So gesehen
+konsumieren wir, lebend in einem
+„raffiniertem Konsumfaschismus“, zb.:
+Deutsche Händler lassen wie einst
+Kolonialisten, indirekt Sklavenhändler also,
+Waren herstellen und importieren.
+Billigklamotten, die gefertigt von armseligen Lohnsklaven, mit denen niemand tauschen
+möchte, da es uns umbringen würde, bzw.;
+wir uns lieber umbringen würden, statt ein
+sklavisches, hartes Dasein fristen zu
+müssen. Oder nicht? In der Antike
+brauchten sich die Leibeigenen, Sklaven
+also, keine Existenzsorgen zu machen, da
+sie gesichert Nahrung und Schlafplatz
+hatten, auch wenn sie keinerlei Bezahlung
+bekamen. Heutigen Mini-Lohn-Sklaven geht
+es schlimmer, da sie oft ihre Miete, Nahrung
+nicht bezahlen können und jederzeit
+obdachlos werden können. Im unwürdigen
+Dauerstress können sie nur von Tag zu Tag
+leben, nichts planen, was Kinder, Heirat,
+Ausbildung angeht. Die römischen Sklaven
+waren da besser dran. Wir unterstützen die
+„Sklavenhaltung“, weil wir ohne Scham und
+Bedenken konsumieren. Der Staat macht
+sich halbherzig, ohne Gegenmaßnahmen bei
+der Gesetzgebung zu fordern, zum Förderer
+der schlimmen Ungerechtigkeit, weil er an
+der „Sklavenhaltung“ mitprofitiert. Eine üble
+Schande ist das! Kauft mit Verstand Leute!
+Konsumfreie Zonen im öffentlichen Raum
+durchsetzen wird politisch ignoriert, obwohl
+schon lange gefordert. Konsumreduzierer,
+Konsumverzichter kontra Konsumismus.
+Klimatretterhelfer kontra; “mein Auto ist
+meine Burg, mein Glauben, mein Erstes,
+mein liebst Ungemacherrettungshelfer,
+ohne dich verloren, du bist mein Bestes.“
+Aotomobilophile kontra Automobilophobe,
+Ignoranz kontra Gewissheit, Konsumsucht,
+Unzucht, Selbstsucht, alles wird ultra, Selbst- Mobilmachung, hyperaktiv, neurasthenisch,
+manische Unruhe, kontra Selbsterkenntnis,
+Gelassenheit und Achtsamkeitsempfinden
+und Ruhe. Umweltfeinde kontra
+Umweltfreunde. Naturschänder, N.-Benutzer,
+Naturausbeuter, kontra Naturbelasser,
+Naturschützer, Naturhüter.
+Autobenutzer kontra Autoächter,
+Konsument kontra Destruent,
+Natur-Verbraucher kontra Natur-Produzent,
+Illegale Abholzer kontra Baumpflanzer,
+Klimakiller kontra Klimaschützer,
+Arminius Lusche ? kontra Christiane☔
+Lusche kontra Klimawandelverhinder*innen,
+Arminius L. ?kontra Klimaretter*innen⚓,
+Ablebende ?kontra Vorlebende!?
+Regierungsbeauftragte? ,kontra
+Schöpfungserhalter*inen♾️,
+Staatsgewalt ?kontra Naturerhalt?,
+Monitärpolitik kontra Klimaschutzpolitik,
+Internationale Finanzindustrie kontra
+internationales Klimaschutzabkommen.
+Spekulanten kontra Klimaschützer,
+Materialist*innen kontra Klimaretter*innen,
+Autobenutzer*innen kontra
+Autonichtbenutzer*innen,“Nach uns die Sinnflut“kontra“CO2Ausstoßreduktionsver-ordnungsgesetzbefürworter*innen, die durch
+die Naturschutz-Behörde mit Befugnissen
+weltweit das zu kontrollieren, und hart zu
+bestrafen bei Nichtbefolgung durch
+den internationalen Naturschutz-
+Strafgerichtshof Köln-Kalk“. Apokalypse-
+Herausforderer kontra zweimal geimpfte
+hoffnungsvolle Klimawandelverhinderungs-
+Optimist*innenen, bzw Spinner*innen.
+Apokalypse Beobachter*innen kontra
+Apokalypse Nichsehenwollende,
+Realist*innenn kontra Träumer*innen.
+Spanner*innen kontra Spinner*innen,
+Doofe Schlaue kontra dumme Deppen,
+DUB? ??????kontra
+Hakenkreuzer?.
+♾️kontra Nationalismus ?,
+?kontra Jua☀️???☔,
+Gleichgültigkeit kontra Eindeutigkeit,
+Armin kontra Amen.
+????????kontra ????
+?kontra ?️!
+Westkultur kontra Natur!
+Liebe, Licht, Struktur, Kontur, Raum & Natur.
+Das ist alles was wir brauchen.
+Was brauchen zum Leben wir im Kern?
+Das Gesuchte umgibt uns, ist gar nicht fern.
+pur ist nur die… Na?
+Wer gibt uns gnädig zur Klimarettung
+die Bäume, den Wald und das gratis sogar ?
+Wer hat uns gar nicht nötig?
+Wer kann sich verändern, anpassen?
+Wer ist’s, die uns beschenkt und dem wir
+schaden, töten unwiederbringlich Tierarten?
+Na..? Es ist die, Na..?
+
+WIGGER IM ROMAN:
+?: „ne kahle Bur?“
+??: „Was treiben die Nazis an der
+Antarktis, Kai?“?:„Ich häck mich jerad bei
+denne rin.“„Als Addi?“„Sicherlich, als Addi,
+de Führer vum Deutsche-Schäferhonk-Klubs,
+Abteilung:„Kalk,-Poll,-Vingster ahl Knoche,
+Siech Hail.“?„Nee echt?“„?Natürlich
+nicht! Die suchen uns, bzw das? DUB, das
+sie in ihrer Antarktis U-Boot Andockstelle
+seit langem erwarten, um es im Europa-
+Jupitermond in Großproduktion
+nachzubauen, für den Nazi-Endsieg um sie
+zur anschließenden Schutzwehrkraft ihres
+anstehenden tausendjährigen Reiches
+bereitstellen zu können. Das werde ich
+verhindern.“?: Als Kaakei-Addi?“?: „Als
+Holo-Hitler-Heilmichfett!“„Ja wie?“?:„Stör
+mich nit, hau af, Schorsch, ich han Stress
+mit dem Häckereijedriss, waad ich bin drin.
+Uchkgfkjcybgtynndvbhxvhv.de, so, ok.,wir
+docken bei denen an, auf geht’s!“ Kai? ist
+im Dienst Er spricht kein Kölsch, gibt
+Anweisungen, gleich wassern wir und
+bohren mit dem DUB ?in den Antarktis-
+grund ein. Die Jua-Musik plätschert im
+Roots-Reggae-Zeitlupentempo, bluesig, im
+ternär-Rhythmik-Swing bedächtig, b-moll,
+alles ein Halb-Ton heruntergestimmt,
+vor sich her, als ich im Bordwald eintrete,
+wo meistens gespielt wird, und eine Wolke
+☁️ wirkstoffreichen Qualms mich regelrecht
+umhaut. Der russische Chor baut und baut
+eine Pfeife nach der anderen, daß die Juas
+alle im Liegen spielen. Daß überhaupt noch
+gespielt werden kann wundert. Der Chor
+brummt gebrochene Vocal-Akkorde in den
+untersten Lagen, teils unterirdisch schräge
+Tiefstbässe mit ihrer Ober-oder Unterton?-
+Gesangs-Technik wie einst tibetanische
+Mönche. Balu singt mit, er kommt sogar
+noch eine Oktave tiefer, jenseits des
+menschlichen Hörvermögens; es kitzelt nur
+noch auf der Haut, und meine Hose flattert
+leicht im sub-Bass-Schwingungsbereich.
+Die sind so gut, denk ich, die brauchen mich
+? gar nicht. Allein das Einatmen der dicken
+Luft hier, voll herbsüßlicher Rauchschwaden
+macht mich hackenbreit. Ich pack es nicht.
+Alkohol braucht hier niemand mehr. Fast?
+niemand. Selbst Bob Marley, oder Jim
+Morrisson hätten über die gigantischen
+Mengen gestaunt, die hier in Rauch ☁️
+verwandelt werden und als grüner Nieder-
+schlag herabnieseln☔.Das Gebäck
+schmeckt gut, würzig herb. „Vorsicht!“
+raunt Sonja mit ihrer schönen bassigen
+Stimme. Zu spät, alles im Magen. „Na dann
+gute Nacht, Schorsch.“ Wie meint sie das?
+Zwanzig Stunden später wache ich wieder
+auf; mit Butterhänden und dicker Hose. Die
+? Zunge will noch nicht wie ich will und ich
+gurre Unverständliches. Ich falle beim
+Herabsteigen der Treppe auf die erste Stufe
+auf den Hintern und Stufe zu Stufe zu Stufe
+zwanzig Mal bis zur untersten, autsch. Dann
+endlich Kaffee zum Frühstück, aber das
+zündet, kaum im Magen beim Verdauen
+angekommen, erneut die Wirkstoff-
+Verwertung an und alles verfärbt sich in rot
+grün Kontraste, und mir wird wieder ganz
+anders und stocksteif fall ich in einen
+feuchten Lusttraum der Sorte „Auweia und
+Hastenichtgesehn“.Gummi Bär zieht mich
+am Kragen unter die Dusche und läßt mich
+da liegen. Das war echt peinlich.
+Im Antarktisgrund bohrt das DUB ? von
+tiefergelegenen Erdschichten langsam
+nach oben in den vermuteten Bereich,
+in dem sich die Nazibrut ihre Bunker Basis
+Station samt Andockankerplatz befinden
+sollte. Wie einst das Trojanische Pferd
+lassen uns die Nazideppen per Lotsen rein
+Kai??hat sich in seine Addi-
+Verkleidung geschmissen. Alle an Bord jetzt
+in Reichsbahner-Uniformen steckend,
+üben das R-zu rollen, das rechte Armrecken,
+rasieren frei sich die Nacken,
+geradeaus der kühne Blick,
+die Uniform sitzt gut, ist schick.
+Stiefel geputzt, wir knallen die Hacken.
+Führt uns Kaakei ?, er übt den Trick,
+den dämonischen kalten Führer-Blick.
+Er wird erwartungsvoll, er wirkt enorm,
+an der Reling des DUB im U-Boot-Hafen
+lautstark begrüßt. Kai ist in bester Form,
+Ein Eispalast, der gefrostete Riesenbunker,
+Tausende recken verzückt die Arme zu Kai,
+Keiner zweifelt, er ist wieder da,
+Fake-Addi Kai macht den Hitler, alles klar?
+„Den Adolf könnt ihr haben, wartet mal ab,
+Euch Nazipack hau ich in den Sack.“
+Hingehalten wird ihm ein Mikro mit Ständer
+Hände in den Hüften, Bauch am Geländer
+schreit er:„Frcgzihdgkrzxhgrgcdzesreghail!“
+Frauen fallen reihenweise in Ohnmacht,
+Kammler kommt kaum durch, wittert Verdacht
+drängt sich nach vorne zu Kai mit Macht
+Der ist falsch, das ist nicht der echte Hitler
+Der Verräter muß weg, ist ein Schwindler.
+Teufel Kammler zieht seine Naziwumme?,
+zielt, doch reißen ihn Fanatikerinnen beiseite,
+springen auf Kammler
+schlagen ihm in die Visage, übern Scheitel.
+Gelynscht von Nazi- Furien, bis zum Tod.
+Problem gelöst, Kaakei ? bleibt verschont.
+Christiane ☔, ?Sonja ☀️, Stephanie,
+? Robert, ?Geli und ?Markus, Jua also
+fliegen mit ihren singenden Rakrädern über
+die Köpfe der Veranstaltung und schweben
+lautlos im Leerlaufgang nebeneinander her,
+bis sie in der Luft anhalten direkt unter der
+Decke des Eispalastes im Schwebezustand.
+Kai legt mit seiner Show los. Er hält im hell
+singenden Tonfall im rhythmischen Stak-
+kato eine theatralische langatmige Rede:
+
+„Weil er Hut trrank
+Rann die Dramatank
+Nicht aus, sondern
+Spazierte Tragödie vorbei.
+
+Der Rrächer lief sich schon warm!
+Der Rrächer lief vorbei
+An die Tragödie rran und
+Dann vorbei!
+Der Rrächer lief sich schon warrm.
+
+Die Hauptrolle vorsichtig
+Hineinmanövriert, rran an die
+Dramatank, Pank!
+Kein Hut mährr: Tragödie passiert.“
+Kai macht eine kleine Redekunstpause.:
+
+„Du hast mich stumm gemacht,
+uns verkanntet.
+Stumpf ist der Schlaf,
+in dem ich liege,
+in dem schwarrz geschwebt wird.
+
+Du hast dumm gemacht,
+was verkanntet.
+Sumpf ist der Schlaf,
+schwarrze Wiege, die
+schwährr gewebt ist.
+
+Die Umdunklung ist gegen den Flug
+wütend provozierter?
+Stumpf ist der Schlaf,
+in dem ich liege,
+in dem Schwarrz geschwebt ist.“
+
+Das sitzt. Das konsternierte Nazipack in der
+Eishalle, in der der U-Boot Hafen integriert
+ist, dem Fake-Führer, unserem Kai also,
+gebannt zuhörend, ist verwirrt ?. Dann
+jedoch Applaus, der tobend wird. Es versteht
+die Rede anscheinend nicht, oder vermutet
+die Rede als Rechtfertigung für Kammlers,
+bis dato als neuer Superführer gehandelt
+wurde, kurzfristige Hinrichtung. Kai alias
+Addi, seine Rolle hier, hat in Wirklichkeit
+zwei Gedichte von Beate Jochims
+vorgelesen, die ich mit im DUB in gedruckter
+Form dabei habe. Kai hat sich eine Auswahl
+an Texten zurechtgelegt, um für alle Fälle ge-
+rüstet zu sein. Kammlers Hakenkreuzer Piloten
+übergeben dienstergeben die Befehlsgewalt,
+die bisher Kammler innehatte, an Kai ab,
+symbolisch in Form einer Schatulle in dem
+ein Pad darin ist mit den Codes für die
+Hauptkommandozentrale der Hakenkreuzer,
+samt Oberbefehl über alle Betriebssysteme
+auch den Sicherheitscode der
+Waffensysteme. Jetzt beschallen Jua ☀️
+die riesige Halle mit Polkas im Jua-Style ?
+fliegend auf den Rakrädern und lenken das
+erstaunte Nazipack, samt
+Mutantenbesatzung der Hakenkreuzer, ab.
+Kai macht sich flink ins DUB, als alle nach
+oben schauen, bevor Jua ☀️ zurück ins DUB
+fliegen, und die Luke zuziehen. Ab die Post
+Hastalavista und abgetaucht. Das verwirrte
+Nazi-Publikum glaubt der Theater-Show und
+wartet ab was gleich passiert. Da können
+die Südpol-Nazis lange warten. Oder nicht?
+Das DUB taucht direkt wieder auf. Die Luke
+öffnet sich und Adolf ragt halb heraus. Das
+Nazipack, ca.150 an der Zahl, rast freudig
+enthusiastisch. Jetzt schreit Holo-Addi statt
+Kai:„Nicht diesen alten Grruß, begrrreift das!
+Kein Arrmrecken määrrr, Kamerraden, 2028,
+mein neuer Grruß soll deutscher sein:
+Zackisch, feurriger, strrrrrammer: So geht
+das: Der ausgestrrreckte Arrrm rrraagt nicht,
+er strreckt sich zum Licht, nach oben,
+zum Heil, siiech hail Kamerrad*innen.“
+Das Holo-Addi-Programm läuft wie
+geschmiert. Die Neo-Nazi Fans bleiben treu
+dem, für sie nicht erkenntlichen,
+Digi-Holographie-Addi ergeben.
+Hät Jua ☀️ Glück ?gehabt, oder nicht?
+Kai braucht jetzt nicht den Schauspieler zu
+geben, der Digi-Holo-Führer-Doppelgänger
+hat seine Feuertaufe bestanden. Der
+nächste Schritt ist eine Rede zu verfassen,
+die in unserem Sinne die Richtung vorgibt.
+„Kamerraden, das Tausendjährige Rreich
+errrkläre ich fürr erröffnet. Das vierrrte
+Reich wirrd ein Rrregime, ein weltweit
+agierendes harrtes Klimarregime sein, unter
+meinerr Führung. Deutsche Kamerradinnen,
+Kameraden überr alles, überr alle Völkerr
+derr Errde, Errde, Errde, Errde Errde…
+Die Zuhörer kreischen vor Begeisterung. Der
+WLAN hat Aussetzer, das Umsetzen des
+Digital-Rede-Progamm ist noch
+verbesserungswürdig. Die Wiederholungen
+werden vom Nazipack? als intensive
+Steigerung verstanden, so daß
+der Digi-Hänger richtig einheizend wirkt.
+Schwein? gehabt. Oder nicht?
+Die 180 Hakenkreuzer werden überall auf
+der Welt von den eingeschworen Nazi-
+verbänden auf ihren jeweiligen Standort-
+stationen sehnsüchtig erwartet. Wir werden
+sie nicht enttäuschen. Das tausendjährige
+4. Reich werden sie nur auf der Antarktis
+erleben, tiefgekühlt versteht sich. Das
+Programm läuft. Die Hakenkreuzer Piloten
+sind von Igor, Kai und Boris programmierte
+Mutanten, Roboter ? also, die gerade ihre
+Befehle ausführen, und aufsteigen um alle
+eingeweihten Naziunterführer abzuholen.
+Auf jedem Hakenkreuzer wird je ein
+Holo-Addi an Bord installiert sein, der für
+die nötige Überzeugungsarbeit beim
+Rückflug sorgen wird. Personenkult, sonst
+zu verachten, bringt’s hier bestens. Addi
+wird sie totlabern, mindestens jedoch
+ablenken bevor sie die Finte riechen.
+Wenn wir die gesamte Führungs-Ebene
+eingesackt haben wird die Welt erlöst sein.
+Die Endsiegfeier wird sehr unterkühlt
+ausfallen, es wird frostig werden. Bei der
+Ankunft zurück in der Antarktis stapeln
+sich die 180 Hakenkreuzer zu je 20 aufein-
+ander, zu 5 Stapeln, die 180 Holo-Addis
+werden das frierende Nazi-Pack mit
+wärmenden Monologen betäuben und
+hypnotisieren, daß sie ihr Ableben ange-
+messen ertragen werden können. Oder
+nicht?
+Leider haben wir die Nazis unterschätzt.
+Fortsetzung folgt. INTERMEZZO:
+DR. JUA ☀️SPRECHSTUNDE:
+DER PARADIDDLE
+Der Nutzen von Paradödel-Übungen für
+die nichtnotenfressende Musikerzunft,
+und für alle, alle anderen Zeitgenossen:
+Von der NASA für Astronauten
+entwickeltes, bzw übernommenen
+Trainingsprogramm, das auch für
+Nichtnotenfresser empfehlenswert ist,
+da das räumliche, plastische,
+Vorstellungsvermögen des Gehirns durch
+diese rechts-links Koordinationsübungen
+geschult wird. Außerdem wird das
+Wachstum dieser Gehirnregion angeregt,
+was sich äußerst positiv auswirkt beim gruppendynamischen Wechsel+Zusammen-
+spielen, eine unbewußte Synchronisation,
+eine Art Feintuningautomatik, eine Art
+Feinstjustierung entwickelt sich, ohne daß
+man was konkret tuen, oder darüber
+nachdenken müsste, es passiert, es klappt
+einfach so und alles wird leichter,
+räumlicher, präziser, schöner, gleichmäßiger, unaufgeregter, dynamischer, ruhiger,
+akzentuierter, als es eh schon zu sein
+scheint. Da die Gud-Band Space Rock spielt,
+Jua Reggae spielt, liegt es
+auf der Hand, daß das gut wirkt, wenn wir 3
+bzw.7 ,uns das zu Herzen nehmen, und das
+freiwillig, ohne es zu hinterfragen,
+annehmen und 17 Minuten unserer
+wertvollen Freizeit täglich opfern. Das ist
+ein Tipp der selten von Musiklehrer*innen,
+Ärztinnen an und ausgesprochen wird, da
+es für sie finanziell kontraproduktiv sein
+würde. Es ist auch einfach gesund für
+unsere Organe, wie das Herz, der Kreislauf,
+das Gedächtnis, Gehirn, das linke wie das
+rechte Ohrläppchen, die Nerven und ganz
+besonders die meinigen, Amen, Dr. Jua ☀️
+wünscht gutes Gelingen und viel Spaß beim
+Paradiddle, 6 mögliche Anfänge gibt’s:
+RRLR.LLRL.RRLR.LLRL.RRLR.LLRL.RRLR.LLRL
+LLRL.RRLR.LLRL.RRLR.LLRL.RRLR.LLRL.RRLR
+LRLL.RLRR.LRLL.RLRR.LRLL.RLRR.LRLL.RLRR
+RLRR.LRLL.RLRR.LRLL.RLRR.LRLL.RLRR.LRLL
+RLRL.LRLR.RLRR.LRLR.RLRL.LRLR.RLRL.LRLR
+LRLR.RLRR.LRLR.RLRR.LRLR.RLRR.LRLR.RLRL
+
+Mit den Händen ?, Füßen??, Zähnen
+bzw Unter-Kiefer-hin- und her- Klappern,
+der Zunge ?, Hand mit Fuß wechselseitig,
+nur in Gedanken, oder mit Singen, Sprechen,
+Augenzwinkern, am Lenker, beim Radfahren.
+Beim Gehen, Laufen, Vögeln, Schwimmen,
+Boxen, Naziverkloppen, beim Watschen-
+verteilen und anderen schönen
+rhythmischen Auslassungen ist das
+Paradödeln prima anzuwenden. Oder nicht?
+
+WEITER IM ROMAN:
+Nazischweine im Weltraum? Ein schlimmes,
+aber doch lösbares Problem für Jua’s Anti-
+Nazi-Auftrag, mit dem deren Endsiegfeier
+versaut werden soll.
+
+LAMENTO: 2 VERSCHWÖRUNGS-THEMEN:
+Nicht einfach, da deren bildungsresistente Grundeinstellung ein
+geschlossenes System, beruhend auf deren
+okkult zunennende stoisch beharrende
+Auffassung einer vordringlichen
+Vernichtung aller Juden, um deren
+angeblichen Weltbeherrschungsdrang, von
+der die Nazis überzeugt sind, zu stürzen,
+abzulösen, um so die Menschheit, die Welt
+vor dem sogenannten Weltjudentum zu
+retten. Wegen dieser irrigen Ansicht die
+total verschwörerisch ist, was sie aber nicht
+sehen, glauben sie trotzdem, sie sind ja
+selber ohne es zu merken Verschwörer,
+tief und fest an diese jüdische
+Weltbeherrschungverschwörung glaubend.
+Erst nach Vernichtung aller Juden könne
+das 4. Reich, ihr tausendjähriges Reich,
+Installiert werden, das mit einer Endsiegfeier
+eingeläutet werde. Diesem Schwachsinn
+sind die weltweit agierenden Neo-Nazis
+verfallen. Es bleibt also nichts anderes übrig
+als immer und immer wieder die Nazis in die
+? Pfanne zu hauen, sie auszubremsen wo
+und wann es möglich ist. Da sie immer
+wieder aufstehen, nachwachsen und
+ungeniert ihren Juden-Hass ausleben, bleibt
+der freien Welt nichts anderes, als dagegen
+zu halten mit derselben stoischen Energie,
+über welche das Neo-Nazi-Dreckspack leider
+anscheinend unbegrenzt verfügt. Es gibt
+leider keinen Impfstoff gegen diese
+unheilbare Infizierung. Um Ausbreitung der
+Infizierungswahrscheinlichkeit möglichst
+klein halten, sollte das Bildungsniveau der
+gefährdeten unteren Bildungsschichten,
+die am meisten betroffen sind, erhöht
+werden. Dann können wir, die der Nazi-
+Ideologie-Krankheit nicht anheimfallenden
+Rest-Weltbevölkerung nur beten und
+hoffen daß sich das Unheils-Symptom im
+Laufe der Zeit, auswächst. Es kann sich
+dann nur noch um Generationen handeln,
+bis diese schlimme Seuche ausstirbt.
+Oder nicht? Die iranischen Mullahs, die
+Hisbollah, der IS, werden eher von der
+Bildfläche verschwinden als dieses sture
+hartnäckige verblendete Nazipack. „Mutter
+Natur“ schlägt zurück, das Klimarettungs-
+Programm verschleppt, verschoben, zu spät
+aktiviert, kommt nicht in die Pötte, es wird
+langsam eng und richtig teuer, Mutter Natur
+wird leider ungeheuer. Wegen der
+Pandemie fielen die Prozessionen in der
+Eifel aus, in denen traditionell das Land,
+die Gewässer,die Natur gesegnet werden.
+Die „Naturgeister„konnten so ungebändigt
+loslegen. Ist das die spirituelle Begründung
+für das Unheil dort?„Aberglauben“, oder,
+weil meine Ahnungen und Glaube in diese
+Wirkkräfte glaubwürdig für mich persönlich
+sind, kein Aberglaube? Oder wurde das
+Wetter gar manipuliert, und warum wurde
+es manipuliert. Wer würde profitieren? Die
+Verschwörer haben schon geliefert,
+allerdings geben die keine Antwort auf die
+Fragen „Warum?“ und „Wer profitiert?“.
+Wie üblich behaupten sie, daß eine große
+Verschwörung im Gang ist. Natürlich
+ebenso; total verschworen. Siehe Q-Faktor-
+Germany, Wetteradler. Wollte man Köln
+oder Aachen, oder Düsseldorf schonen auf
+Kosten weniger bewohnter Orte? Nein. Ohne
+angebliche Wetter-Manipulation, man kann
+tatsächlich ein vorzeitiges Abregnen
+auslösen, ein Verzögern allerdings nicht,
+soviel ich weiß, wäre das Abregnen in der
+Eifel und in Belgien noch massiver
+ausgefallen, oder nicht? Eine Wettermani-
+pulation hätte dafür sorgen können, daß
+es zu weniger Wasser-Massen
+Abregnungen in den stark betroffenen
+Gebieten gekommen wären, da die
+gigantisch großen Wassermassen dann
+vorher im Ruhrgebiet, in Düsseldorf und
+Köln herab gestürzt wären. Das rechtzeitig
+vorher gegeneinander abzuwägen, was
+schlimmer kommen werden kann, ist
+möglich. Falls es gemacht wurde, ist es
+wohl zu zögerlich gemacht worden. Nach-
+her weiß man’s immer besser. Vielleicht
+wäre es noch schlimmer gekommen zB,
+wenn man früher und mehr mit zB.
+Silberjodit in die Wolken geimpft hätte, alles
+über Aachen herabgestürzt wäre und
+Aachen komplett abgesoffen
+wäre, mit dann wahrscheinlich wesentlich
+höheren Opferzahlen.
+
+WEITER IM ROMAN: ?„Hat Lusche Aachen
+gerettet????Kaakai „Sicherlich, du
+alter Spinner Schorsch.“„Ok, man darf doch
+wohl…“ „Vergiss es!“„Sind die Hakenkreuzer
+zurück?“?„Nicht alle; leider sind die acht,
+welche die USA-Neonaziverbände abholen
+sollten, verschwunden.“??:„Wer steuert
+die Raumkreuzer?“„Die Hakenkreuzer?“„Was
+sonst!“„Da waren wohl Programmier-Asse
+an Bord, die mich rausgeschmissen haben.“
+„Ja, wie! Und jetzt?“„Die Codes für die
+Waffen Systeme habe ich gut gesichert, die
+anderen leider nicht so gut.“„Mit Geheimzahl
+4711 oder was?“?:„Ach laß mich in Ruhe!“
+„Die werden die restlichen Codes früher oder später knacken, das wird eng, Scheng!“??:
+„Wir haben sie doch noch auf dem Schirm.
+Wir jagen sie, ich starte sofort das DUB ?,
+schalte auf Hakenkreuzer-Suchautomatik
+und das wird schon rechtzeitig klappen.“
+„Loss jon, Jung!“
+
+FÜR DAS EXPOSÉ:
+Ich schreibe für Jugendliche,
+Ich schreibe auf gar keinen Fall für
+Nicht-Jugendliche. Hier schreibe ich einen Schelmenroman, der gedacht sei für
+Jugendliche. Leser meines Alters dürften
+auch gerade deswegen ihren Spaß haben.
+Ich bin ’59 geboren. Jugendliche verstehen
+genau was ich meine, auch wenn sie ja‘
+wohl meistens noch keine Erfahrung mit
+Suff oder Kiffen haben, sehr wohl wissen sie
+was ich meine; daß das schädlich und nicht
+cool ist, das man noch nicht erwachsen ist,
+weil man ja‘ eben noch wächst.
+
+SIGMUND FREUD, 4.TEIL
+Der Minderwertigkeitskomplex, MK:
+Leider doppelt scheiße, wenn man
+betroffen ist, da man diesen unbewußten
+MK auf das Gegenüber projeziert, und nicht
+klar kommen kann mit dem was die, der von
+sich gibt, und das alles was die Gegenüber da
+verzapft, gequirlte Schifferscheiße ist,
+und außerdem scheint die Type auch
+noch anmaßend, fast beleidigend zu sein,
+weil der Depp irgendwas von mir will. Also
+glaubt man ihm fälschlicher Weise nicht.
+Der Gegenüber scheint durch die eigene,
+wegen des unbewussten MK.generierte
+Selbstüberschätzung, minderbemittelt
+zu sein, man ist irritiert, kann und will ihn
+nicht verstehen, und dessen, für den
+MK-Betroffenen selbst unverständliche
+Meinung, nicht akzeptieren, da man ihn
+falsch versteht. Der MK wird oft auf diese
+schräge Weise kompensiert mit diesem
+leicht größenwahnsinnigen Denken, was zu Selbstüberschätzung führen kann, „meine
+kleinen „Little Hitler“.“Jede, und jeder steht
+schon Mal unter dem Einfluß eines MK. Je‘
+nach Stimmungslage.„Oder nicht? Du Asch“.
+Ablehnung ist garantiert. Oft wechseln sich
+Phasen der Selbstüberschätzung mit
+Phasen der Depression ab; es dämmert
+einem, daß etwas mit einem nicht zu
+stimmen scheint, man glaubt nichts auf
+die Reihe zu kriegen und sei zu schlecht
+für irgendwas und gibt zu schnell auf. Oft
+fälschlicher Weise als Borderline-Syndrom
+diagnostiziert. Jetzt hat man’s auch noch
+schriftlich, wie peinlich ist das denn. Das
+kann so weit führen, daß man frustriert ist
+und sogar Freundschaften kündigt, oder in
+Hassgefühlen wühlend saufen muß, um
+nicht rechtsradikal abzudriften. Das wäre
+besser als nur noch Mitgefühl bei kranken
+gemeinsamen „Hass-Kumpel“ zu finden,
+wenn schon alle anderen Idioten
+zu sein scheinen. Komplizierte Sache, oder
+nicht? Kommt man Betroffenen mit heilsam
+gedachter Lektüre wie mit denen von
+Sigmund Freud, SF, dafür beschriebenen
+Ratschlägen freundschaftlich entgegen,
+rasten sie logischer Weise aus, weil man
+ihnen jetzt auch noch erklären möchte, daß
+sie nen‘ Ratsch im Kappes hätten.
+Unbewusst wehrt sich der oder die
+Betroffene mit einer verächlichen
+Einstellung gegenüber SF und Ratschlägen
+diesbezüglicher Art mit Händen und Füßen
+da eine Entlarvung droht. Bei mir selber, vor
+23 Jahren, wehrte sich mein Unbewusstes
+so hartnäckig, daß ich beim Lesen von S F
+Lektüre Kopfschmerzen, Sehstörungen,
+Begriffsstutzigkeitserscheinungen, Übelkeit
+bekam, weil mein Unbewusstes mich davon
+abzuhalten versuchte unerträgliche
+Wahrheiten über meine psychischen
+Störungen, Schuldkomplexe
+und MK, zu erfahren. Das war ein harter
+Kampf mit mir selber, den ich schließlich
+gewann, wodurch es mir schlagartig besser
+ging, da mein kleingehaltenes Ich enorm
+wuchs. Ganz schön verschraubt, oder nicht?
+Das Problem der lgnoranz gegenüber
+eigenen psychischen Störungen kann nur
+noch die Liebste, der Liebste benennen.
+Normalerweise kommt die Erkenntnis
+darüber nicht von allein, sondern erst
+im Knast, in der Trinkerheilanstalt. Doch
+auf jeden Fall in beschämender Weise, im
+Laufe der Zeit, mit dem Altern. Oder nicht?
+Übrigens ; kein Mensch ist psychisch
+gesund. Es sollte ein gewisses
+Gleichgewicht gehalten werden, all der
+psychischen Störungen, die jeder, weil
+unbewußt, mehr oder weniger mit sich
+herumschleppt. Es gibt, soviel ich weiß,
+keinen psychisch „Vollgesunden“, Oder?
+„Oder was?“
+Preisfrage: Welchen Komplex hat
+die*der Neo-Nazi von nebenan? Welchen,
+die*der, der von der Naziideologie
+gefährdete AFD-Wähler?
+
+WEITER IM ROMAN:
+Es fehlen sogar 9 Hakenkreuzer, nicht 8,
+9 sind in Disneyland zur Flug-Show in USA
+erschienen. Die Republikaner jubeln. Kai
+?hat sich wieder ins Bord-Programm
+eingehäckt, und kann die Raumkreuzer
+fernsteuern. Die enttarnen Holo-Addis, weil
+Kaakei sie, wie dumm ist das denn, englisch
+sprechen ließ. Aber jetzt macht das als
+Showelement Sinn, und die asi-Ami-
+Nazischweine-Bord-Gäste klatschen,
+und finden die Nazi-Disney-Show prima.
+Gut für uns, denn so bemerken sie nichts.
+„I’ll make Amerika white again!“Tönt Addi,
+Holo-Hitler 9fach, wie Kaakei ?? ? ihn
+marionettenhaft sprechen lassen kann.
+„ Klappt doch.“„?: Kai, du machst mir
+Angst, Biden fällt um, wenn er von der
+Hakenkreuzer-Show hört.“„??: Sieht doch
+umwerfend aus, wenn ich sie synchron im Formationsstaffelflug kreisen lasse.“„?:Ok.,
+lass uns hier mit dem DUB ? auftauchen,
+und die miese Show zu einem guten Ende
+bringen, indem du die Hakenkreuzer
+abschießt, eliminierst, pulverisierst. Das
+kannst du doch am besten, oder nicht?“
+?: „Meinst du. Ich laß es so aussehen.
+Ich bring die Kreuzer zurück zur Antarktis-
+Station zur „Nazifrostung“. Das DUB
+landet im Disneyland, Jua ☀️ spielt auf den
+Rakrädern fliegend, „Stupid Heads“ und wird
+gefeiert, allerdings nicht wegen der Musik.
+Alle wollen Rakräder haben, sie benutzen.
+Sie wollen sie uns aus den Händen reißen.
+Zum Glück kriegen sie uns nicht zu fassen.
+Das DUB ? interessiert, wie die
+verschwundenen Hakenkreuzer niemand
+mehr. Alle wollen die fliegenden, singenden
+Mopeds. Das DUB steht Kopf und sieht aus
+wie ein Leuchtturm im Disneyland. Wir
+fliegen in den Seiteneingang des DUB ?
+schließen, und das DUB verschwindet
+langsam, sich immer tiefer einbohrend, ins
+sandige Erdreich der Disneyland-Kirmes.
+Amerika bleibt verschont; vorerst wird kein
+4. Reich installiert.
+
+LAMENTO : PP
+Amerika ist und bleibt in
+Gefahr richtig schlimm infiziert zu werden.
+Teilweise ist es schon infiziert,
+vom schlimmsten Virus, dem radikalsten,
+resistentesten, krankhaftesten,
+bösartigsten, rassistischen Unheils-Virus.
+Das ist der „Neo-Nazi-Virus“, gegen den es
+leider keinen realen Impfstoff gibt. Nur ein
+gutes Vorbeugemittel: Liebe. Diese
+braucht als Grundlage für ein fruchtbares
+Gedeihen eine gewachsene Kunst-Kultur,
+genügend Platz und Raum, öffentliche
+Konsum-freie Räume also und Natur-Räume.
+„Art, Space and Natur“,und vor alldem Liebe!
+All you need is Love. Res mira.
+
+WEITER IM ROMAN:
+Das DUB ? buddelt sich durch bis Ensen
+und taucht im Albertibaggerseegrund auf.
+Nikolai läßt seinen Dackel baden, und kratzt
+seine Mückenstichbauchhaut, und dreht
+sein Smartphone vom Ohr ? in Richtung
+auftauchendes DUB, knipst und fällt ohn-
+mächtig ins Kraut. Als er wach wird läuft er
+schnurstrags ins Ensen Klösterchen, da er
+um seinen hellen Verstand bangt. Da erst
+fällt ihm sein Foto ? ein. Der Stationsarzt
+tauscht. Dr. Nicolai, schickt ihn und alle
+Patienten, auch die der Geschlossenen nach
+Hause. Er ist ein Guter. Der?Dackel
+mahnt zur Eile. Zurück zum Alberti. Das
+DUB steht bis auf den obersten Rand des
+Relingeländers unter Wasser. Gummi und
+Balu laufen scheinbar über den See
+Schlimmer, die Rakräder fliegen ohne
+Fahrgeräusche zu erzeugen, wild auf und
+nieder jagend, über dem Baggersee Wasser.
+Noch schlimmer für Nicos Nerven; sie tönen
+Reggae-Musik aus. Das reicht ihm. Er
+handelt schnell und scharf und verhaftet
+den Dackel. Er ist ein Böser; der Schuft
+hat sich eine Ente ? geschnappt und ihr
+schwer übel mitgespielt. Er mag auch
+keine Off-Beat-Rhythmik-Musik, da sie ihn
+gewalttätig werden lässt. Nico steht auf
+Hardrock, Space-Rock-Punk. Mit echten
+oder scheinbaren Halluzinationen hat er,
+so wie ich, weniger Probleme. Ich schwebe
+direkt über ihm, und schalte um auf GUD-
+Band Musik, die wird ihm gefallen.„Hi Nico,
+altes Kanonenrohr, wie isset?“„Scheiße!…..
+Du?“Nicolai lässt sein herzhaftes typisches
+Lachen krachen. Das hab ich schon lange
+vermisst. Er ist ein Lieber.
+
+Stand: 5.8.‚21,15:04,
+Cologne, Germany.
+Fortsetzung folgt, es wird ständig korrigiert,
+bearbeitet, und täglich veröffentlicht.
+Viel Spaß beim Schmökern. Wem was zu
+Jua oder zu sonstwas einfällt, was ich hier
+aufnehmen könnte, dem wäre ich dankbar.
+Bitte ☎️.0221, 8303701 im Festnetz
+Hab kein AB, kein Display. Max. 4x klingeln
+lassen.
+
+Der Soundtrack zum Schelmenroman:
+Die Gud-Band im Space-?Rock-Sound auf
+IMEi, Köln, im Super-STEREO-Breitklang.
+
+®©Georg Dickas✓Schorsch Tantekel©✓
+®Blunot Rec.BR4711,CD.LP.MC.EU.J.USA
+Made in Germany✓Cosmische Kalkurier©
+
+Autor Schorsch Tantekel
+Kapitel 127
+
+Datum 8. August 2021, 18:13
+
+127.Teil, Schelmenroman von Georg Dickas:
+Die Jua-Band-Bio, Der Steinzeit-Trip.
+Fortsetzungsfolgen, die ständig bearbeitet
+und korrigiert werden.
+
+VOR DER ROMANFORTSETZUNG:
+Jesus-Agrapha Nr. 99:l
+Ehrt die Dämonen, nicht damit sie euch
+nützen, sondern damit sie euch nicht schaden.
+Resch Agraphon Nr.191,Euthymus, Panoplia
+Dogmatica 27.1.
+
+Der Teufel soll Jesus erschienen sein und ihn
+aufgefordert haben:„Sag: Es gibt keinen
+anderen Herrn außer Gott.“Jesus erwidert:
+„Der Satz ist wahr, aber dennoch wiederhole
+ich ihn jetzt nicht, weil du ihn formuliert hast.
+Denn auch diesen Satz kann man
+unterschiedlich auslegen.“
+
+Michael Asin et Palacios Nr.16.
+
+Agraphon Nr.190
+Johannes sagte zu Jesus:„Du sollst nicht
+zürnen.“Jesus erwiderte:„Ich kann den Zorn
+nicht unterdrücken, denn ich bin nur ein
+Mensch.“Johannes sagte:„Verzichte auf
+Reichtümer.“Jesus antwortete:„Das kann ich.“
+
+Michael Asin et Palacios Nr. 30.
+
+Im Evangelium soll geschrieben stehen:„Wer
+Gottes Vergebung erbittet für die, die ihm
+unrecht getan haben, der vertreibt einen
+Dämon.
+Michael Asin et Palacios Nr.33.
+
+Es gibt eine tödliche Verwirrung,die zum Tod
+führt, und es gibt eine heilsame Verwirrung,
+die zum Leben führt.
+Resch Agraphon Nr. 103=Hieronimus,
+Kommentar zu Ezechiel 17 und Brief an
+Pammachius.
+
+Jesus-Agrapha Nr.92
+Auf dieser Welt sollt ihr nichts erwerben.
+Resch Agraphon Nr.171=Ephraem der Syrer
+Opp || 232 Doctrina Addaei etc.
+
+Agraphon Nr.269,
+Berger & Nord, Seite 1162
+Das neue Testament und frühchristliche
+Schriften, Insel Verlag 1999:
+(Paulus) zu den „Heiden“: „Gebt acht,
+daß euer Besitz nicht ungerecht ist, daß
+ihr nicht sündig baut, daß ihr nicht wie für
+ewig baut, daß ihr nicht wie für ewig
+besitzt, daß ihr die Welt nicht
+verschwenderisch verbraucht, denn die
+sichtbare Gestalt der Welt vergeht sehr
+schnell.“
+Lib Grad X 5 Kmosko 260;vgl. 1Kor 7,31.
+
+Thomas-Evangelium, Logion 68, Seite 661
+Jesus sagt:„Selig seid ihr, wenn sie euch
+hassen und verfolgen. Doch eure Verfolger
+können keinen Ruheort finden an dem Ort,
+an denen sie euch verfolgt haben [ in dieser
+Welt].“
+T.-Ev.,Logion 70, Seite 661, B&N, N.T.siehe.o.
+Jesus sagt:„Wenn ihr [lebendiges Feuer ?]
+in euch erzeugt, so wird es euch retten./
+Wenn ihr es nicht in euch habt, wird das,
+was ihr nicht in euch habt, als
+[fremdes Feuer, von außen her] euch töten
+[im Gericht].“
+Statt „Feuer“ kann man auch „Reinheit“
+sagen. Die Reinheit, mit der der Mensch
+im Gericht konfrontiert wird, lässt ihm,
+wenn er unrein ist, keine Chance.
+
+WEITER IM ROMAN:
+Das DUB ? steigt aus dem Alberti ganz
+langsam fast geräuschlos einen Meter hoch.
+144 Meter lang und rohrförmig, mit über
+dreißig Meter Durchmesser mit
+ausgefahrener Minireling samt
+Einstiegsluke im kleinen ausgefahrenen
+Turm. Kai haut auf die Hupe. Nico setzt
+sich in den Sand und sein Dackel
+befiehlt ihm, bittet ihn inständigst mitzu-
+kommen. Er willigt leider nicht sofort ein.
+Dann jedoch ganz schnell, denn der Dackel
+wird böse. Nico ist der Gitarrist der Space-
+Punk Gruppe „Rest in Müll“,er spielt genial
+originell, mit sicheren unschlagbar gutem
+Gefühl für Geschwindigkeit. Egal wie wild
+ich den Rhythmus wechsel, er kommt
+nie raus aus dem Flow. Er bleibt drin. Er hat
+erst mit über 50 angefangen überhaupt ein
+Instrument zu lernen. Im Krankenhaus
+überlegte er sich, nachdem er knapp
+überlebte, was er in seinem Leben
+versäumt hatte, um es jetzt doch noch
+nachzuholen. Mein Tipp an ihn, sich
+von niemanden reinquatschen zu lassen,
+von wegen falsch oder richtig, was Technik,
+Griffe oder sonstwas angeht, Hauptsache
+ihm selber gefällt, was dabei zu hören ist,
+war Gold wert. Hauptsache ist, ihm gefällt
+was er hört. Ein Gitarrensteg-Stimmgerät
+ist alles was er braucht. Leider musste er
+aus gesundheitlichen Gründen das
+Gitarrenspielen aufgeben, und spielt jetzt
+die Mundharmonika. Mich hat die Rest-in
+Müll-Duo-Punk-Mucke fast zerrissen, zu
+speedy für mich. Es hätte mich umgebracht.
+Nico ist an der ? E-Klampfe ein Killer. Für
+uns beide leider tödlich, wenn wir weiter
+gemacht hätten. Tatsache.
+Plötzlich steht Vater Rhein 70
+Meter hoch grün und blaubärtig mit
+rostigbraungebrannten nackten Beinen
+bis über die Knie im Albertibaggersee und
+brüllt: „Raus aus meiner Wanne!“ Er packt
+sich das DUB-Riesenrohr und rammt es
+senkrecht in den Kiesgrund im Alberti.
+Wir fackeln nicht lange, packen den nicht
+leichten Nicolai mit Dackel auf den
+Rakradgepäckträgersitz und durch die DUB-
+Seiteneinstiegsluke. Luken dicht und volle
+Pulle„weg hier“,abwärts. Der russische Chor
+bleibt den schönen August lang am Alberti.
+Urlaubs Rückzug zu hus in Kölle am Ring.
+Porz-Finkenberg, als Kleinrussland bekannt
+direkt um die Ecke, mit dessen Mädels, mit
+Musik, Sonne, Wodka, Bier, Tee, Lagerfeuer,
+Albertibaggerseegeangeltem und
+frischgeplückten Brombeeren lebt und feiert
+es sich hier prima. Aber Ordnungsamt
+kontrolliert auch hier, in typisch deutscher
+Manier. Der Kiesgruben, Baggersee ?
+Betreiber Alberti kann es leider nicht
+verhindern. Warum nur dieser deutsche
+Kontrollwahn sogar in Kölle herrscht, ist
+Jua und allen hier ein Rätsel, wir sind
+natürlich vorbereitet und vorsichtig und
+lassen uns nicht vertreiben. Wahrscheinlich
+braucht die Stadt Geld; wie immer im
+Klüngel-Köln.
+
+NOCH EIN LAMENTO:
+In der Klimapolitik gilt: Mehr Wachstum,
+mehr Schaden. Eine solidarische
+klimagenehme, international bereitwillig
+einvernehmliche, kontrollierbare
+Wirtschaftswachstumsverzichtserklärung
+entwickeln, festschreiben, durchsetzen,
+durchziehen, etablieren und einfordern, die
+zum Ziel hat alles konsumorientierte
+Verhalten der Gesellschaft und jedes
+einzelnen Konsumenten
+kontinuierlich herunterzuschrauben.
+Das auch von Nachbarländern, von allen
+Ländern auf der Welt einfordern, oder
+nicht? Der Planet ist krank. Planet Erde hat
+Fieber. Eine schlimme Entzündung. Wehe,
+er hustet, dann haut es uns Menschen weg.
+Für immer? Wer weiß, kann schon sein.
+Wer hat ihn womit infiziert? Jetzt wissen wir
+es. Wir wissen auch wie er gesund werden
+kann. Er braucht Ruhe, damit sich seine
+Wälder, die gesamte Natur erholen kann.
+Der Mensch, die Menschheit, wir alle helfen
+dem Planeten, indem wir innehalten mit
+unserem umweltfeindlichen Verhaltens-
+weisen. Konkret: Massives Einschränken
+bei allen Tätigkeiten, bei denen CO2
+Emissionen entstehen. Vordergründig
+gemeint ist: Verzicht auf privates
+Autobenutzen, auf das Reisen, das Kaufen
+von Neuwaren aller Art. Verzicht auf
+Betonbau, da bei der Zementherstellung
+Unmengen von CO2 freigesetzt werden,
+ca. gleichviel wie die gesamte Autoflotte,
+Schiffsflotte und Flugzeugflotte an CO2
+freisetzt. Verzicht auf Klimaanlagen. Zu
+hart? Nein, das muß jetzt sein, oder nicht?
+Laßt die Natur in Ruh, der Mensch ist nicht
+allein. Oder sollen wir aufgeben, weil alles
+zu spät ist. ???:„Die Erde soll brennen,
+ich will dabei zusehen! Oder was?
+Nach mir die Sintflut, zum Teufel mit der
+Menschheit? Wer mir das Auto wegnimmt
+den erschieße ich, und danach mich selbst,
+Oder was?“ Der Privat-Auto-Führer, der
+kleine Hitler von nebenan, ist das der, der
+die Welt brennen sehen will?„ ??? :
+Lass mich!“„?:Du? Versprich mir, daß du
+nie mehr ein Auto erwirbst, dann darfst du
+hier weiterlesen. Wenn nicht, komme ich
+Dich holen, und dann gibt es von mir für
+Dich die harte schlimme schmerzhafte
+Bestrafung, die ich eigenhändig austeilen
+werde. Ich mach Dich platt. Zumindest
+Deine gummiabriebstaubverursachenden
+Autoreifen.Vorsicht Freundchen. Ich sing:
+Dir mein Lied: In 100 Jahren, gewesen
+waren, gewesen waren wir, in 100 Jahren
+hier, bald wird es immer wärmer, wir
+werden alle ärmer, und kommt ein
+Monstersturm, bist Du ein zerfetzter Wurm.
+Runter in den Bunker, spiel mit Deinem
+Klunker! Oben fliegen Leichen, aber nicht
+die von Reichen. Die Reichen gehen alle
+unter, ganz langsam, verfaulen in ihren
+Bunkern. Zurecht! Oder nicht? Gib Deinen
+Führerschein ab, verbrenne ihn öffentlich,
+mach ein Ritual, schreie es aus; Dein neues
+selbstverfasstes Umweltrettungs-Manifest.
+Sorge für Nachahmer*innen.“???,?:„
+Warum das?“?: „Das Auto ist der Dreh,
+und Angelpunkt der Klima-Wende-Politik-
+Glaubwürdigkeit jeder einzelnen verant-
+wortlichen Konsumentenperson weltweit!
+Daß das klar ist. Ich irre mich hier nicht!
+Dann beginn mit Gleichgesinnten den
+Kampf, das Rennen bei dem es um Alles
+oder Nichts gehen wird. Die Totenglocke
+unseres Planeten, unserer Menschheit
+also, läutet schon, Hörst Du sie, wie ich?
+?Wacht auf!“?.?, ⬛-Bart:„Covid19,
+Covid 20, Covid 21, Ein drreifach geimpftes:
+„Siech Heil!“ Volksrradfahrer*innen,
+Fußgängerr*innen, Harrende Höhrrer an
+den Rradio-Volksempfängerrn und
+Rreichs-TV-Grroßbild-Mattscheiben,
+Interrnetkontrrolierrer*innen. Kämpfen
+Kämpfen, Kämpfen! Sonst gehen wirr
+leiderrr…, wiederr?…..Unterrr. Eurer
+Holo Führrerr grrüßt: Grrün wäählen! Sonst
+krriegt ihrr Luschi, den Brraunverkohlerr,
+derr brringt’s doch nicht, der brremst
+alles aus, was Maßnahmen betrifft, die sich
+gegen die Aufheizung des Klimas wenden,
+zu Gunsten seiner Wirtschafts-Wachstums
+Ideologie. Die Zeitenwende ist angekommen
+und Luschi steht auf der falschen Seite. Ist
+er korrupt, oder blind? Das falsche System
+der heutigen Wirtschaftskultur darf nicht
+weiter unterstützt werden. Der private
+Automobilnutzer muß ausgebremst
+werden, das wäre das Signal, das die
+Umweltfeinde spüren würden, und
+sollen sie doch zuschauen wie die Welt
+brennt. Es sind genau diese, die die Welt
+brennen sehen wollen. Es sind
+egomanische Ignoranten. Oder sind es
+europäische „Wilde“ in ihren „Blechwichser-
+Karren“, die kindlich ihr Spielzeug über
+alles stellen, und die wild werden und um-
+sichschlagen werden, wenn man ihnen
+den Spaß versaut, und ihnen das Spielzeug
+wegnimmt? Die Europäer haben doch die
+größte Schuld an den Entwicklungen der
+letzten 100 Jahren in Bezug auf das
+Entstehen und Zulassen ihres umwelt-
+feindlichen Verhaltens auf dem Globus.
+
+WEITER IM ROMAN:
+Die mögliche räumliche Veränderung eines
+bestimmten Ortes an einen anderen Ort bei
+der Frequenzsprung-Technikanwendung, in
+der Zeit in Entfernung verwandelt wird,
+gelang. Der Klimarettung wegen zwingt’s
+der Menschheit zur eigenen Rettung etwas
+zu tun. Und zwar schleunigst was zu tun.
+Die Technik der „tonalen Direktion“ für
+unbegrenzte Massenverschiebung
+unabhängig deren Größe! Das befähigt
+unbegrenzte Entfernungen zu
+bewältigen, gleich wie groß die Masse auch
+sei. In nur 16 Takten, c.a. 2 Minuten gelingt
+es diese gewaltigen Gravitsationswellen zu
+beschleunigen, und katapultierend, quer
+durch eine zeitlose Dimension, in beliebig
+anderen weit entfernten Galaxien zu landen.
+Die Noten, die Stimmgabel, die jede und
+jeder dabei haben muss sind die nötige
+Grundlage dafür. Von wegen, High-Tech
+und Superwaffentechnikwissen, unsere
+menschlichen Kehlen, Stimmbänder allein
+machen das. Die Noten, das Merken derer
+ist im Prinzip das Wichtigste. Frequenzen,
+in Töne verwandelt, gesammelte Melodien,
+atonal für unser Musikempfinden klingend,
+fand man in Einsteins Nachlass. Stravinski
+bemerkte beim Spielen, er erbte Einsteins
+Notenbuch, daß es sich hier nicht nur um
+Kompositionen handeln konnte, da er beim
+Spielen auf seinem Klavier ? Zustände
+von Zeitverschiebungen bemerkte, die ihn
+veranlasste den anhänglichen Text im
+Notenbuch nachzulesen. So gelangte er
+1964 beim Spielen im richtigen Tempo
+bei Frank Zappa im Wohnzimmer, samt
+seinem Flügel. Dort blieb das Notenbuch,
+da Stravinski einen Nervenzusammenbruch
+erlebte, das nicht am arabischen Tee lag,
+den Frank zur Inspiration und Belebung so
+liebte, den er mit ihm reichlich verköstigte,
+welcher Igor jenes Notenbuch vergessen
+ließ.Tante Titti, die Haushälterin, Putzfrau
+Franks fiel es damals in die Hände, die es
+sich aus Franks Nachlass aussuchen durfte.
+So kam es zu ihrem Neffen Kai. Dem
+Physiker wird Dank seiner R’n‚R Gitarren-
+Kenntnissen, und seiner Phantasie klar,
+daß es sich hier nicht nur um Musik,
+sondern um höhere Mathematik
+handelt, die das Problem einer
+Geschwindigkeitsbegrenzung überwindet,
+nämlich die der Lichtgeschwindigkeit, die
+bekanntlich bisher nicht überschritten
+werden konnte. Jetzt ist das einfach
+möglich, es reicht aus durch Klänge, die an
+ausgerechneten Orten zeitgleich gesungen
+werden, klar, im exakten Tempo, um den
+Planet Erde dahin zu bringen, wo er besser
+sein sollte. Eins, zwei , drei und vier und
+????????passiert. Das Klima
+könnte sich runterkühlen in der neuen
+Umlaufbahn, die Erde hätte kein Fieber
+mehr. Die Wälder wüchsen, die Natur hätte
+jetzt Ruh. Problem gelöst? Leider nein. Die
+Jäger sind uns Jua ☀️ auf den Fersen, da
+sie uns das Notenbuch abknöpfen wollen
+um an die Macht zu kommen. Nazis? Wir
+parken mit dem DUB ? in Atlantis, erholen
+uns im wohlverdienten Urlaub. Der
+Schattenpräses der USA+, John, El
+Presidento del mundo inkognito, Lennon hat
+uns dorthin verfrachtet mittels seiner, logo,
+Zeitreisenzuweisungsinstanz. Das ist
+unsere vorläufige Rettung. Auf ihn ist
+Verlass. Er sitzt hier bei uns, hat das
+Notenbuch eingesteckt, und raucht ein
+Friedensabschiedspfeifchen mit Sonja.
+Bei ihm wird es in sicherer Obhut sein.
+Oder nicht? Es ließe sich mit Hilfe von fast
+hunderttausend Physikstudent*innen aus
+der ganzen Welt, die rund um den Globus
+verteilt, an genau berechneten Punkten zu
+berechneter präziser Uhrzeit, ein spezielles
+Musik-Mantra anstimmen, um wie gehabt
+folgenden gewünschten Effekt zu erzielen:
+Der gesamte Planet befänd sich dann zB.:
+An einem anderen Ort in einer anderen
+Galaxie, um sich um eine andere Sonne
+mit seinem Mond zu kreisen. Das ist jetzt
+möglich, John hat es in der Hand. Kai hat
+sich eine handgeschriebene Kopie mit
+verschlüsselter Tonart Angabe gemacht.
+Die hat er immer dabei. Er hat die Melodien
+zu Songs verarbeitet, die er auswendig lernt.
+Jua lernt die Songs ebenfalls. Als Off-Beat
+Ska-Nummern in jazzy Blue-Beat Sound
+gespielt, werden die Harmonien gemerkt.
+Das DUB können wir jetzt intergalaktisch
+verschicken, das spart Zeit und hilft Jua
+außerirdische Kulturen, und deren feine
+Musikulturen kennenzulernen.
+Ein großer Schritt für uns Jua. Die
+Vergrößerung unseres Lieder-Repertoires,
+unser Bekanntheitsgrad könnte steigen.
+Das könnte ein riesiger Schritt für Jua sein
+werden, und ein noch größerer Schritt, ein
+riesigerer für den Planeten Erde, den John
+auf die richtige Bahn bringen wird, oder
+nicht? John ist zurück nach Ceres in die
+Zukunft, in die große Pyramide, dem
+sicheren Exil-Regierungssitz der USA
+& Rest-Welt. Das DUB bleibt in Atlantis, das
+der Laban zur Erhaltung aller Pflanzenarten
+und Tierarten beschützt. Die Affen arbeiten
+hier auf bewachsenen Stufen-Pyramiden
+als Gärtner. Alles wächst hier sehr langsam.
+Die Affen werden locker 20.000 Jahre alt,
+Pflanzen entsprechend auch. Siehe Kapitel
+38-45. Oma Utah freut sich sehr und
+bewirtet uns mit ? Kaffee und Kuchen.
+? Erdbeeren, in 30 Jahren gereift, frisch
+für Atlantis-Zeit-Verhältnisse bekommen
+uns sehr gut. Für unsere, und besonders
+für Kais Leber sind sie ein Gesundbrunnen,
+da sie 1000-fach stärker wirken, da sie1000-
+fach länger reifen. Auch das Pfeifchen wirkt
+1000-fach stärker, und 1000-fach länger, da
+auch der Hanf 1000-fach länger reift. Wir
+wachen nach 4 Wochen Gesund-Schlaf auf
+und sind geheilt. Von allen Zipperleins, von
+allen Unbehaglichkeiten, falls wir welche
+hatten. Wir bekommen von Omah Utah zum
+Abschied einen Erdbeerkuchen mit auf die
+Reise und ein halbes Pfund feinster
+Atlantis-Pott, von ihr selber gepresst und
+getestet und für gut befunden. Der reicht
+für sehr lange Zeit, vielleicht für Lichtjahre.
+Nicolai will hier bleiben. Sein Dackel will es.
+Wir werden ihn wiedersehen, und dann,
+falls sein Dackel es ihm erlaubt,
+mitnehmen. Er wird Zeit haben zum
+Gitarrenspiel, da er hier gesund werden
+wird und Inspiration ohne Ende hat.
+„Rest in Müll“ in Atlantis? Seine neuen
+Kollegen, die Gärtneraffen, werden ihn mit
+Schlagzeugspiel und Gesang, das können
+die richtig gut, sie wissen wie ich, wo er
+mit seinem Gitarrenstakatospiel ?hin will,
+begleiten und führen. Ich freue mich auf
+„Rest in Müll“-Space-Punk-Affen-Rock’n‚Roll.
+Da sein Dackel keine Off-Beat-Mucke mag
+ist er hier in der Erdeinnerblase Atlantis bei
+guten Freunden besser aufgehoben als im
+DUB, wo wir Jua’s Reggae spielen. Hendrix
+wird sich bei ihm ab und zu sehen lassen,
+dessen Oma, eine echte Indianerin, lebte,
+bevor sie oben auf der Erde lebte, hier im
+Dorf Atlantis mindestens 3000 Jahre lang.
+Sie ist Zeitreisende von Anfang an und war
+eine Medizinfrau. Angelernt vom Laban in
+uralten Zeiten. Was ist schon Zeit? Zeit ist
+die Entfernungungseinheit zum Quadrat im
+gleichen Verhältnis wie die der
+Gravitationskraft zur Entfernungseinheit
+deren zugehöriger Masse, deren Materie
+gemessen in Einsteins „E=MC zum Quadrat“
+in Energie verwandelt wird. Egal wie weit,
+Also schneller als Licht, wenn es richtig weit
+weg ist. Solange die dunkle Materie ein
+plötzliches Zusammenstürzen der
+Multiversen noch verhindert, gilt das;
+schneller als das Licht, zischhhtausendfach
+schneller sogar! Einstein hatte damals
+schon bemerkt, daß die Gravitationskraft
+eigentlich 10-fach stärker sein müsste, daß
+es also eine Anti-G-Kraft geben müsse, die
+aber damals nicht beweisbar war, nur er
+vermutete und berechnete im Geheimen
+die Zusammenhänge, die er vor Missbrauch
+von judenfeindlichen Soziopathen, Nazis
+also, schützen musste und versteckte die
+Anwendungsmethodik im besagten Noten
+Büchlein. Exponentiell sich steigernde
+Geschwindigkeit erzeugt durch berechnete
+Musikschallwellen, die im Noten-Büchlein
+exakt notiert, von Einstein persönlich,
+der glücklicher Weise musikalisch
+gebildet und notenfest war. So
+überwindet man angetrieben durch
+Anti-G-Kraft die Lichtgeschwindigkeit sehr
+zügig. Ich könnte mich beim Beschreiben
+der math. Zusammenhänge falsch liegen
+oder irren, aber Diplom-Physiker Kai hat die
+Gleichungen im Kopf. Markus überlässt
+Nico eine Hopf-Wander-Klampfe ?, bevor
+wir uns verabschieden vom schönen
+gastfreundlichen Atlantis. Bis bald..
+Sofort probieren wir aus, ob wir das DUB
+mit der neuen Methode transportieren,
+verschicken können.
+An den berechneten Gesangsstandorten
+positionieren wir uns, Jeder hat Kopfhörer
+auf, daß alle exakt mit seiner vorher
+erlernten Melodie, gleichzeitig zur Stelle
+ist, und singt die reinen Töne der Melodie
+im genau richtigen Tempo, da jetzt die
+Kopfhörer bei allen als Metronom fungieren.
+Nach 44 Sekunden stellen Kai, Boris und
+Igor, die in der Piloten-Kanzel stehen, fest,
+daß sie im kalten weiten All schweben,
+Sie müssen sich mit der plötzlichen
+Schwerelosigkeit abfinden. Kai startet das
+Triebwerk und gibt Vollgas. Bo ist sicher,
+daß wir zu weit gegangen sind.4,8Milliarden
+Jahre zurück, ca 1,2Millionen Lichtjahre
+weit entfernt von der Erde, die es ja‘
+noch garnicht gibt! Hoffentlich hat er sich
+verrechnet. Einen zweiten Versuch wird
+sofort zu machen sein. Wir üben nüchtern
+die neuen 4×4 Takte ein, Kopfhörer auf, 2, 3,
+vier, und 36 Sekunden später stehen wir
+auf. Die Gravitation ist unangenehm stärker
+als üblich und alle setzen sich und keuchen.
+„Dad schwatte Loch do drusse zieht ewer
+jewaltich.“Kai dreht einen brutalen Looping
+und gibt Gummi. Das normale Gewicht ist
+da und wir sind glücklich deswegen. Igor
+glaubt wir seien 15Milliarden Jahre
+verschoben, die falsche Tonart? Oder was?
+Draußen ist es grell hell. Heller tausend im
+Schnee gleißenden sieben Mittags-Sonnen.
+Sonnenbrillen auf und raus an frische Luft.
+Ozonhaltiger feuchter salziger Sauerstoff.
+„Hier wird nicht geraucht Leute!“Christiane
+ruft helle wie selten, sie ist hier in ihrem
+Element.„Vor dem angeblichen Urknall
+gelandet auf einem 10km im Durchmesser
+kleinen Meteor herumlatschend, und das
+mit gleichstarker gewohnter Schwerkraft,
+wie ist das möglich?“ Sie nimmt etwas
+Gesteins in die Hand, wirft es hoch und es
+jagt nach oben ins Wasser das über uns
+hängt, schwebt, fließt. Wir sehen nach oben
+und blicken auf weißes quecksilbriges Meer.
+„Hüpf mal“„Nö, besser nicht, Lennert.“„Alle
+an Bord kommen, sofort jetzt!“„Kaakai treibt,
+lässt keinen Zweifel zu. Er startet das DUB
+drillbohrend nach unten in den Grund
+und treibt zum Kern. Das Schwarz quatscht
+Loch im Boden zu und schwebt durch den
+Bordwald zu uns nach vorn. „Tachzosamm,
+noch jet zolöte, oder flötetön möd
+jetöteköter opwache lasse? Es zieht uns an
+sich, wir halten uns irgenwie, irgendwo fest.
+Die Schwarzloch-Schwad-Kugel schrumpft
+zum Klicker. Die schwarze Erbse zieht und
+zieht. Wir halten mit letzter Kraft dagegen.
+Eine Implosion zieht uns die Klamotten vom
+Leib. Der Spuk ist vorbei.„Das ist Kalk, wir
+sind im Parallel-Welt-Kalk, Gernsheimerstr.,
+Ostheim. Ich spüre das.“„Was? Hier im
+Meteorkernhohlraum?“„Ja Kaakei, ja in Kalk.
+Kalk ist uralt.“ Meinst du.“„Nicht Kalk?“„Ein
+anderes Kalk. In Alkalki?“„Hinterurknallland
+Alknalk wo der Alk knallt?“„Du spinnst doch
+Schorsch.“Christiane ist hellwach. Ein
+Unbekannter sitzt im Schneidersitz auf
+dem Hocker. „Nik, bist du es?“ Ein Typ,
+Marke Scheuer, oder Semmelrogge spuckt
+Nägel, die langsam kriechend leise singen.
+„Fein Hämmerchen, mein Hämmerle, wähl
+grün, darum. Schwarzloch, aka:„Futtloch“
+Schwad-Luschi geht herum, der bringt uns‘
+Klima um, der ist zu dumm; zum.“„Laßt uns
+lieber einen neuen Kosmos erfinden. Ein
+neues Kalk bauen mit neuen Hütten für
+neue Ideen, die wir bauen, leben, denken.“
+Wir alle positionieren uns rund um den
+Meteor an berechneten Stellen, wie gehabt
+singen wir, an einen halben Tag eingeübt,
+neue Melodien, verschieben Meteor etwas
+außerhalb der Erde-Umlaufbahn. Wir sind
+Mond Nr. Zwei. Hoffentlich kracht’s nicht
+irgendwann. Sehen wir dann. Wir starten
+das DUB, bohren uns zur Oberfläche, starten,
+durchstoßen das Quecksilbergewölbemeer
+und landen in Texas des Jahres 1865. Don
+Everly’s Urgroßopa spielt auf der Klampfe
+sehr versiert, wobei ihn die Dalton Brüder
+gesanglich mit ihren spöttischen Reimen
+begleiten. Schlangensuppe kochen sie mit
+viel Kaktusfrucht und Chilischoten und
+überbrücken die Garzeit mit rhythmischen
+Klappern und Dosenschießen. „Heute gibt’s
+endlich mal keine Büchsenbohnen sondern
+Klapperschlangenbratsuppe.“Sie lachen,
+und feixen als sie uns sehen.„Deutsche?“
+Fragen sie uns. „Ist das euer Riesensilo?
+Her mit den Waffen ihr Spackos!“ Nik fliegt
+lautlos mit seinem Rakrad, und schwebt 5m
+über dem großen Suppenkochtopf, der im
+Feuer steht und brodelt. „Wat rüsch dat jod.“
+Die besoffenen Kreaturen reißen die Hände
+hoch.„Wir ergeben uns, Jesus, Maria,
+verschon uns, Geisterreiter.“Sie werden
+grünblass in den Gesichtern und schlottern
+vor Angst. Don ?spielt weiter, und erfindet
+die passenden Akkorde, zu dem späteren
+Welthit: Ghostriders in the Sky“ den ich
+sofort erkenne.„? Schreib den
+Song auf, Fremder, das wird ganz
+bestimmt der Hit der Western-Swing-Mucke
+in 100 Jahren.“Nik zündet sich ne Kippe und
+landet am Feuer. Er sieht wie ein Rock-Star,
+ein Racheengel aus, mit dem üppigen stroh-
+gelben Haar, das auf seinem Kalkhaupt weht.
+In Jeans, halboffen auf nackter Brust eine
+silber-farbige Theater-Bühnenweste
+und seinem wilden Augenaufblitzen. Die
+Daltons verehren ihn und bieten ihm
+die Anführerolle in ihrer Gang an. Nik fühlt
+sich geehrt und fackelt nicht lange; er
+bleibt in Texas. „Nik Dalton“ bekommt einen
+Gaul. Kai:„Das Rakrad bleibt im DUB.“ Das
+stört Jo Dalton so sehr, daß er Nik um
+Erlaubnis bittet, Kai ? erschießen zu
+dürfen. Nik fühlt sich geehrt. Er lässt sich
+dessen Knarre geben: „Das ist Chefsache,
+Jo.“Nik ist schlau und lässt die übrigen
+Daltons von Jo fesseln. Die Suppe ist ein
+Genuß. Wir lassen die entwaffneten fünf
+Daltons mitessen. Das noch zur Hälfte
+im Boden steckende DUB ?brüllt auf, da
+Kaakei uns mit dem Aufheulen der Motoren
+des Bohrantriebes auffordern will
+einzusteigen um ins Planet-Erde-Innere
+einzudringen. Er macht einen Looping
+im Texas-Untergrund und das DUB steht
+startbereit in voller Größe in Houston,
+damals noch ein Kaff. Richard Wagner
+gibt in dem Städtchen im Süden, es ist
+überwiegend von Deutschen bewohnt,
+ein Konzert. Eine Zwischenstation auf
+seiner Tour nach New-Orleans, wo auf ihn
+ein Engagement für 20 Konzerte wartet.
+Er ist begeistert von der wuchtigen DUB
+Maschine, und will unbedingt lernen ein
+Rakrad zu reiten. Er ist ein stimmgewaltiger
+Sänger und ein Brüllaffe ersten Ranges. Er
+läßt einfach kein Nein gelten und zwingt
+uns nachzugeben. Er macht mit dem Rad
+hektische riskante Manöver und singt dabei
+lauthals sein Vergnügen heraus. Er ist wilder
+als Nik und Kai muß ihn ferngesteuert
+abbremsen, bevor er sich den Hals bricht,
+oder schlimmer, das Rakrad ruiniert.„ Leiht
+mir das Feuerpferd, ich schreibe euch dafür
+eine Melodie. Ich werde sie „Walkürenritt“
+nennen.“ Er nennt Christiane ☔Walküre, und
+presst sie an seine Brust.„Du bist bald die
+Meine, sei Du meine Göttin der Liebe.“ Leih
+mir 10 Dollar, ich hol den Pfarrer, der uns
+trauen muß. Noch heute.„Er schreit fast.
+„Du bist ein Narzist, und Rassist, du bist ein
+Wahnsinniger..“„JA, JAAH.“„Er schlägt sie
+auf den Rücken.„Weiche Dämon! Raus mit
+dir.“Das reicht ihr, sie fallen, sich küssend,
+in einen zähen Liebesrausch. Nein es sieht
+nur so aus. Der Tollwütige kassiert Fußtritte
+von ihr und winselt um Vergebung.„ Ich bin
+doch pleite und hab keinen Cent um nach
+New-Orleans zu reisen. Rettet mich.“ ☔
+Danke für die Melodie, die durch Dich
+inspiriert, mir einfiel, göttliche Maid. Gebt
+mir 7 Dollar….5 Dollar. Please, lemmy 5.“
+Cosima pfeift ihn zurück in den Wagen.
+Der Esel will nicht ziehen, er hat Durst und
+will Heu, das die beiden Freaks nicht haben.
+Wir haben genug von Ritschies Wahnsinn.
+Und ganz besonders Christiane hat die
+Nase ? voll. Sie heult: „Hau bloß ab, Du!“
+„You can’t Always get what you want.“
+Hören wir ihn laut krähend singen, während
+der Esel sich doch noch erbarmt. Uns
+zuliebe? Die Stones haben doch die
+Melodie zum R’n„R-Hit gemacht, die
+Ritschie hier tönt. Wer schickt eigentlich
+die Melodien, woher kommen sie? Wer ist
+die Senderin, der Sender? In der Luft? Von
+oben, aus dem Jenseits? Haucht sie die
+allmächtige Göttlichkeit in unsere Herzen?
+In diesem Sinn:
+Unser Herz, mach’s voll,
+Hail, Hail, Rock n‘ Roll.
+Die Daltons und Ritschie Wagner ziehen
+gemeinsam ab in Richtung New-Orleans.
+Cosima sitzt oben und hält die Zügel.
+Der Esel trabt trotzdem los. Wagner singt
+seine neue Idee immer wieder bis er das
+Walküre-Thema komplett hat. Er kann sich
+kaum noch einkriegen, so gut und
+zufrieden ist er mit seinem neuen Hit. Die
+Daltons schnarchen unisono im
+Schnappsrausch einen gleichmäßigen
+Rhythmus, den Ritschie als Taktgeber und
+Metronom benutzt. Der Esel fügt sich mit
+seinem Getrappel darin ein. Cosima klopft
+ab und zu mit der Gerte auf das Leinendach
+der vergammelten Kutsche, und trinkt an
+der gemopsten Flasche der Daltons, bis
+auch sie einschläft. Das bemerkt der
+schlaue Esel und fährt in ein Gebüsch, um
+zu futtern. Wagner zieht die Schnapps-
+Leichen vom Wagen und legt sie in das
+schattige Gebüsch. Cosima nicht. Hinten
+rein mit ihr und Wagners Wagen zieht los.
+Der Esel ist Ihm hörig. Der erste
+Wagnerianer? Es ist eine Eselstute namens
+Isolde.„Hü meine Holde.“Wagner ist
+glücklich in seinem Komponier-Wahn
+gefangen und singt seiner Isolde neue
+unerhörte Reime vor. Die Waffen der
+Daltons kann er nicht gebrauchen und
+schmeißt sie unterwegs raus. Die Daltons
+werden diese schon finden. Es wird dunkel
+und er kriecht in den Wagen und beglückt,
+das kann er am besten, Cosima, die das
+sehr liebt. Indianer beobachten uns beim
+Spielen. Wir improvisieren, probieren,
+inspiriert von Wagners Walkürenritt-Thema,
+er ist ja gestern abgezogen, eine jazzy
+swingende tenäre-Off-Beat-Rhythmik-
+Version und hören ihre gleichmäßigen
+langatmigen Trommeln, die wir, wie schwere
+afrikanische Schläge auf die 2 und die 4,
+ähnlich dem Roots-Reggae-Beat umspielen.
+Balu ?singt mit Jua, er posaunt, er
+schmettert. Gummi ? tanzt und brummt
+anhaltend Bass-Linien im Reggae Groove
+mit einTakt lang Brummen und drei Takten
+Pause. Fips pfeift und quietscht. Ropterex
+zischt und zischelt metallisch. Camel-Baby
+steppt gekonnt. Richard Wagner hat sich zu
+uns zurückgeflüchtet, da er und Cosima
+Indianer fürchten, da sie alleine ohne die
+betrunkenen Daltons, die er bedauerlicher
+Weise ausgesetzt hat, ist. Er ist sofort
+von Balus Fanfaren begeistert, und hält die
+Noten in seinem übergroßen Notenbuch
+fest. Er ist in seinem Element, er singt eine
+zweite Melodie für Horn dazu. Er zeigt auf
+Gummi ? und dirigiert ihn. Der freut sich,
+tanzt und dreht sich. Sonja’s Akkordeon
+und Markus Off-Beat-Gitarre heizen dazu
+die aufwärtsstrebende Melodieführung
+zusätzlich an. Roberts dicke Oma zieht
+statische Baß-Linien, und Christianes ☔?
+Flügelhorn strahlt.„Ja tatatatataaa ta“;
+Ritschie schreit wie wild und zeigt wo er
+musikalisch hin will:„Vorwärts“, das
+Thema vor. Eine Space-Rock-artige
+Komposition, die an
+die Prog-Rock Formation Kraftwerk
+erinnert. Cosima zündet sich ihre Pfeife
+an, steigt aus dem Wagen und bürstet und
+streichelt Isolde Sie stellt ihr einen Eimer
+Wasser vor und Heu dazu. Der Indianer
+Trommel-Groove hat etwas entfesselt. Die
+herrliche himmelsstrebende
+Wahnsinnsmusik läßt uns, wie die Indianer
+auf einen langen Trip abheben. Ritschie
+sächselt:„Ich mach ein Fass auf; Freibier für
+alle!“ Die Indianer zeigen sich nicht,
+trommeln aber bis zum Morgengrauen
+stoisch durch. Dann fallen alle in den Schlaf,
+bis die Sonnenwärme uns aufwachen läßt.
+Indianer, Kinder, deren Mütter stehen um
+Balu, den sie ehrfürchtig bestaunen und
+zuhören was er ihnen zu berichten hat.
+Balu, wie Gummi ?können deren
+Sprache sprechen. Gummi spricht auch mit
+den Pferden, die zustimmend wiehern und
+lachen. Ritschie schreibt alles, auch die
+Melodien des Pferde-Gewiehers, in sein
+Riesen-Notenbuch. Er strahlt und ist stolz
+auf seine Ideen, die er vor sich her kräht,
+während er Noten pinselt. Braucht er eine
+Lesebrille? Die Wagners reisen ab, er hat
+alles was er braucht für seine nächste Oper.
+Sogar ein Indianer Schutzgeleittrupp, den er
+zum Trommeln und Singen auffordert . Das
+machen sie gerne, und Ritschie freut es. Er
+schreibt und notiert ohne Unterlass. Früh-
+stück braucht er nicht. Er braucht nichts
+außer seinem Werk. Er lebt anscheinend
+davon. Er zieht los ohne kleine Wäsche,
+ohne Frühstück. Cosima ist ebenso
+genügsam; die Pfeife reicht ihr. Sie duftet
+nach Grass, nicht nach Tabak. Die Indianer
+und alle Kinder wollen Balu ? sehen
+berühren und streicheln. Das DUB ?,
+aber auch Jua☀️ kümmert sie nicht im
+Geringsten. Die Indianer ziehen singend ab
+in die Berge. Kai hat Hunger. Wir auch. Im
+Bord-Wald im DUB pflücken wir Äpfel,
+Datteln, Bohnen, Pilze und Tomaten.
+Mittags starten wir ins All zur IRS, der
+Raumstation, um Donald wie versprochen
+abzuholen. Nach vier Wochen ist die Ami
+und Russen-Crew mit den Nerven am Ende.
+Befreien wir sie, bevor sie sich von Donald
+befreien. Wohin mit ihm? Er anerkennt die
+Wahl von Biden nicht an und will mit Mister
+Präsident oder mit „Leader of the USA“
+angesprochen werden. Wir bringen ihn zum
+Führer Nordkoreas, zu seinem Spezi Kim.
+Donald will ihn mit dem Golf-Virus
+anstecken und adoptieren. Kim will Donald
+abschieben, wenn der im Golfspiel gewinnt.
+Wenn Donald ihn nicht gewinnen lassen
+will, ihn also noch mehr nervt, Donald
+nervt immer und jeden, wird Kim böse;
+steckt ihn dann in seine Intercontinental-
+Langstreckenrakete und schickt Donald
+nach Florida in die atomare Versenkung.
+Falls Kim gewinnt, wird er Donald als
+Trophäe ausstopfen lassen.„Meinst du.“
+Brummt Kai zu Schorsch.„Ich spinn doch
+nur lustig rum“.
+
+EIN AKTUELLER ROMAN-FERNER BEITRAG:
+18.8.‚21; in Afghanistan vollzieht sich eine
+fast friedliche Revolution. Die Taliban sind
+an die Macht gekommen. Der Taliban ist
+mächtig, er siegt prächtig. Geflüchtet sind
+die geldgierigen Korrupten. Religiöse sind
+die Taliban, doch Homophobe. Und die
+Scharia verfügt die Frauen zum Verzicht auf
+sexualbegierdeherausforderndes Verhalten
+und zur Unterwürfigkeit gegenüber dem
+Patriarchat. Die Kopftuchpflicht gilt; es darf
+keine Haut zu sehen sein, nur das Gesicht
+bleibt unbedeckt. Die Frauen degradieren
+sich, nach S.Freuds Lehre, zum
+Sexualobjekt ihres Gatten, wenn die sich
+für ihn in der Öffentlichkeit verhüllen. Das
+heizt bekanntlich die Sexualität der
+Ehemänner an. Es bleibt zu hoffen, daß die
+Ehefrauen dann nicht zu kurz kommen, und
+daß ihre Männer sich Mühe geben bei deren
+sexueller Befriedigung. Diese unbewußte
+Degradierung zum Sexualobjekt kann als
+leicht pervers bezeichnet werden. Der
+orientalische Mann wäre ja blöd, wenn
+er auf diese verzichten würde, dann wäre
+seine Libido, na logo, schwächer, lustloser
+also. Das will auch seine, eventuell leicht
+pervers werdende Ehefrau nicht. Aufklärung
+wird automatisch kommen, da zum Glück
+Alles irgendwann ans Licht kommt. Es
+dauert halt. Das weiß auch die Taliban.
+Frauen dürfen, wenn sie vorsichtig sind in
+dem Sinne, neuerdings als Lehrerinnen,
+Dozentinnen oder auch als Beamtinnen
+arbeiten. Auch die im Polizeidienst,
+Pflegedienst und die in der
+Krankenpfege Beschäftigte dürfen
+weiterhin berufstätig bleiben, und das soll
+zukünftig erwünscht sein, wenn es die
+Taliban, die die Regierung stellen werden,
+wollen. So lassen zur Zeit die Sprecher der
+Taliban wissen. Sie sind im Vergleich zum
+IS keine Terroristen. Der IS ist als unreligiös
+zu bezeichnen, und hat andere Absichten :
+Befriedigung von Mordlust, Sexueller Aus-
+beutung, und die Wiedereinführung von
+Sklaverei. Die Religionsfrevler des IS sind
+geldgierige “Terrorwichser“, ähnlich der SS
+des 3. Reiches. Die Taliban sind dagegen
+religiös. Streng islamistisch, sunitisch, und
+besonders die dort als homosexuell
+orientierte Menschen, die als solche dort
+bekannt sind, sollten um ihr Leben bangen
+und besser das Land verlassen. Scharia ist
+Gesetz! Kunstschaffende, Musiker, Maler
+können, solange sie nicht gegen das
+Bilderverbot verstoßen, weitermachen.
+Das hört sich nicht so furchtbar übel an,
+wenn auch nach unserem westlichen
+Verständnis von Freiheit, besonders die der
+bei uns gelebten sexuellen Freizügigkeit,
+denen der Taliban entgegengesetzt ist.
+Eine alte gewachsene Kultur, deren Regeln
+von unserem westlichen Kulturverständnis
+abweichen, so altertümlich die sein mögen,
+akzeptiert werden sollten. Es gilt Weiteres
+abzuwarten. Die Taliban regieren jetzt die
+Bergperser und sollten weltweit gehört
+werden und Gespräche mit ihnen geführt
+werden. Diplomatische Beziehungen, finde
+ich, sollten langfristig angestrebt werden.
+International gibt es da jetzt einstimmig
+fast nur Ablehnung. Ein Kalifat, wenn es die
+Mehrheit in der Bevölkerung dafür dort gibt,
+müsste wohl akzeptiert werden. Gibt’s die?
+Oder nicht?
+
+WEITER IM ROMAN:
+Donald ist an Bord im DUB ? und nervt. Er
+will im Bordwald Golf spielen. Er hat Covid
+überlebt, glaubt aber nicht an Viren, weil es
+seiner Meinung nach Viren gar nicht gibt.
+Auch, wenn er zuletzt, um den 23.8.‚21, bei
+einem TV-Auftritt, aus taktischen Gründen,
+seine Anhänger auffordern musste sich
+impfen zu lassen.„Nehmt das Zeug, das
+ist wichtig, es ist in Ordnung, macht es
+einfach. Tut ihnen den Gefallen, ich muß
+das sagen, um in Zukunft für euch im
+Rennen sein darf, Leute.“Do in diesem
+Tonfall ungefähr. Seine Anhänger buhten
+ihn deshalb laut aus, weil es ihnen, logo,
+verräterich vorkommen musste. Er ließ, und
+läßt sich ja‘ auch nicht impfen, soviel ich
+weiß. Gummi erbarmt sich und golft mit.
+„Hi Grizzly, I’ll make you great again.“„?:
+„Laß stecken Trampel. Sei froh daß du hier
+bist an Bord. Bennu schlägt im Oktober ein.“
+„Who the fuck is Bennu? A new Golfer?“
+„Das ist ein 500m Asteroid, der laut NASE
+zu 50% trifft“„I’m better. This motherfu**ing
+NASE-Golfer Bennu is a looser.“„?: Let’s go, stupidhead!“„Grizzly, I hope, you fu** much
+better than Bennu, but stop talking, Browny
+you mad talking Head, take this!“ Donald
+feuert den Golfball auf nimmer Wiedersehn
+ab. Fips ?bringt den Golfball Ropterex. Der
+fliegt zu Donald und lässt ihn, als er über ihn
+hinwegsegelt auf Donalds Kopf fallen.„ I’m
+imprisoned in the Juressik-Park-Hell. Please
+help me, please help me, Grizzly! bähähä“
+„Donald, daran ist die Antifa schuld.“„It’s the
+Antifa! Sure! Grizzly, ever it’s the Antifa, ever.
+Die haben immer Schuld, ich wusste es
+immer schon.“?: „Du sprichst ja Deutsch.“
+„I love it, Gummibär.“ Donald rapt:„My only
+friend, my Smith and Wesson. Where ist my
+gun, Life ain’t no fun. Can you feel, cold
+steel? Cold steel in your mouth! Ich habe
+bei ReimMetall drei Jahre lang gelernt. “Wir
+von Rheinmetall liefern überall, deutsche
+Waffen von Rheinmetall‘. Der Werbeslogan
+ist von mir.“?„:Ich glaub es nicht.“„Why
+not?“ ?: „Du lügst zu oft.“„I’ll make me
+great again, hard again, dick as a brick, my
+Grizzly friend.“„Laß stecken, dein Reimen,
+dein Rappen.“Du Schwindler, du Wendler,
+Fakenews-Verkünder.“That’s all Fakenews,
+Grizzly. Ich bin kein Lügner, ich bin your Mr.
+US-President, Ich bin der, der Realität
+verändert und neuerschafft, my talking
+Grizzly.“„Das schützt dich vor dem
+Ausbruch eines schizophrenen Schubs,
+das ist nach Freud’s Lehre so, daß wenn
+einer die Realität verändert, seine Psychose
+nicht ausbricht, auch wenn die Person
+knapp davor ist in eine Psychose zu fallen.
+Wenn er das nicht schafft, verändert er sich
+selber, das heißt, die Psychose schaltet
+sich ein, wie man das im Fall Adolf Hitler
+vermutet.“„I could shoot you down with my
+Smith and Wesson!….I only make fun, my
+Grizzly-Friend. ?: „Ich beiß dir gleich den
+Kopf ab, dann hab ich meinen Spaß.“„Da
+beißt du auf Holz, Gummi.“„Donald, You are
+a stupid Blockhead.“„Shut up your mouth,
+and golf on, my fritzy Grizzly Gummi friend!
+Du bist dran, let’s go!“…
+
+ROMAN-UNTERBRECHUNG:
+Wir Menschen sind zu 50% genetisch mit
+der der ? Banane verwandt. Manche sogar
+bis zu fast 100%. Alles auf
+der Erde ist letztlich miteinander
+verwandt. Ein Organismus ist das Erden-
+leben. Alles fügt sich miteinander, zukünftig
+noch erheblich mehr, da Algorithmen
+mehr greifen werden. Vorherbestimmbares
+kann statistisch gesehen immer mehr sich
+erfüllen, fügen. Unser scheinbar eigenes
+Handeln ist nur wenig selbstbestimmt, da
+es sich um Elektro-chemische Prozesse
+handelt, die unser Handeln bestimmen,
+führen, initiieren, automatisch auf die
+Bahn bringen. Zu Ca 80%, so nimmt man
+zurzeit an, ist definitiv nicht selbstbestim-
+mtes eigenmächtiges Handeln. Natur rettet
+selber. Das nennt man göttliche sich selbst
+erfüllende Leitung. Gut geleitet es sich
+besser! Ein Meteor Einschlag ist erwartbar.
+Er zwingt den Organismus Natur zur
+intelligenten Weiterentwicklung des
+Lebendigen. Das aber sagt uns: Wir werden
+rechtzeitig, so wie ich, kleiner Scherz,
+Maschinen werden müssen.Tja! Alles
+verändert sich, und Alles kommt ans Licht.
+Oh‘, mein Akku, ich bin gleich lee…e..e————-
+
+WEITER IM ROMAN:
+Donald, siegt nur noch beim Golfen. Gummi
+läßt ihn den Spaß, denn Donald ist ein
+schlechter Verlierer. Wohin mit ihm? “Hüsnü
+Zündschnür Süper Ürdügün‘, Donalds neuer
+Rap-Text-Song bringt uns auf die Idee, ihn
+zu seinem Kollegen zu schicken. Ein mieser
+und ein fieser, jetzt fehlt nur noch dieser:
+Bolzo Abholzo. Als ’Trio infernalo‘ könnten
+sie musikalisch in Nordkorea beim ’King
+Kim Songkontest‘, auftrumpfen, und den
+’Heatseeker of the world‘ Ehrenpreis
+gewinnen. Donalds FreundBolzo Abholzo übt
+dessen Texte ein. Hüsni will seine in Ich-
+Form-Bearbeitung selber singen. Er kommt
+mit seiner Stimme am höchsten. Bolzo gibt
+nach, will aber als Schönster der dreien so
+richtig Stimmung und Feuer ? machen,
+durch feurige Breaks, in denen er sich wild
+tanzend auf die Knie fallen lassen will um
+seine Arribas, im heißen Merenge-Speed-
+Samba-Mittelteil hinauszuschreien, bevor
+Donald im letzten Takt dieses orgiastischen
+Latinzwischenteils seines Rap’s, den Hüsni
+selber auf Deutsch rapt, mit seiner Lieblings-
+wumme, eine Scneellfeuerflinnte von Rhein-
+Metall, sorry, Smith &Wesson, rhythmisch
+gefällige Schusssalven ballern darf.
+Hoffentlich kann Donald wenigstens das.
+Kim lädt im Anschluss der Show zur Besich-
+tigung seiner Privat Schießanlage ein, wo
+jeder einzelne von ihm ein wenig gefoltert
+werden darf. Wer am meisten aushält, also
+gewinnt, darf eine Zugabe singen. Kim’s
+spontane irre Idee stößt nur bei Donald auf
+Gegenliebe. Live in Kims Dictators-TV-Chan-
+nel wird der Gesang übertragen. Donald will
+Y.M.C.A’s Monsterhit bringen. Er weiß, daß
+er Kim erfreuen kann, denn der liebt den
+Song ebenfalls. Kim will mit allen dreien im
+Anschluss insgeheim mit seiner neuesten,
+atomarbestückten Langstreckenrakete,
+namens Götterdämmerung, Kim ist Wagner-
+ianer, auf den eigenen bombastischen
+Selbstmordattentattrip gehen. Sein Besuch
+in Bayreuth wurde leider zurückgewiesen.
+Rache? Nicht nur. Er will seiner gesichert
+diagnostizierten, schnell fortschreitenden
+Alsheimer-Demenz zuvorkommen und echt
+furios Schluß machen. Und zwar mit
+Punktlandung in….?:„Bayreuth?“?:„Oder
+auf dem Mond, “?:„Meinst du.“ siniert
+Kaakei. „Kaakei??:„ Schorsch, verzell nix
+du Träumer, trink nicht so viel.“?:„Aber du.“
+Ich lege mich in meine Koje. Bin möd. Am
+nächsten Morgen wollen wir zum 24.8.‚21
+in Kölle sein und den Chor abholen.
+Kai stellt uns an die berechneten
+Standorte im DUB. Mittels seines IT-Pro-
+gramms hat Kai 7 verschiedene Melodien
+errechnet, notiert und hörbar gemacht.Wir
+üben die 7 verschiedenen kurzen schrägen
+Melodien ein, jeder singt zur berechneten
+Zeit mit Kopfhörern bewaffnet die jetzt zu
+hörende Melodie noch ein paar Mal mit,
+jeder hat eine andere berechnete Melodie
+im Kopfhörer und wir brauchen keine Noten,
+um das DUB ? zum Alberti zu schicken.
+Zur exakt berechneten Zeit singen wir alle
+gleichzeitig etwa 30 Sekunden. Die tonale
+Direktion funktioniert. Das DUB steht im
+See. Wir wollen den Chor abholen.
+Donald will das DUB ? konfiszieren, da
+er als President der USA, seine Abwahl
+ignoriert er hartnäckig, meint das Recht
+dazu zu haben. Er steht in der Pilotenkanzel
+und fordert Kai ?? auf ihm die Kanzel zu
+überlassen. Mit seiner Smith and Wesson
+hat er bereits Igor und Boris als russisches
+DUB-Okkupationsduo festgenommen
+und in ein Spind weggesperrt. Donald
+hat schlecht geschlafen und ist richtig
+scheiße drauf. Er schießt sofort um sich.
+Kai macht einen Hechtsprung zu Donald
+Der rammt ihm den Colt auf den Schädel,
+was zum Knockout des Kommandanten
+Kai führt. Er setzt sich in die Kanzel und
+will nach Florida zurück zum Golfspielen
+mit seinem Kumpel, mit dem er sich jeden
+Montag trifft. Er probiert die Steuerung aus
+und drückt auf den roten Schleudersitzaus-
+löseknopf. Donald landet im Alberti, in der
+Kiesgrube im Baggersee, ? Ein
+erschrockener großer Hecht beißt ihm
+versehentlich in die rechte
+Hand und verschluckt die Smith & Wesson.
+Die braucht er aber und reißt dem armen
+Fisch die Knarre aus dem Leib. „Hands Up!
+white ? Hai.“ Der Hecht springt ihm ins
+Gesicht und schnappt grausam sein Toupet
+vom Kopf. Das angenähte Teil reißt ab. Er
+schreit vor Schmerz, und bedroht mit der
+Taschenflinte den Fisch zur Herausgabe.
+„Flossen hoch Hai! Rück mein Goldflies
+raus, oder es knallt.“ Der Hecht taucht ab.
+Don schwimmt ans Ufer, wo der russische
+Ex-Zwangsarbeiterchor lagert. Donald:
+„Hands up, Sovjets! War ist over.“ Die
+lachen ihn aus, sie haben alles
+beobachtet. Er drückt hemmungslos ab.
+Das Magazin ist leer, nachdem er es
+gegen den Hecht sinnlos, ohne ihn zu
+treffen, leergeballert hat. „Ich bin der
+Leader of the USA und der Führer
+vom Floridas Golfplatz Nr1, und ich bin
+Freund von Waldi Putt it in. He is my hero,
+the best real Dictator, I love his dogs. I’ll
+make me great again, your motherfu…ng
+barbarian kommies.“ I need your Help.
+Er steht mit Bomberjacke am Strand ohne
+Hosen, die er beim Katapult des Scheuder-
+Sitzes verlor. Der Chor ist kurz davor zu
+sterben, da ihre Lachkrämpfe nicht zu
+stoppen sind. Er bekommt eine weiß, blau,
+rote Bermuda-Short-Hose
+eine weiße Kappe, ein blaues trockenes
+langärmeliges Shirt, und rote Turnschuhe.
+Nastrovief! Sein orangefarbiges Gesicht
+verfärbt sich rötlich, nachdem er mit allen
+mit Gorbatschow-Wodka anstoßen muß.
+Er krakeelt Unverständliches und zündet
+sich eine angebotene Cuba an. Versetzt
+mit meinem Libby-öl fliegt, hebt er ab
+und redet nonstop über Golf, Antifa, und
+seinem Wahlsieg. Er kotzt in hohem
+Bogen drei Fische aus, und fällt
+stocksteif der Länge nach in die Kotze.
+Die Cuba ist weg. Hat er sie verschluckt?
+Das kann sehr ungesund sein. Illegale,
+am Alberti hausende, campierende,
+untergetauchte Flüchtlinge aller
+Nationalitäten, hauptsächlich per
+Haftbefehl gesuchte Osteuropäer,
+drehen ihn auf den Rücken und klopfen
+kräftig auf seine Brust. Die Cuba flutscht
+wie erwartet aus dessen Schlund. Sie
+brennt noch. Kai ist am Strand dabei, greift
+sich die Cuba, Zack, Donald schnappt sie
+sich zurück:„Vorsicht Freundchen! Finger
+weg von meinem Lutscher, Lutscher!“ Der
+Chor liebt den irren Präsident ab jetzt. Sie
+singen, rauchen saufen und feiern mit
+ihrem neuen Freund Donald.
+Kai schnappt sich die Cuba von dem Irren :
+„Du kris etz ma janix, und steckt sie Donald
+In die Ohren, nachdem er sie halbiert und
+gelöscht hat. Der Chor freut sich auf die
+neue Reise und steigt vergnügt ins DUB.
+Darf Donnie mitkommen! „Dä bliev he.“
+Der Kommandant steckt Donnie zwei
+Zwannies,, Heh, Alter jank nade Fluchhave,
+da küste wigger,.. ever jank!“ Klare Ansage
+an den Ex-Pres, the original Trump el‘ tier.
+Finkenberger Deutschrussen verabschieden
+den Chor und kümmern sich um Donald. Er
+wird gut abgefüllt, mit Cola plus
+Wodka, Kartoffel ? Chips, gegrilltem Fisch
+und grenzenloser Anteilnahme für seine
+Monologe, nach dem Motto “Schuld hat
+immer die Antifa, immer‘. Seine Mauerbau-
+Projekte für eine Zukunft ohne
+Einwanderungszuwachs rund um den
+Alberti stößt allerdings leider auf
+keine größere Gegenliebe. Finkenberg will
+er für die USA annektieren und die
+Merheimer Heide auch. Ihr könnt es euch
+denken, warum. Im Tausch gegen die Krim,
+und zum Golfen. Seine konsternierten
+Fans bringen ihren Held nach Ensen-
+Klösterchen, die Heilanstalt für geistig Ge-
+strandete, direkt um die Eck vor Finkenberg
+günstig gelegen. Vorher lassen sie ihn bei
+der Ensener Selbsthilfegruppe, auf dem
+Weg zum Klösterchen gelegen, zu Helmut,
+zur gesundheitlichen Beratung vorführen.
+Ein Q-Man, und Trumpanhänger der ersten
+Stunde, der zukunftsorientierte alternative
+Medizin drauf hat, und hilfsbereit wie
+immer gerne bereit ist, seinem etwas
+desolat wirkenden Idol, Idol ist vielleicht
+etwas übertrieben, für eine gewisse Zeit
+Unterkunft und Zuwendung zukommen zu
+lassen, bevor man ihn fälschlicherweise,
+der verhassten konventionellen
+Krankenbehandlung der deutschen
+Ärzteschaft, im eigentlich ganz
+ordentlich geführten Ensen-Klösterchen,
+überlassen will. Aber nur wenn er es nicht
+schaffen sollte, ihn wieder auf die richtige
+Spur zu bringen. Auf Helmut ist da Verlass.
+Er freut sich riesig auf Donalds Aufenthalt
+in seiner Großkommune. Ob das klappt?
+Kommt er mit Gerda, Regina und den
+Roma-Leuten, den Bulgaren, den Hühnern
+mit ihrem lärmigen herrischen Hahn ?
+klar? Erich und Donald haben sich vorerst
+eine Wohnung geteilt. Sie können
+miteinander. Ein Glücksfall für Donald. Er
+nimmt erstaunlicher Weise Erichs Art an;
+sie erscheinen und verschwinden, mal mit
+der Straßenbahn in die Südstadt oder ins
+Klösterchen zum Cola-Trinken. Er genießt
+seine neue Anonymität, sein Goldfließ fehlt
+ja‘, fährt mit der S-Bahn nach Großkönigs-
+dorf zum Golfen. Erich scheint so etwas wie
+der verlorene ältere, gütliche, coole Bruder
+für ihn zu sein, den er doch immer
+gebraucht hätte. Erich spiegelt sich in
+Donald und läßt diesen ruhiger werden. Die
+Verwandlung bewirkt, daß Don symphatisch
+rüberkommt. Als beide Erichs alten Freund,
+Klaus mit ?Fiedel, treffen, riecht Klaus
+den Braten, erkennt Trump, hält ihn aber für
+einen schauspielerisch begabten Scherz-
+Keks ?. Genau das ist Don ja‘ auch. Um-
+gekehrt hält Don Klaus für den Inbegriff
+eines Antifa-Feindes.„He Motherfu***r, give
+me die dirty Fiddle, du hellfire Bluegrassass,
+Nazi-Ass.“ Klaus singt ein frei fabuliertes
+Spottlied:„Klüngel in the City of Cologne.“Ein
+schnell gespielter Walzer, zu dem Erich
+begeistert klatscht:„ Klingelpütz ,Klüngelpitz,
+klingelingeling.“„Stop Antifa, stop Antifa,
+antifa-fa-fa-fa-fa.“Klaus: Biden, Boden,
+Bumms-antifatata.“ Ein Passant, dann viele,
+am Clodwigplatz geht die Post ab. Richard
+kütt um die Eck, is hin und weg, packt singe
+Klampf eruss und steigt in den wilden
+Dreier ein, und biegt ihn zum jazzy Blues
+um. Münzen fliegen. Erich strahlt. Dement
+wie er ist, und er ist stark dement, fühlt er
+doch glücklich alles mit. Dank seiner hohen
+emotionalen Intelligenz wirkt er immer
+noch, trotz seiner 80 Jahre, cool, so daß
+seine Behinderung kaum bemerkbar ist.
+Kinder sammeln die Münzen und geben
+einige Erich, der sie ihnen schenkt.
+Jetzt strahlt auch? Klaus, der
+die ganze Zeit merkt, daß Donald echt sein
+könnte, wie ein Honig ? Kuchen ?.Er
+wiehert vor Lachen über seine eigenen
+Gedanken, und spielt und tanzt wie ein
+Derwisch. Schade daß ich? mit meinem?
+Fahrrad-transportabel-Schlagzeugset nicht
+am Set beteiligt sein kann. Das wär schön.
+Hätte ich es doch nur dabei gehabt. Dem-
+nächst nehme ich es immer mit wenn ich
+auf die andere Rheinseite fahre. Straßen-
+Musik ist das neue Ding in der deltapandi-
+Zick. Erich packt Donald, Donnie wird er
+seit seinem Ensen Aufenthalt hier von
+allen genannt, was ihm gefällt, und die
+beiden steigen in die Linie 16 in die Straßen-
+Bahn ein und fahren schwarz. Prompt
+werden wir kontrolliert. Die Kontros werden
+von Donnie scharf angegangen: „Mother-
+fu**rs, Nazis, I’m the President of the USA
+your Bastards!“Die jungen
+deutschtürkischen Kontrolletties haben
+keinen Bock auf pöbelnde Alkis, und brüllen:
+„Maske auf und die nächste raus!“„Ich ?
+pariere und halte mich mit beiden Händen
+hin und her wackelnd grunzend an einer
+Halte-Stange fest. Als ich das Ticket zeigen
+soll grunze ich richtig laut. Die verängstigte
+Kontollöse reagiert mit einem lautem
+“Danke“, um ihre Mitarbeiter zu täuschen,
+die annehmen, sie habe mein
+nichtvorhandenes Ticket sich von mir
+zeigen lassen, was ja nicht der Wahrheit
+entsprach. Erich lacht und zeigt seinen
+Behindertenausweis. „Steigen sie in die
+Linie 1 am Neumarkt um in Richtung
+Bensberg, die bringt euch nach Merheim
+zur Landesklinik.“„Hehehahaha, wollen sie
+meinen Kopfhörer; die Musik ist so schön?“
+Donnie wird an der nächsten Station von
+der herbeigerufenen Schmier empfangen.
+„Hi Cops, arrest this motherfu**ng, dirty
+drugsdealing Mex-Assh**ls, they fu** your
+daughters and kills your wifes.“ Er landet
+tatsächlich in Merheim, erst in der
+Ausnüchtetungszelle in Ossendorf,
+anschließend in der Gummizelle der
+Geschlossenen in Merheim; 6 Wochen
+Psych-KG. Er bleibt, stark sediert, 6 Monate
+dort. Haliperidolopfer Nr. Zichtausendund-
+eins. Da ich nicht mit ihm verwandt bin und
+er mich nicht sehen will, werde ich nicht
+reingelassen und nicht vom Chefarzt gehört.
+Er wird mir eh‘ nicht glauben, und mich….
+Die ganze Welt ist jetzt ohne Trump, und
+kann runter kommen. Ist das ein Segen?
+
+BEVOR ES WEITERGEHT IM SCHELMEN-
+ROMANTEXT AKTUELLES IM AUGUST ’21:
+
+Biden derweil rächt mit einem gezielten
+Drohnenangriff gegen IS-Führer der ISIS,
+die gestern 13 GI’s und über167 Zivilisten
+am Flughafen in Kabul durch seine irren
+Selbstmordattentäter mordete. Die Taliban
+werden, so hoffe ich, zeigen, wie man gegen
+das ihnen feindlich gesinnte unreligiöse
+Mordlustterrorwichserpack IS vorgzugehen
+hat und der ganzen Welt zeigen, wie man
+mit dem IS verfahren muss, und daß sie
+selber keine üblen Terroristen wie
+die des IS sind. Noch packt die westliche
+Welt die Taliban mit in diese Kiste. Die neu
+ausgerichtete Taliban kann man nicht mit
+den Taliban-Terroristen vergleichen, die vor
+über 20 Jahren ihr Unheil trieben, meine ich
+sagen zu dürfen; ich kenne orientalische
+Zeitgenossen persönlich. Schlimm ist die
+Haltung der Taliban gegenüber, ihrer nicht
+geheimgehaltener Orientierung,
+homosexuell orientierter Menschen, und
+gegenüber jeder gezeigter sexueller Absicht
+von Frauen, die das in der Öffentlichkeit,
+wenn auch nur versehentlich vielleicht,
+andeuten. Das ist extrem. Islamistisch ist
+die Taliban; die Scharia gilt. Der IS verändert
+deren festgeschriebene Gesetze auf eigene
+Faust, die Taliban macht das nicht. ZB:
+Im Scheidungsrecht: Damit die irren
+selbsternannten Minikalifen des IS schneller
+die Frauen wechseln können. Tatsache.
+An die Wurzel:
+Sure 4, oder 5 sagt aus; wenn deine Ehefrau
+widerspenstig wird, vielleicht will sie im
+Streit ein anderes Fernsehprogramm sehen,
+sollst du sie schlagen. Nicht nur schlagen,
+prügeln steht dort geschrieben. Ein Vers,
+wenn man ihn gelesen hat, einen normalen
+lieben Mensch dazu veranlassen kann, das
+Buch nicht mehr weiter lesen zu wollen,
+und es schlimmstenfalls, bitte nicht tuen, in
+die Ecke zu schmeißen. Ein Vers, beschreibt
+den Umgang mit der Ehefrau; Koran:„ Jede
+sexuelle Absicht außerhalb der Ehe sei tabu,
+außer an denen, an denen ihr Rechte habt.“
+Gemeint sind Sklavinnen. Der Nebensatz
+“An denen ihr Rechte habt“ gilt als späteres
+Zugeständnis des Propheten an die
+damalige führende Bürgerschicht und
+deren patriarchaler Struktur, als spätere
+Hinzufügung des Propheten zum heiligen
+Korantext. Er war wohl umnachtet, wie es
+jedem Sterblichen mal passieren kann.
+Koran:„Mohammad, Du bist nur der
+Überbringer des heiligen Textes.“Jenes soll
+dem Ehemann erlauben, falls die eigene
+Ehefrau keinen Bock auf ihn hat, sich,
+ähnlich wie in der Prostitution, es hinten-
+herum zu treiben, und nach seinem Tod
+ins Paradies einzugehen, in das er ja, weil;
+es war ja‘ erlaubt, nach dem Motto: “Ich hab
+ja nur meine unwillige Alte hintergangen“,
+im Jenseits zur Belohnung sich dann
+auch noch darüber hinaus mit über 70 Jung-
+frauen, die für ihn parat gehalten werden,
+vergnügen darf.?:„Wie bitte? Was ist los?
+Dieser pubertäre Traum zog, logo, viele
+Anhänger zum neuen Glauben; damals wie
+heute. Der Vers wird gehandelt als ein
+sogenannter,“satanischer Vers“, soviel
+ich weiß. Da muß ich Pierre mal fragen. Ich
+könnte mich ja‘, glaub ich aber nicht, irren.
+Meiner Meinung sagt uns Menschen der
+Koran grundsätzlich Folgendes :„ Du wirst
+nach deiner Absicht deines Handelns und
+Denkens beurteilt werden; das heißt:
+beurteile dein Gegenüber erst, wenn du
+dessen Absicht ergründet hast. Frag ihn
+bevor du etwas sagst oder machst, wie er
+das gemeint haben will, und was er mir
+damit sagen will, mit seiner fragwürdigen
+Aussage, wenn dir etwas falsch vorkommt.
+Ergründe seine Absicht. Daraus ergibt sich
+alles weitere. Missverständnisse vermeidet
+man so, und es kommt Ruhe in die
+Diskussion. Gute Absichten hab ich, so
+wie fast alle lieben Menschen, das reicht
+erst mal, meine ich. Oder? Die Taliban liest,
+und lernt und hat, so hoffe ich, gute
+Absichten zukünftig lockerer und
+menschlicher zu werden. Die Zustimmung
+der Mehrheit der Bevölkerung zur Taliban-
+Regierung scheint in Afghanistan, im
+Gegensatz zu der in Persien zu deren
+Regierung, gegeben zu sein. Hat sie das?
+Wird sie sich früher oder später von der
+Scharia, die historistisch gesehen an eine
+frühere Zeitepoche gebunden scheint,
+trennen, oder an ihr festhalten, oder sie
+erneuern, oder sie außer Kraft setzen,
+oder an die Gegenwart angemessen
+anpassen? Die Taliban kann jetzt in
+Ruhe ihre zukünftige Ausrichtung selber
+ausloten. Das wird spannend. Oder?
+Leider zeigt der IS hier, daß die Taliban ihre
+neue Macht noch nicht konsolidieren
+können solang der IS, Attentate verüben
+kann. Die Taliban hat momentan Listen von
+Sicherheitskräften, die ausreisen dürfen, mit
+denen sie den riesen Ansturm von Personen
+aussieben, die ausreisen wollen, aber nicht
+sollen, da sie nicht zu dem Personenkreis
+gehören, die bei den ausländischen
+Besatzer in Anstellung waren. Die Taliban
+werden sich ab sofort um die Ausschaltung
+des IS sorgen müssen, sich daran
+abarbeiten, bis der IS komplett besiegt ist.
+Das ist vorrangig. Reformfähig ist der
+Taliban. Aber es braucht Zeit bis die
+altertümliche Scharia überwunden, ersetzt
+werden kann, in einer traditionell
+patriarchalen Kultur, die sich allerdings
+heute schon moderner digitaler Hilfe
+bedient. vor 25 Jahren warf sie Fernseher
+aus dem Fenster; Bilder-Verbot. Vom
+Dschihad haben sie sich verabschiedet.
+Gemeint ist hier der öffentliche Kampf,
+der Glaubenskrieg in der Region.
+Der innere Kampf, das bedeutet Dschihad
+eigentlich, den jeder mit sich
+alleine führt, natürlich nicht.
+Ein fundamentalistischer Frühling ist
+eventuell dennoch im Anmarsch. Ist das
+Positiv oder negativ für die Region?
+Leidtragende bleiben die Frauen und die
+homosexuell ausgerichteten Menschen.
+Das ist leider eine bittere Tatsache, die
+wahrscheinlich lange Bestand haben
+wird und viel Leid und Ungerechtigkeit
+für diese bringen kann, bringen wird.
+Die Dschihadisten, Gotteskämpfer genannt
+werden das Feld wohl räumen, da der
+Kämpfer strenggenommen falsch liegt,
+wenn er seinen persönlichen Kampf mit
+sich selber in die Öffentlichkeit gegen
+sogenannte Ungläubige überträgt. Nach
+S.Freud ist das ähnlich, wie der Fehler den
+Rechtsradikale machen , die ihren
+unbewußten Selbsthass, auf andere
+übertragen. Beim Abreagieren an diesen
+fühlen sie sich dann kurzzeitig besser. Der
+ursprüngliche unbewußte Selbsthass,
+jeder, auch ich, fällt darauf schon Mal rein,
+resultiert aus dem Ärger über eigenes
+Versagen. Wenn ich hier so schlau rede,
+kann man den Eindruck gewinnen, ich sei
+psychisch gesund, niemand ist psychisch
+gesund, ich schonmal garnicht. Alles klar?
+Den Kampf der Dschihadisten im Kampf
+gegen Ungläubige, oder anders
+ausgedrückt, gegen “Windmühlen“ kann
+man mit obszön bezeichnen. Obszön :
+Etwas Persönliches, Geheimzuhaltendes in
+die Öffentlichkeit zu tragen, zur Wirklichkeit
+zu erklâren, obwohl es privat ist. Ebenso
+sehe ich das mit der Errichtung und
+Bezeichnung: Gottes Staat. Wahnsinn ist’s.
+Sehe ich das falsch? Soll ich Pierre fragen?
+Überhaupt; bedeutet Dschihad nicht, daß,
+wenn es sich um ein innereres Ringen mit
+dem Glauben handelt, es Privatsache sein
+sollte? Die Absicht meines Handelns, wie
+ich mein Leben ausrichte, zählt doch, wird
+bewertet, wie ich aus dem Koran gelernt
+habe. Da muss ich, wie jeder, die gute
+Entscheidung treffen, und anfangen nur
+noch gute Absichten zu hegen. Sonst ist
+man im Alter allein, wenn’s drauf ankommt.
+Da geht die Tür zu.Ende Gelände:Der innere
+religiöse Kampf mit sich selber, eine Art
+Neugeburt, nach der man mit sich selber
+im Reinen ist, und bleiben will, das nennt
+man im eigentlichen Sinn Dschihad! Soviel
+ich weiß. Allgemein versteht man darunter
+fälschlischer Weise „Heiliger Krieg“. Was
+für ein absurder Begriff. Kein Krieg ist heilig.
+Alles kommt ans Licht:☀️siehe oben:
+Adambosch: Mensch bleiben: Liebe ist
+alles was du brauchst, sagt uns unser
+gesunder Menschenverstand schon.
+
+ÜBERGANG ZUM ROMAN:
+Und, logo, dasselbe sang und singt unser
+Weltschattenpräses John, „All you need is
+love“ El‘ Presidento del mundo inkognito“,
+Lennon. Er residiert und regiert die Welt
+von Ceres aus, in der großen ∆. plant er mit.
+(Siehe Kapitel Nr.1)„Uneinsichtig-
+Donald“ kann nicht mehr, da abgewählt,
+dazwischen ?bomben, er weilt in der
+Geschlossenen in Merheim. ?
+Erich und ich besuchen ihn. Der geschockte
+Stationsarzt glaubt uns, und er darf auf die
+Offene. Wie alle Haliperidolopfer raucht er
+Kippen, ist ordentlich feister geworden und
+wackelt merkwürdig mit seinem Kopf. Da er
+falsch eingestellt ist, so nennt man die
+Medikation, man ihn leider für schizophren
+hielt, ist er jetzt tatsächlich schizophrenen
+Schüben ausgesetzt. Katatonische
+Zustände wechseln mit Wahnvorstellungen,
+wie Stimmenhören ab. Das passiert, wenn
+man Neuroleptika an Gesunde verabreicht.
+Schon mal öfters so geschehen. Donald
+hat zum Glück eine starke Persönlichkeit,
+steckt das locker weg, und seine Monologe,
+seine Antworten auf sein Stimmenhören,
+lässt er laut los. Angst vor diesen Stimmen
+hat er anscheinend nicht. Er ist nicht mehr
+allein und langweilig wird ihm auch nicht.
+Er lebt lachend und Cola trinkend richtig
+auf. In der leeren Bahn redet er mit dem
+Fahrkarten-Entwerter-Automat und schreit
+herum. Das wirkt echt bizarr. Leute steigen
+zu und wollen, daß er seine Pandi-Maske
+aufsetzen soll. „Shut up little shitty person!“
+Drei Stationen weiter steigt das Ordnungs-
+amt zu. Wir steigen an anderer Tür aus und
+können sie austricksen, als wir wieder
+einsteigen, als diese uns draußen suchen.
+An Kalk Kapelle steigen wir in die 9 nach
+Ostheim und im Bus 152 nach Gremberg-
+hoven. Wir laufen die Rather Strasse runter
+bis Ensener Weg zur Ensener Selbsthilfe-
+Kommune wo wir Helmut und Erich antref-
+fen. Entgiftung, Helmuts Spezialwissen, ist
+für Donnie angesagt. Leider stoppt er die
+Bahn der Linie 7, die direkt hier die Halte-
+stelle Ensen-Kloster hat, auf seine Art; er
+stellt sich vor die Bahn, der Fahrer muß
+aussteigen, Donnie drängt ihn beiseite,
+besteigt das Führerhaus und entführt den
+Zug ?. Der Erich beruhigt den entsetzten
+Fahrer: „Er ist der US-PRESIDENT, er kann
+nichts dafür. Er will nur zum Golfen nach
+Florida zurück.“Per Handy will, er kommt
+nicht dazu, da Erich dem verdutzten Fahrer
+das Smartphone entlehnt und die perplexe
+Fahrdienstleitung fragt, ob der US-PRESI-
+DENT ohne Fahrkarte fahren darf, weil der
+ja Anspruch auf einen Behindertenausweiß
+hätte und nur golfen will. „Tünnes 735,
+melden sie sich, was geht da ab bei ihnen?“
+Donnies Stimme kommt über die Außenlaut-
+sprecher kreischig laut und übertönt alles:
+„Get it on Motherfu**ng Train!“. Erich lässt
+das Smartphone vor Schreck auf die Gleise
+fallen. Die entsetzten Fahrgäste können alle
+aussteigen, alle Türen sind offen, die Fahrer-
+Kabine ist geschlossen, an Donnie kommt
+keiner heran. Keiner kam auf die Idee die
+Notbremse zu ziehen, die Bahn fährt
+plötzlich los. Donnie gibt richtig Gas und
+singt:„ I’m looking for freedom.“Über die
+überlaute Außen-Laut-Sprecher ist halb
+Westhoven bis zum Rheinufer beschallt.
+Kann er bremsen? Nein kann er nicht,
+rhythmisch hupen und bimmeln schon.
+Sein Gesang, wie Gary Glitter’s „I’m the
+Leader, I’m of the Leader of the Gang
+the force!“ kreischt es über die Siegburger
+Strasse in Poll. Irgendwie schafft er es
+den Zug zu stoppen, wir steigen endlich alle
+drei aus. Drehbrücke heißt die Station. Die
+entgegengesetzt fahrende Bahn nehmen
+wir, kommt gerade richtig, steigen zu,
+fahren zurück und steigen die übernächste
+wieder aus. Wir latschen bis zur Südbrücke
+dann rechts ab bis zum legendären
+Schwarzen Block, von Jua so getauft, ein
+Lager-Bau am Hafen,
+gegenüber dem Hafenbecken und der
+alten Aurora-Mühle. „Hi, Chef“ Donnie weiß,
+wer hier das Sagen hat, und Chris erkennt
+sofort Probleme:„Du kommst hier nicht rein!“
+„F*ck you redhead,..“„VOLLPFOSTEN zieh
+Leine!“„Nazi, I make you fuc**g great again,
+Take this.“ Chris sitzt auf seinem
+Gabelstapler und gibt Vollgas, zieht den
+Kopf ein, der leergeknallte Colt fliegt vorbei,
+er packt Don mit den Gabeln und kippt
+ihn gekonnt in den Schadstoffcontainer.
+Don erhebt sich und wird wütend: „Bastard,
+Für**g, Nazi-Prick, I make you fuc**hellfireri
+small, Redhead, I‘ m shoot you down.“Er
+purzelt im Schadstoff und fällt in eine
+bizarre katatonische Steife.
+„Dad häste dovun, drecklich Sackjesech.“
+Chris, wie Kai Flieger entsorgt den
+Querulanten; er packt ihn, wir helfen ihm
+und bringen ihn auf die die andere
+Straßenseite, setzen ihn auf die Holzbank
+an die Poller Wiese, wo Donnie starren
+Blicks den Rhein vor Augen hat, da er
+wegen seiner Katatonie steifgeworden ist.
+Chris bastelt an seinem Solar-Teppich
+der über das Gelände schwebt.
+5 cm über dem Asphalt, von sieben
+Mini-Propellern, die Luft nach unten ,unter
+den Solar-Teppich blasen, daß er ähnlich
+einem Hoovercraft schwebt. Ein drehbares
+Düsen-Triebwerk, klein, aber fein, per Hand
+leicht zu steuern, macht Tempo in die
+gewünschte Richtung.
+Chris nutzt unsere Anwesenheit zum
+Belastungstest. Er, Erich und ich gleiten die
+NWiesenböschung herab geradewegs zum
+Rheinstrom. Mir wird anders. Don Stief,
+den Mund offen, debil glotzend schafft es
+nicht zu sprechen, zu fluchen, sich
+irgendwie zu bewegen. Vollständige
+Katatonie. Da haben wir Glück, der läuft
+erstmal nicht weg. Der Solarteppich
+wassert und schwebt über den Strom rüber
+zum Rhenania. Erich singt:„Mim Mülemer
+Böötcher faahre mer sujeen..“Chris gibt
+Vollgas, die Sonne ☀️auch und der Solar-
+Teppich hebt richtig ab. Erich steh auf,
+tanzt nicht, der schlimme Fuß verbietet
+das momentan. „Setz dich Alter!“ Ich muß
+Erich leider anbrüllen. 150 Meter hoch, nein,
+eine Wolke verdeckt die Sonne ☀️ und wir
+parken knapp auf dem zweiten Kranhaus,
+nach plötzlichem Höhenverlust und harter
+Landung. Auf der anderen Rheinseite
+können wir Donald sehen. Er steht plötzlich
+auf und läuft auf direktem Weg zum Rhein;
+latscht weiter und verschwindet im Strom.
+Er taucht nicht mehr auf. Der Vollpfosten
+säuft ab, na ja‘, dann ist er eben weg. Wir
+starren gebannt, ob, und oder wann er
+wieder auftaucht. Er hat ein extrem hohes
+spezifisches Gewicht und Stahlkappen in
+den schweren Cowboy ? Stiefeln, seine
+Golfschlägerumhängetasche, und
+Reservegoldbarren in singer Botzetäsch
+und im Gürtel. Der taucht garantiert nicht
+mehr auf. Pustekuchen! Nach ein paar
+Minuten kommt zuerst sein orangenes
+Haupt, dann der ganze Don wohlerhalten
+am linken Ufer hoch. „Unkraut vergeht nicht.
+Oder?“ Chris:„ Wer ist das? Die Type geht
+mir voll gegen den Strich. Was für eine
+Pfeife.“ Erich: „Der Präsident will doch nur
+golfen.“„Der was?“„Der Donnie“„Ja wie?“
+„ Mein Freund.“ Chris kennt Erich nicht, er
+wird aber langsam ungeduldig:„ Du Horn-
+Ochse.“„Gib mir Tabak, Chef, ich hab leider
+keinen.“„Hier, du Tünnes.“„Der Teppich ist
+schön.“„Du auch.“„Der US-PRESIDENT auch.“
+Schorsch, was ist los mit deinem Erich?“„Er
+hat Recht, das ist Trump, Trump ohne Gold-
+fließtoupet, ohne alles, außer der Golftäsch“.
+„Ha, ja, hahahaho.“„Der ehemalige FC-Fußball-
+star Lukas. kommt zufällig auf’s Dach, Er
+wohnt gelegentlich im obersten Stockwerk
+des Kranhausbaus bei, der er sein
+Miniappartment deswegen gelegentlich
+überläßt. Es hat eine Stiege zur Dachfläche.
+Dasist eigentlich die Hausmeistermini-
+wohnung, die Lukas günstig erwarb. „Wad
+mäte he bowe?“„Lukad.!“„Alles klar bei
+euch? Kommt runter auf den Teppich, Lück.
+Ein schönes Teil.“Chtis:„Lukas, Du kannst
+uns einen Gefallen tun, und uns den nassen
+ahlen Onkel da unten zu uns herbringen.
+Dann darfst du, wenn gleich die Sonne
+wigger ruskütt mit uns flieje.“„Wat is?“
+„Überraschung! Wird dir gefallen, wetten
+daß?“Lukas kommt mit Don Minuten später.
+„Setzt euch auf den Solarteppich, kurz: S.T.,
+es geht los! Lukas bedankt sich. Er mißtraut
+der Sache, freut sich aber über Donalds
+Einladung nach Florida zum Golfen. Er
+schenkt ihm zu dessen Freude eine rote FC-
+Kappe. Donald ist angekommen in Kölle. Der
+S.T. hebt ab und Chris, tollkühn, rast auf die
+Dachkante zu und nach einigen Metern in
+der Luft sinken wir vier ab und runter mit
+Karacho in die Tiefe. Das zu hohe Gewicht
+ist leider zu viel für den S.T. und wir sacken
+schnell ab. Platsch macht’s. Alle können
+schwimmen. Donald, Erich, und ich
+schwimmen zur Ufermauer an ein
+Anglertreppchen. Oben springen wir aus
+den nassen Klamotten halten sie vors
+Gemächt, steigen auf die Südbrücke, gehen
+rüber, trocknen die Klamotten auf der Poller
+Wiese in der Septembermittagssonne. Der
+S.T. hat mit 100 kleinen Hohlraumkammern
+quasi einen integrierten Rettungsring. Chriis
+kann ihn retten, da er mit Seil an seinem
+neuen Flieger, dem S.T. verankert ist. Er
+schafft es, er ist ein sehr guter Schwimmer,
+rüber auf die rechte Rheinseite in Höhe des
+Rheinparks zu landen. Die Strömung war
+wegen des niedrigen Rheinpegels geringer,
+sonst wär er wohl abgesoffen. Das wär
+echt schade um seine geniale Erfindung
+gewesen, oder nicht? Ich mach nur Spaß.
+Der ahle Fuss ist doch der Beste, wir sind
+natürlich froh, daß er lebt. Ein lebensfroher
+lieber Mensch ist der Chris, der Chef vom
+Schwarzen Block, in dem Jua ☀️ und Fleder-
+mäuse Räume haben.
+
+Donald und Erich essen im Gulliver das
+Tagesgericht mit Cola und Kaffee. Donald
+will noch ne Cola, obwohl er keinen Cent
+hat. Die Sozialarbeiterin lässt sich nicht
+erweichen. Er fliegt raus, da er widerwärtig
+flucht. Sie setzen sich auf die Treppe
+zwischen HBf und Dom. US-Touristen
+bleiben ungläubig vor ihm stehen und
+beobachten den FC-Fan, der Sprüche
+loslässt, wie sie nur von Trump stammen
+können. Oder von einem begnadeten
+Komiker, der Trump kann. Sie geben ihm
+einge Münzen. Don ist beleidigt und
+flucht sie in Grund und Boden. Das
+wirkt. Sie zücken begeistert blaue
+Euroscheine. Er gibt sie Erich, der sie
+einem Pfandflaschensammler mit seiner
+Riesentasche voller Dosen schenkt. Jetzt
+packt der reiche Ami-Touri grüne Scheine
+aus. Donald greift sich die vermeintlichen
+Dollars und zündet sie an. Die Zuschauer,
+Roma-Kids, Punks und Alkies stürzen sich
+auf Don und grabschen ihm dazwischen.
+Die chaotische Schreierei ruft die
+Bahnschmier auf den Plan. Sie verhaften
+alle Punks, Roma-Kids und die Amis. Erich
+und Donald nicht. Ein Russe, Deutschrusse,
+mit seinen Anhang kommt danach zu uns
+und zwingt Donald mitzukommen. Erich
+will mit. Ich verhalte mich vorsichtshalber
+ruhig. Donald raucht die angebotene
+Geschichte, und wird high. Erich bekommt
+eine Watsche, er soll sich verziehen, was
+Donald mißfällt. Er packt seine Smith&
+Wesson aus der blauen Bermudashort
+und steckt sie dem überraschten Chef in
+den Mund. Der Deutschrussengangchef
+lässt Erich und mich mitkommen. Erich:„He,
+He,he, jetzt los zum Golfen, das wird schön.“
+Das Wort „Golfen‘ kennt der stark
+verängstigte Chef der Gang nicht. Voller
+Respekt führen sie uns zu ihrem
+Blechbomber, einem Schrotthaufen von
+einem Transporter und fahren uns nach
+Finkenberg zu ihrem Hauptquartier an der
+Steinstraße, Ecke Ensener Weg, neben
+der indischen Tempelanlage am
+Rangierbahnhof gelegen. Container neben
+Container auf solchen, teils als Lager, teils
+als Wohnersatz. Ein einziger mülliger
+Schrottplatz mit Kabeln und Stromgenerator,
+Fässern und weiteren Blechbombern und
+Baracken im Kreis angeordneter steiniger
+dreckiger Geländeplatz mit Büschen
+Holzlattenzäunen und Brombeergebüschen
+verwucherten Rändern. Ein gut getarntes,
+kaum einsehbares unscheinbares Auto-
+Reparaturbetriebsgelände, in dem
+versteckt gehaust viele Kreaturen
+Unterschlupf gefunden haben, wie es
+scheint. Donald kommandiert wie üblich
+schreiend herum. Er will hier nicht bleiben,
+Erich kennt den kurzen Weg bis zu Helmut,
+und wir ziehen ab. Die Gang ist froh darüber,
+da sie uns für gefährliche bewaffnete
+einheimische kölsche Kreaturen halten, die
+sie mehr fürchten als alle anderen. Sie
+halten uns für Psychophaten. Glück gehabt.
+Helmut füllt uns erstmal mit Cola ab.
+Donald lässt uns nichts davon übrig. Wir
+hoffen auf Helmuts Sencha-Bio-Grüntee.
+„He,He,He.“ Erich auch. Donnie ernennt per
+Dekret Erich zum Vizepräsident, Helmut
+zum, der lehnt dankend ab, Heimatschutz-
+oberst, darf das aber nicht. Ich soll ihn nach
+Rammstein fahren. Wir gehen zum Alberti,
+wo das DUB ? uns abholen wird. Donnie
+fühlt sich präsidential prächtig gut. Er sucht
+vorher Regina auf, und ernennt sie zu seiner
+First Lady und läd sie zu Kuchen und Cola
+ein. Sie soll ihn beraten bei zukünftigen
+atomaren Erstschlägen und bei der
+Errichtung seiner Weltherrschaft, die
+er jetzt einrichten müsse, damit er
+überall Golfplätze auf dem Globus
+anlegen lassen kann. Als Friedensfürst
+will er in die Geschichte eingehen und
+er hofft dafür den Friedensnobelpreis
+abstauben zu können, um mit
+Obama gleichzuziehen. Unterwegs rüpelt
+er uns entgegen kommende Roma-Leute
+als fu**g Mexicans an. Regina, die mitspielt
+bei Donnies psychotischem Schub, erklärt
+ihm, daß diese zu ihrer weitverzweigten
+riesigen Verwandtschaft gehören, und
+keine Mexikaner seien. Er hört auf sie und
+wird zärtlich. Regina:„ Wir sind im Dienst,
+Chef.In Rammstein wartet man auf Dich.“
+Donnie wird plötzlich mitten im Tunnel auf
+der Rather Straße unruhig und, kein Wunder
+nach 2 Litter Cola im Bauch, rasedoll. Das
+Echo im Tunnel verdoppelt seine irren
+Aufrufe zum nationalen Aufbruch aller
+gläubigen Amerikaner zum Kampf der
+Welten gegen die Antifa. Das schon wieder.
+Am Alberti angekommen will er angeln ?
+Robin will im Wasser spielen und will runter
+von Donnies Schultern. Per Dekret hat er er
+Reginas Sohn adoptiert. Am Strand buddelt
+Erich eine Grube, packt Donnie und begräbt
+den Ex-Präs, der katatonisch steif geworden
+ist. Erich denkt er sei gestorben. Als wir
+nach unserem Badespaß zurückgeschwom-
+men sind, ist nur Erich und Robin da. Erich:„
+Donnie ist im Himmel golfen.“„ Robin: „Der
+Onkel Donnie macht Heia.“„Wo denn?“„Da.“
+Er zeigt auf die Stelle.“Wir graben ihn aus. Er
+ist blaß und naß und steif. Robin springt auf
+seinen Bauch und hat Spaß. Donnie erwacht
+und ist plötzlich von seinem schizophrenen
+Krankheitszustand befreit. Die Psychose ist
+zu Ende. „Wo bin ich? Wo sind meine Koffer-
+träger, meine Security-Mannschaft. Wo ist
+mein Koffer. Er meint seinen Atom-Erst-
+Schlag-Einsatz-Auslöse-Koffer.“ Er sucht sein
+Handy, hat er natürlich nicht mehr. Das DUB
+taucht aus dem See auf. Don:„Ah, da kommt
+mich jemand abholen.“ Kai kommt mit
+seinem Rakrad zu uns geflogen.„Let’s Go.
+Admiral Rocket.“ Kai: „Du kommst nicht mit.“
+Er will nur mich abholen. Er gibt Don zwei
+Zwannies und wir fliegen ins DUB ?. Don
+wird schon irgendwie zum Flughafen und
+nach Florida kommen. Erich und Donald
+freunden sich erneut an und er wird Donald
+zum Flughafen oder sonst wohin bringen.
+Hoffentlich klappt es diesmal. Das DUB
+zieht mit der Haifräse voran nach unten
+und bohrt sich in den Alberti Grund in
+Richtung Atlantis. Donald flucht, er wär
+gerne mitgefahren, über die Antifa, die wie
+immer Schuld hat. Er will direkt nach Berlin
+zu Angela um mit ihr zu verhandeln um
+das DUB ? und eine Anerkennung,
+uneinsichtig der Wahlniederlage, seines
+angeblichen Wahlsieges von ihr zu
+erlangen, um die Antifa weltweit zu
+bekämpfen, die an dem Wahlbetrug Schuld
+haben. Er nimmt sich ein Taxi, steigt mit
+Erich ein und ab nach Berlin. Die
+angeforderte Schmier holt sie in Porz raus.
+Kambys, der persisch-kölsche Taxifahrer
+kennt sowas. Die Polizei wird kltzeklein, ob
+der Hass-Tiraden des Egoshooters und
+fordert Verstärkung an. Kambys macht
+Fotos und setzt die ins Netz. Donald hat
+das Taxi verunreinigt, und er zerfetzt mit
+seiner Urgewalt und seinen Zähnen die
+Polster und hackt mit der zerschlagenen
+Bierflasche um sich. Dann markiert er mit
+der leergeknallten Smith & Wesson einen
+durchgeknallten Geiselnehmer, mit Erich
+als Geisel. Er schnappt sich das Motorrad
+der Schmier, fährt ohne Erich los und ist
+weg. Erich erklärt, daß sein Kumpel zum
+Golfen nach Florida oder Großkönigsdorf
+fährt, da heute nicht Montag sei. Er kommt
+in Untersuchungshaft und Kambys
+verschwindet ungefragt. Die Porzer Schmier
+hat sich voll blamiert. Kambys erhält die
+Bestätigung, daß es sich tatsächlich, die Ge-
+sichtserkennungs-Modifikation von Huawei
+lässt grüssen, um Donald handeln müsse.
+Auweija. Kambys wendet und jagt Donald
+nach. Auf der Autobahn, Donald mit Blaulicht
+und voll aufgedrehtem Durchsagehorn-
+Lautsprecheranlage: PAY ATTENTION! PAY
+ATTENTION! I’M THE PRESIDENT OF THE
+USA, GO OUT OF MY WAY, YOU FUC**NG
+GERMAN BASTARDS. Kambys klemmt sich
+dran. Don bremst hart und kurvt im letzten
+Moment in eine Autoraststätte, schmeißt
+die Maschine in den Graben und geht
+essen. Kambys verfehlt die Ausfahrt zur
+Autobahnraststätte und gibt telefonisch,
+lieber doch nicht Bescheid. Er hält am
+Seitenstreifen, Warndreieck raus, und zu
+Fuß zurück. Donald ist mit einem
+polnischen Trucker, ein Trump Anhänger,
+auf und davon. Nach Berlin? In Krakau
+angekommen beschließt Donald ein
+neues Leben, ein Reset, einen Neustart zu
+wagen. Sein ewiger Traum, ähnlich wie der
+von Aaron Elvis Presley, hat er seit er 15
+war: Trucker, on the road, zu sein. Soll jemand anderes die Antifa bekämpfen.
+Hier gibt’s Autobahnen, in Germany sogar
+ohne Geschwindigkeitsbegrenzung, gute
+Verpflegung, und vor allem, Trucker. Eine
+Neue Identität, ein gut gefälschter Pass
+vermittelt sein neuer Kumpel am Steuer
+des Trucks, der ihn mitnahm: Slawek. In nur
+zwei Jahren hat Donald ganz Europa bis
+Asien durchfahren, kennengelernt und
+liebgewonnen. Er ist happy und lustig
+drauf, Golf ist out, Polka-Feiern in, er hat
+überall was laufen, bleibt gelassen, und hat
+immer was Aufbauendes im Sinn. In Köln
+kommt er in eine Verkehrskontrolle. Seine
+falschen Ausweißpapiere fallen auf. Der
+Abgleich ergibt, daß es der ist, der weltweit
+zum Glück vermisst wurde, oder leider doch
+noch Anhänger, vor allem bei den weißen
+Ami-Asi-Prolls, hat. Wachtmeister Mike
+bekommt einen Orden von Henriette und ist
+weltweit mit Donald im Focus der Medien.
+Zeitweilige Amnesie bei Donald, lautet die
+Ausrede, die zur Rehabilitierung seiner
+Person und seiner Abwesenheit erfunden
+wird. In Florida angekommen fällt jedoch
+schnell auf, daß er nicht mehr golfen geht.
+Gehirnwäschegerüchte machen die Runde.
+Er telefoniert allabendlich mit Putt_it_in, mit
+Waldi, der auch polnisch kann, und besucht
+ihn immer öfters in dessen Datscha auf
+der Krim, weshalb er damals die Krim, na
+logo, überhaupt annektierte. Das Anwesen
+ist wunderschön gelegen und bald Don’s
+liebstes Erholungs-Besuchsziel mit seinem
+gepflegten Golfplatz.
+
+Seine Wiederwahl ’24 ist so gut wie sicher
+nachdem die Covid-Seuche mit einem Aller-
+weltskraut, ein Tee also, bekämpft wird, der
+in der Anwendung einfach ist.
+Die Freundin von Slawek, eine erfahrene
+altenativ-medizinisch versierte Kräuterfee
+stellte zusammen, diesen Kräutertee. Biden
+scheint abgeschlagen. Die Klimaaufheizung
+leider nicht. Der Golfstrom verzweigt,
+nachdem der sich stark verlangsamte und
+verändert seine Richtung und fließt jetzt
+westlich an Grönland vorbei. Europa friert
+im Winter zu, Nord-Canadas Permafrost
+schmilzt. Donald hat’s raus, er kandidiert
+nicht in USA, er gewinnt in Polen die Wahl,
+kommt dort mit seiner Partei an die Macht.
+Zusammen mit Waldi werden sie kurz
+danach die Eurasische Völkergemeinschaft
+auszurufen, um einen neuen Vielvölkerstaat
+zu führen. Dafür wird er das zugefrorene,
+beinah entvölkerte Resteuropa annektieren
+müssen, was mit russischer Hilfe leicht
+gelingen wird. USA und China
+werden das hinnehmen müssen. Sie sind
+nicht mehr in der Lage, das zu stoppen, da
+sie 100.000.000 europäische Klimaflücht-
+linge aufnehmen. England versinkt im
+Schnee, und das im Sommer ’24. Hitzewelle
+in den USA, im Regen ertrinkt Texas, der
+fehlt in Kalifornien. China hat Glück, solange
+es noch Gletscher im Himalaya gibt. Von
+Wladiwostok bis Lissabon reicht das größte
+Land der Welt. Waldi und Donni haben das
+große Los gezogen, da langfristig die
+berechnete, prognostizierte, die ca.5 Grad
+stärkere Klimaaufheizung, der Eurasischen
+Staatsfläche nicht so schaden wird, wie
+dem Rest der Welt. Der neue Golfstrom
+spielt Donni, dem Ex-Golfer den Ball zu, und
+Waldi, Putt_it_in, der Ball ist drin.„Schorsch,
+bist du wieder im Wahn?“ Sagt Kai.„Der Tee
+war sehr stark. War da was drin? Ich merke
+nichts, aber mir ist so anders. Kai, stimmt
+das, was ich gehört habe, daß der Mond
+hohl ist?“„Hohl wie deine Birne ??“sagt
+Kai. „Auf seiner Rückseite, unser Trabant
+dreht sich absolut kein bißchen, was doch
+erstaunlich ist, besteht ein Funkloch-Effekt,
+der alles was dort und dahinter abgehen
+könnte, spurlos und geheim macht.
+Der riesige hohe Turm, gibt es den dort?
+Warum sind die Krater so flach, die sollten
+wesentlich tiefer sein? 2%Helium-3-haltiges
+Gestein in riesigen Mengen gibt’s da oben.
+China will, es wird dort aus dem Gestein
+gelöst, und will hier, ohne schädliche
+Radioaktivität zu verursachen, ähnlich
+Kernkraftwerken, potente Anlagen bauen,
+und damit alle Energieprobleme der Welt zu
+lösen. Die Seismographen, die von da oben
+Funksignale zur Erde schicken, lassen die
+berechtigte Annahme zu, daß der Mond
+anscheinend hohl ist. Stimmt das, oder ist
+das einfach nur hohl? Bin ich da hinter dem
+Mond ?, schießt mich da jemand auf den
+Mond ?.?:„Schorsch, beides.“ Sagt Kai.
+„Ist der Erde-Planet ein Blumentopf?
+Ist die Natur, inklusive Menschheit, eine
+Bio-Neuzüchtung? Wer ist der Gärtner?
+Gibt es nichtbiologische, intelligente?
+Strukturen, Auftraggeber, Schöpfer-♾️
+Kraft, die eine Interesse an biologischer
+Intelligenz und deren Fortentwicklung,
+Entfaltung und durch natürliche Auslese
+sich selbstständig optimierende Wesen
+haben? Gab es diesen Versuch einer
+Wiederbelebung schon mal, bevor man
+Leben hier auf Erden entstehen ließ.
+Musste das Lebendige einen früheren
+„Blumentopf‘ verlassen, und in einen nicht-
+biologischen Intelligenz-Daseins-Bereich
+flüchten, da das Lebendige dort ausstarb?
+Gibt es nichtbioligische Intelligenz, geistige
+Wirkweise, geistige Manifestation, die nicht
+aus biologischer Vorgängerschaft ?
+entstand? Entsteht Stoffliches aus ?
+Nichtstofflichem, aus Geist, und bedingt es
+dafür Zeitlichkeit, zur Ausbreitung einer
+Räumlichkeit? Was bremst, hält dadurch im
+Gleichgewicht, was Geist an ausdehnender
+Raumausbreitung im Laufe der Zeit⏳ an
+Stofflichkeit manifestieren wird? ?
+Gravitation? Lichtgeschwindigkeit bremst
+Stoffliches aus, Nichtstoffliches aber nicht;
+verwandelt man Stoffliches zurück zu Geist
+immer weiter bis allein Geist ist, gibt es,
+braucht es weder Zeit noch Raum. ?
+Das nennt man Urknall ?, oder?“?„:Mein
+?Denkmodell gründet auf folgende Idee:
+Aus Geist wird Lebendiges und aus
+Lebendigem, das größte Wunder überhaupt,
+entsteht Geist; bis der alles ausfüllt, bis
+nichts Stoffliches mehr da ist, was ?♾️
+wiederum zur Zündungsfunken führt, dem
+nächsten Urknall. Das wird jedesmal durch
+die jeweilige Gravitation besser justiert,
+besser im Gleichgewicht gehalten, so daß
+der Geist feiner, präziser, größer, geistiger
+wird, bis es nach dem letzten Knall, keinen
+weiteren mehr braucht. Alles ♾️ist dann in
+Allem, es ist und bleibt purer Geist. Die ewige
+absolute Erreichung. Das nennt man wohl:
+ewige allumfassende Göttlichkeit. Hallelu-
+Jah. Gibt es die? Ich glaube das schon. Du
+auch? Oder nicht?“ „Schorsch, Du hast’n
+Knall.“ Sagt ?Kai.?„Aber Musik hält alles
+zusammen, sing mit! Kai los jon, singe me
+en Liedcher! Beide:„ Ich hab ein KNALL,
+knallrotes ?Gummiboot.“
+
+Zurück aus der Zukunft in die Gegenwart.
+Ein Nichtangriffspakt zwischen USA und
+Russland, der sofort nach Trumps
+erwartbarer Wiederwahl, in Kraft gesetzt
+werden soll, wird in Waldis Datscha im
+Geheimen ausgedacht und vorbereitet.
+Noch ist, nur wir, da wir Zeitreisende, der
+Zeitreisenzuweisungsinstanz unterstellte,
+quasi Agenten, zu Diensten J.Lennon, dem
+Weltschattenpräses, der nur der Einen, der
+allerhöchsten Göttlichkeit unterstellt ist, und
+unterstellt bleibt, wissen, nur wir wissen wie
+es kommen
+könnte, denn er kandidiert und gewinnt ja‘ ’23 die Wahl zum polnischen Staats-Chef,
+daß er also nicht an der US-Wahl ’24
+teilnehmen wird, wie es aussieht. Längst
+haben die beiden, nicht Biden und Beiden,
+kleiner Scherz, sondern Donnie und Waldi,
+derweilen ihr Größtes DING überhaupt
+ausgeschurkt:????: Ein Groß-Europa,
+der Eurasische Völker Bund, Eurasia ist in
+Planung, in deren Fantasie. Darüber hinaus;
+eine Übernahme der USA, die spätestens in
+5 Jahren pleite, und durch Klimaerhitzung
+desolat sein werden. Und danach die
+Weltherrschaft. “Egomantiker‘-Träume
+der kühnsten Art. Es ist “ArtEGO‘. Der reine
+Wahn. “Putt_it_in’_Waldi wird immer besser.
+„Im Golfen?“fragt? Kai.?:„Suwisu.“
+Allgemein, besonders für unangenehme
+Bewertungsministerschwachmaten gilt:
+“He neuer Du, Der Ton ist rau! Das war
+schon immer so, Du blöde Sau!“( Beate
+Jochims )
+
+®©Georg Dickas✓Schorsch Tantekel©✓
+®Blunot Rec.BR4711,CD.LP.MC.EU.J.USA
+Made in Germany✓Cosmische Kalkurier©
+_________________________________________
+Teil 128, Schelmenroman von Georg Dickas:
+Die Jua-Band-Bio, Der Steinzeit-Trip,
+in Fortsetzungsfolgen, die ständig bearbeitet
+und korrigiert werden.
+
+Willst Du baumeln, auf der Heide,
+der Merheimer Heide, dann Finger weg
+von der einen, Du Haide, hoch oben
+aufgeknüpft am Baumgeäst? Schwebend
+scheinbar, schwingst Du in der Luft, bevor
+Gruft.„Ein Liebeslied ?“ Kai fragt,
+autopilotbefreit, den Klampfenquäler der
+beim Wörtersuchen, groovepeitschend,
+seinen Text schraubt.
+
+„Ich schreibe lieber Trennungslieder.“
+singt er.„Leider richtig schlimm oft tödlich,
+was ?“fragt Kai. „Jua braucht’n Hit,
+ein Schlager morbid, Pandiezick schick,
+Dynamit, damit Kohle reinkütt, flück jetrix,
+rocke me jod hück Nacht, klabbet nit, wat
+is ? Mät nix, me rocke de Blues away“
+„Diese Frau gibt Dir den Rest,“ Ah,
+Rock and Roll?“ Freut sich Kai:„Yeah, it is
+the best.“Er reimt weiter:„Un bist’e
+ähts duud, do is alles juud. Reingehängt,
+alles gegeben, als ging’s um sein Leben,
+er würd für sie sterben, kämpft sich selber
+so nieder, hängt in Illusionen, fühlt nur den
+Wahn, sie liebt das Lieben selbst,
+Selbstliebe, den Lieb, nicht den Haber.“
+
+„Kai, wie wär’s hiermit?:
+Auf“Good Rockin‘ Tonight‘, Roy Brown’s
+Komposition von ’47 passt sowas:
+Schon gehört, da gehts voll ab, hück Nacht.
+Good rockin‘ tonight, rocken, bis es kracht.
+Klene, mir biste jod, da simmer dabei.
+Rockemer, kloppemer, de Blues away.
+Rocke mer jood hück Nacht, kumm, loss jonn
+rockemer de Blues, kloppemern‘ in de Tonn.
+All kloppe, rocken hä af, tonight, hück Nacht,
+häste Zick? Allright, afrocke, bis et kracht.“
+
+Kai sagt:„Alter, laset krache.“
+Wo fliegen wir hin, Kai? Der: „Auf den Mond,
+auf der Rückseite ist der 😈 Düvel los. Eine
+Invasion von Space-Rock-Punks ist da am
+Werk. Space-Aliens von Orion’s Planet Rüpell
+wollen Mond-Steine de-helium3-drieren, also
+räubern.“ Markus meint: „Na und.“„Kai: „Ja
+wie? Die kriegen was um die Ohren, die
+rauben unseren wertvollsten Energievorrat.
+Die Erde kann nur mit Helium 3 gerettet
+werden. CO2 freie, radioaktivitätfreie Energie
+brauchen wir in Massen do unge op de Äd,
+Spacko.“„Das könnten auch russische
+Steinbeißermikroben, die Stalin dort ausge-
+setzt hat, sein, oder?“ meint Copilot Igor.„ Die
+hat er mit den Nazis ’41 da hoch geschafft.“
+Meint Boris, der tief an seiner Pfeife zieht.
+Kai:„Sicherlich, ihr Spinner, mät ken Verzell.“
+Der Schwadschorsch kommt dazu und sagt:
+„Zuletzt waren die Steinbeißermikroben groß
+wie Ratten. Milliarden von gefräßigen Energie-
+Spar-Ratten höhlten den ganzen Mond von
+hinten aus, daß er einer Schüssel glich, deren
+Rückseite von der Erde zu sehen war, als
+wäre er noch ne runde Kugel, dabei war es
+nur noch ne halbe Eierschale.“Kai antwortet:
+„Du Eiermann, hau bloß af, doh.“
+Auf dem Mond 🌙 gelandet bohrt sich die
+DUB-Maschine langsam ins Mondinnere.
+Langsam und bedächtig, immer auf der Hut
+einen Hohlraum anzutreffen. Wir sind keine
+fünf Kilometer eingedrungen als das DUB
+auf Stahl stößt. Das Bohrgetriebe heult auf
+und geht automatisch auf Feinriebfräsung.
+Eine Gangschaltung regelt das. Kai stoppt
+die Fräse und setzt ein wenig zurück. Ein
+Bohrer von einem Meter im Durchmesser
+setzt an und treibt voran. Nach dreißig
+Metern ist er durch. Das glockenartige🔔
+Geräusch, sehr tief und lange nachhallend,
+dröhnt minutenlang nach. Ist der Mond 🌒
+doch hohl? Klar er ist eine Kugel, das konnte
+Kai uns bei der Umrundung eindeutig zeigen,
+aber was ist hiervon zu halten. Das müssen
+wir uns wohl ansehen. Zur Strafe für unsere
+ihn nervenden Verzällcher schickt Kai Igor,
+Boris und mich in Schutz- Anzügen und
+Waffen in die Röhre. Die Rakräder voran
+lassen wir uns abseilen. Wir werden zu
+unserer Verwunderung am Ende der Röhre
+von Samsung persönlich empfangen. China
+im Mond? Die Zeitreisenzuweisungsinstanz
+foppt uns, oder was ist? Schon wieder haben
+sie uns in die Zukunft geschickt, ohne dies
+anzukündigen. Der sehr echt wirkende
+Roboter, Herr Samsung, begrüßt uns mit
+seiner Smith & Wesson und schießt auf
+meine, die mir aus der Hand fällt, was
+durchaus schmerzhaft war. Es ist aber
+nicht so schlimm. Igor versucht es, aber
+Samsung ist zu stabil gebaut für eine
+Abreibung. Er fängt sich eine metallische
+Watsche und versteht was Sache ist.
+Sam sung uns Folgendes:„Sing ein Lied
+Flemdel, abel zack, zack, zackzement
+Lock‘ n‘ Loll:“„🎶 I bin de Igor, des is Boris
+und dos ist der Schwadschorsch, der ist
+morsch, und du bist Sam Sung, Sammy Sung
+di dabba dumm, Sammy Sung Bäm…Bumm.“
+„Zwo, dlei, viel, joa gibt’s boald a 🍺 Biehhl.“
+Sam hat Humor, er kann boald bayrisch. Fehlt
+nur noch das R‘, dann wird’s feierlich. Kai
+hört über Funk mit und sagt:„ Die müsse dä
+Jung nur jet umprojamiere, die Chines mötens‘
+selwer maache, dat sin fuul Säu.“ „Ewer Du,
+Kaakai:“Kai sagt:„Weiter singen, ihr klingt wie
+besoffene Elche, da geht noch was, oder?“Die:
+„Auf dem Mond da steht ein Hofbräuhaus, da
+unten, da steht Sam Sum, bidi bumm.🎶
+🎶Heh, Mr. Sam Sung, hau auf die Trumm,
+Was baut ihr hier, wir sind nicht dumm?“
+„Er antwortet: „Aufgefrischt hab ich mich,
+selbst neu umprogrammiert, rollt mein R‘
+jetzt wie geschmiert.“„Ihr baut also alles
+selbstständig, optimiert euch selber und
+fertigt alles aus gesiebten aufgearbeiteten,
+Mondgestein?“„Meinst du.“Kai:„Heh, Sam,
+das ist mein Spruch.“„Meinst du. Der Mond
+ist ein Satellit der unbewohnbaren Erde des
+Jahres 2121 und Startbasis der nichtbiolo-
+gischen und teilbiologischen Föderation der
+Nachmenschheitsdaseinswesensschaft, die
+eigenständig und unabhängig die alleinige
+Weltregierung darstellt und nur der, wie ihr
+wißt, der Zeitreisenzuweisungsinstanz auf
+Ceres untersteht. Herzlich willkommen in
+Neu-China, auf unserem Mond, und
+Grüße von der Kommunistischen Partei
+Chinas, ihr seid alle verhaftet. Auf geht’s
+ihr Restmenschen.“ Kai saugt mit Unterdruck
+uns alle samt dem Roboter ins DUB zurück
+und traktiert den überraschten Roboter mit
+seinem Baseballschläger. Er schubst ihn in
+die Röhre und pustet ihn mit Überdruck, mit
+Pressluft nach Chinas-Inner-Mond-Hohlraum
+zurück. Wir haben Kopfschmerzen, blaue
+Flecken und Ohrensausen. Die Röhre wird
+mit Abraummondgestein verstopft und mit
+Pressluftdruck ins Innere geschossen. Das
+wiederholt sich mehrfach. Kai ist in seinem
+Element und macht alles richtig.
+Der
+Schwadschorsch schwadroniert, sinierend:
+„Maschinenbau, made in Germany, auf dem,
+besser gesagt im Mond von China, made in
+China-Moon of China, gesteuert durch künst-
+lichte Intelligenz, sich selbst optimierende,
+lernende, eigenenützliche selbstprogram-
+mierende Massenfertigungsanlagen für
+Maschinerie-Robotik, Waffen, sich selbster-
+schaffende Selbsthersteller, Verdoppelungs-
+vermehrung aus vorgefundenem Mondstein,
+Mondstaub, Geröll und Mineralien und
+daraus gewonnenen Helium 3 Energieversor-
+gungsvorrat zur dauerhaften Steigerung der
+Herstellungskapazitäten aller nötigen
+Werkzeuge und Dinge. Losgelöste autarke
+High- Tech- Nazi-Maschinerie erobert. Das
+nichtbiologische, Tote also, greift das
+Lebendige, unsere Lebensgrundlage an.
+Das letzte Überprogramm gibt den Kurs an.
+Naziterror aus Mondgestein erstanden, frißt
+sich durch den Kosmos, wie Bakterien, Viren,
+Mikroben usw die Erde zu Beginn des
+organisch, biologischen Auflebens. Das Tote
+wird dann das Lebendige an neuen, besser
+geeigneten Plätzen neu erschaffen,
+einpflanzen, züchten und der Kreislauf
+beginnt von Neuem, solange es Monde,
+Mondgestein, Planetengestein, Materie
+gibt.“Kommander Kai kommentiert:
+„Meinst du.“
+Das DUB schraubt sich soweit zurück, bis
+es möglich wird in einem Bogen vorwärts
+zur Mond-Oberfläche zu gelangen. Auf der
+von der Erde abgewandten Mondrückseite
+angekommen beobachten wir ankommende
+kilometerlange Transportraumschiffe, die
+in den Mond eintauchen und aus ihnen heraus
+hochsteigen und abfliegen. Im Schatten des
+Mondes sind die von der Erde aus unbemerkbar.
+Spurlos verschwinden sie ins All hinter dem
+langen Mondschatten. Wir verfolgen ein
+Transportraumschiff und hoffen, daß es
+unser DUB nicht bemerkt. Es geht in die Mitte
+unserer Milchstraße, unser Sonnensystem ist
+ein einziger Teil dieser Galaxie, in Richtung
+des großen Stern-Haufens, wo sich das
+zentrale schwarze Loch befindet. Wir bleiben
+ihnen auf den Fersen. Das kann Jahrtausende
+dauern. Es muß ein Stern dazwischen sein.
+Proxima Centauri? Das dauerte viereinhalb
+Jahre. Die Richtung stimmt. Wir bleiben dran.
+
+MEINE POLITISCHE SICHT 23.9.‚21
+
+Wenn sich zwei ehemalige Brüderstaaten
+streiten und Nationalisten beider Seiten sich
+freiwillig zu kriegerischen Aktivitäten hin-
+reißen lassen und die Duldung ihrer jeweiligen
+Regierung dazu haben, es ihnen also gewährt
+wird, ist das nicht so schlimm, finde ich, weil
+es doch eigentlich dazu beiträgt, daß miese
+Nazi-Deppen sich gegenseitig beseitigen.
+Dann ist die Welt besser, da sie weniger
+Nazis ertragen muß. ’Waldi’ ’Putt it in‘ macht
+da nichts falsch, oder? Nationalisten
+wollen Krieg! Das ist immer so gewesen.
+Irgendwann ist das umstrittene Gebiet frei
+von diesen Nationalwi..ern, weil sie alle
+ausgestorben sind. Das ist für beide Länder
+vorteilhaft. Oder nicht? Hätte die Nato u.a.
+nicht in Rumänien Militärbasen aufgebaut,
+wäre die Annektion der Krim nicht nötig
+gewesen, soviel ich weiß. Ansonsten gäbe
+es auch dort eine Nato-Militärbasis, so
+meine Einschätzung. Liege ich bei meiner
+Beurteilung daneben? Ich laß mich da gerne
+belehren. Waldi muß das riesige Vielvölker-
+land zusammenhalten, das traditionell mit
+Europa verbunden ist, zu Europa zu zählen
+ist, welches traditionell auch ein Vielvölker-
+land ist. Alle Russen, die ich kenne, fühlen
+sich europäisch, nicht asiatisch. Sie wollen
+dasselbe wie wir.: Ruhe und Sicherheit,
+Gesundheitsversorgung, Bildungssysteme
+die kostenfrei in Anspruch genommen
+werden können, bezahlbare Lebensmittel und
+Wohnraum. Dazu ein kleiner Garten und ein
+zumutbarer Arbeitsplatz, der eine Rente
+erbringt, die Existenzstreß ausschließt. Pacht
+reicht, Grundbesitz braucht doch nur der
+Spekulant, oder? Das will sonst keiner.
+
+WEITER IM ROMAN:
+Der Transporter ist menschenleer und seine
+Robotik steuert ihn. Insofern ist er eventuell
+sehr lange unterwegs, da Zeit kein Thema
+wird. Kein Problem also für den Transporter,
+selbst wenn er hundert Jahre bräuchte um
+anzukommen.  Wir brauchen jetzt Jua ☀️,
+um mittels tonaler Direktion, zu Proxima
+Centauri zu kommen, um zu sehen was da
+gebaut oder abgebaut wird. Vielleicht gibt es
+da einen Planeten, den die Mondrobotik zu
+einer neuen Erde umtopft. Jua üben die neuen
+sieben Melodien ein, um sie zum bestimmten
+Augenblick an zu starten, anzustimmen. An
+den berechneten Orten innerhalb des DUB 🚀
+klingen dann im genau festgelegten Tempo
+zeitgleich diese vom Pilotentriell
+ausgerechneten Ton-Folgen. Der Zeitsprung
+wird in Entfernung berechnet. So sind
+viereinhalb Lichtjahre in Sekunden zu
+bewältigen. Musik macht’s möglich. In
+diesem Fall summen wir nur zwei Takte
+lang,  und in 10 Sekunden sind wir da. Der
+Planet, der in Frage käme, ist schnell gefunden.
+Boris glaubt, daß Klondike der ist welcher. Er
+hat einen fetten, dicken Mond 🌙 der nötig
+um ein stabiles Wetter zu garantieren. Kai
+ist zwar mondsüchtig stimmt aber zu.„Der
+zieht Kartoffeln 🥔 aus dem Äckern, da
+brauchste keinen Träcker.“Da wächst alles
+prima, besser als in China.“ Igor bleibt da
+skeptisch, sowas bitte nicht auf den Tisch.
+Auf Planet Klondike gibt es Wasser, viel
+Wasser. Das DUB wassert und taucht 20
+Kilometer tief zum Grund. Es bohrt sich ein,
+und stößt auf einen stahlharten Kern, oder
+ist es eine stählerne Ummantelung eines
+geheimen inneren Hohlraums? Das Anbohren
+gestaltet sich schwierig. Plötzlich öffnet sich
+an der Stelle, an der wir zufällig sind, ein
+passender Tunnel. Ein intelligenter, lebendiger
+Organismus? Oder ein alles überwachender
+konstruierter Mechanismus? Ist der Planet
+künstlich, oder ein Gesamt-Lebewesen. Ein
+symbiotisch, aus nichtbiologisch und biolo-
+gisch hochintelligenter Wesensart, zusammen-
+gesetztes 7000-Kilometer-Kugel-Lebewesen?
+Kai sagt nur:„Meint ihr.“Er gibt Gas und dringt
+ein. Das DUB fällt in einen Riesen-Schredder.
+Wird es zermahlen werden? Jua auch? Es
+rappelt ordentlich in der Kiste. Der Schredder
+freckt, nicht das DUB. Der hat sich schwer
+verschluckt. Die Aussicht ist, über die
+Großbildmonitore sichtbar, für die verstörten, schreienden, entsetzten Insassen möglich.
+Kaakai 🦅🍺🚬 bekommt Ärger für
+sein riskantes Manöver. Schlimme verbale
+Auswürfe prallen bei ihm ab; bei seiner
+üblichen Beantwortung:„Meint ihr.“ Kein
+weiteres Bier 🍺 für den Kommandanten.
+Eine harte Bestrafung. Er drückt seine Kippe
+aus und verschwindet in seine Schlafkoje.
+Igor übernimmt. Jua kotzt derweil, ich auch.
+Der Schock sitzt tief:„Ich kann ni mi, Jesu
+Maria. Lurens, do simmer in der Höll, stecke
+do midde drin. Wie kümme mer do ens wigger
+eruss?“ Igor und Bo staunen nicht schlecht.
+Ein Schwarm von fliegenden Ungeheuern
+umzingelt das im Schredder-Schrott
+hängende DUB 🚀.Sind es Roboter 🤖 oder
+Aliens? Sie fangen an zu singen:„In Klondike
+steckt ein DUB, das fressen wir lieber nicht.
+Willkommen im Klub, Jua hat hier
+Spielpflicht.“Ein geflügelter Beatles-Alien, es
+ist John, der Exil-Weltschattenpräsident von
+der Gigant Pyramide auf Ceres aus regierend,
+El Präsidento del mondo inkognito, Lennon
+fliegt durchs DUB-Groß-Monitor-Bild mit einer
+Pfeife im Schnabel. Er pustet süßlichen
+Qualm in riesigen Rauchschwaden aus, die
+wundersam dem Monitor entströmen
+und für uns die Sicht und das Bewußtsein
+vernebeln. Jua schleppt sich an die Musik-
+Instrumente und inhaliert gezwungener-
+maßen beim Spielen diesen rosa-farbenen
+schwer haluzinogenen dicken, fremdartigen
+Nebelsuppe-Qualm in die Lungen, ins Blut,
+ins Gehirn, falls vorhanden, und dann in die
+Hirnregionen die unsere Hände, Füße, Kehlen
+und Zungen befeuern. Unsere Ohren staunen.
+Beatle-Hits im Half-half-Off-beat-bossa-
+Rhythmus ertönen. Die Aliens tanzen
+schwebend umher, oder knutschen sich im
+harmonischen Beatles-Liebeslieder-
+Zeitlupentempo der Klondikehohlheit
+außerhalb des DUB’s. Ohne unsere neue
+Tonaldirektionsfortbewegungsmöglichkeit
+würden wir hier feststecken. Kai wird also
+rehabilitiert. Er kommt mit der Qualmwolke
+besser zurecht als Bo und Iggy, die hacke-
+breit high sind. Maske auf und Kai 🦅 steht
+am Steuer-Pult seinen Mann:„Anker ziehen,
+Leinen los und Ahoi, auf nach Madagaskar.“
+Dahin geht’s erstmal nicht. Der Kommandeur
+Kai macht nur gute Stimmung. John paßt ja
+auf uns auf. Das gibt uns allen Mut und
+Zuversicht, egal was kommt. Kai zündet das
+Raketentriebwerk, und mit einem gehörigen
+Ruck befreit sich das DUB aus dem Schredder
+und stürzt in die Tiefe des Planeten Klondike.
+Hohl ist er und groß genug für Flugmanöver.
+Allerdings findet sich keine Möglichkeit zu
+landen, anzudocken oder zu wassern. Ein
+Abbremsen durch Gegenraketentriebwerk-
+zündungsstöße in der Gravitstionslosigkeit
+der Hohlraummitte Klondikes bringt das DUB
+zum Schwebezustand, der sauber
+ausgerechnet wird vom gut parierendem
+Piloten-Triell. In Schutzanzügen flitzen diese
+auf Rakrädern im freien Raum der Klondike-
+Hohlräumlichkeit, um nachzuschauen, um
+Erkundungen einzuholen, was hier abgeht.
+Halbdunkel ist es. Rundherum ein leuchtender
+Himmelsgrund, der rosa, zitronengelb,
+fliederblaue und orangerote Nebelschwaden
+zur Mitte, zu uns hochsteigen, runterziehen,
+von allen Seiten also in unsere Richtung
+ziehen läßt, aber doch tausende Kilometer
+entfernt zu sein scheinen. Ganze Berge von
+Industrieanlagen drehen auf Umlaufbahnen
+ihre Runden um uns herum. Durch Robotik
+gesteuerte selbstherstellende,
+menschenleere Produktions-Anlagen die
+Robotik herstellen, die wiederumRobotik
+fertigen und Abbau-Anlagen bauen, die am
+Grund des hohlen Planeten Gestein baggern,
+das für die hier hergestellten Robotikanlagen
+gebraucht, benötigt wird. Recycling mit inbe-
+griffen, wird aus allem alles gefertigt. Abge-
+kapselt in der kilometerdicken stählernen,
+oder aus ähnlich Stabilem wie Stahl, ge-
+fertigten Ummantelung, deren Innenseite
+nur noch wenige Kilometer dick mit dem
+ursprünglichen Gestein bedeckt ist. Wenn das
+aufgebraucht sein wird, besteht hier alles aus
+Robotikgerätschaft, die mit Transportraum-
+schiffen an die Oberfläche gebracht werden
+wird, zur Reise zum nächsten Planeten, der
+geeignet erscheint, wiederum ausgehöhlt
+zu werden, usw, usw…
+
+MEIN FAZIT ZUM WAHLERGEBNIS:
+Links tuen und an alten Gewohnheiten
+festhalten. Halbherzigkeit zum notwendigen
+Umsteigen in der Klimawandelpolitik
+zeigt sich im schwachen Abschneiden der
+Linkspartei und der Grünen. Die Liebe zum
+eigenen Auto ist wohl zu groß. Nur so kann
+ich mir das Wahlergebnis erklären. Eine
+’privatautofreie’ Zeitepoche ist angebrochen;
+Der Horror des typisch deutschen
+Deutschens. Das Auto geht ihm über alles.
+Wer es ihm ’rauben’ will, der wird bekämpft.
+Und wenn die Welt brennt, soll sie doch
+brennen, sie werden im Auto dabei zusehen,
+und die Autoklimaanlage, zum Kühlen des
+Autoinneren, aufdrehen. Wenn es dann
+immer schlimmer wird, rast er letztendlich
+zum vorzeitigen eigenbestimmten Ableben
+gegen einen Baum, falls es noch welche gibt.
+Unser Kulturerbe? Unbewusst getrieben,
+sexuell verschobene Liebe zum Ding. Wahn?
+Das nennt man Nekrophilie, die es so nur
+in deutschsprachigen Ländern gibt, oder
+nicht? In vier Jahren, in vier Jahrzehnten, in
+Ewigkeit nicht, kommt der freiwillige private
+Autoverzicht. Amen.
+
+WEITER IM ROMAN:
+„Eine Frage hätte ich, Kai.“ Kai sagt:„ Was
+gibt’s, Schwadschorsch?“ Der monologisiert:
+„Gibt es auf Planet Klondike Leben? Es gibt
+wahrscheinlich kein biologisches Leben, aber
+wie definiert man das nichtbiologische Leben?
+Das gibt es nicht. Oder? Kein nichtbiologisches
+Leben, daß nicht von biologischem Leben ent-
+wickelt worden wäre. Das Leben war vorher da.
+Leben braucht Fortpflanzung, Ernährung,
+Wachstum, Lernfähigkeit, Raum, Natur,
+Liebe, Wehrhaftigkeit, Evolutionszeit,
+Fähigkeiten, Sinnesorgane, Optimierungswille,
+Anpassungswille. All das brauchen Bakterien
+wie wir Menschen auch. Können wir ohne
+Liebe leben? Nein, jedenfalls nicht langfristig,
+weil Stagnation zum Ableben verurteilt.
+Bakterien lieben irgendwie, irgendwas auch.
+Es schmeckt ihnen was. Oder?“„Nachdem Kai
+tief inhaliert und Rauch-Ringe in den Qualm
+seiner wasserpfeifenverräucherten
+Umgebungsluft bläst, sagt nach einer
+längeren Denkphase🦅:„Meinst du.“„Das
+sagst du immer, antwortet Schwad.“Kai sagt
+wie so oft:„Meinst du.“„Schwadschorsch
+redet, eifert:„Ich glaube, daß Humanoide,
+eine frühere Menschenhochkultur das hier
+angerichtet hat. Eine Zivilisation, die spurlos,
+weil sie vor ewig langer Zeit vor uns ins Weltall
+geflüchtet ist, auf Erden gelebt hat, von der
+wir keine Ahnung haben. Vielleicht hat sich
+deren KI sich einst selbstständig gemacht,
+sich von ihren Erschaffern losgelöst, und von
+da an vermehren sie sich immer schneller
+künstlich durch eine sich selbst optimierende
+KI bis in alle Ewigkeit weiter?“Kai sagt:„Meinst
+du.“.Schwadschorsch fragt:„Kai, liebt die, oder
+braucht die KI Liebe?“ Er füllt mit Qualm, mit
+wirksubstanzhaltigem Qualm den Piloten-
+kanzelraum, seine Umrisse verschwinden,
+und sagt:„Künstliche Intelligenz tät dir gut,
+die könntest du gut gebrauchen, Alter.“ The
+‚TeuTones‘, im eckigen Bossanova-Groove,
+Ska-off-Beat-artig betont, ne‘ Art Jua Combo
+aus Sachsen, die? 20.000 ihrer Flyer? Im All
+verschleuderten, für ? Sachsen. Sachsen die
+Engländer Deutschlands, braun, noch etwas
+brauner als jene, erscheinen ungefragt hier.
+Kommen sie aus dem Jenseits? Woher sonst
+sollten sie irgendwie aus dem Nirgendwo her-
+gekommen sein. Sind die echt, eingebildet,
+oder künstliche Holos? Wir hören und sehen
+diese Sachsencombo, Toy, oder TeuTones,
+als sie plötzlich im DUB mit Akku-Equipment
+aufspielen und gekünstelt singen:„ Künstlich
+ist günstig, Intelligenz leider nicht, heute Teu
+Tones billig, morgen TeuTones teuer.“ „Als
+Walzer käm es besser. Kommt aber so als
+Skabossa auch nicht schlecht rüber. Oder?
+Besuch aus einem Paralleluniversum? Jua’s
+Akku-Amps spielende Doppelgänger? Solar
+lässt grüßen. Hendrix und Lennon arbeiten
+dem Chef, dem Solar zu, der seit 20.000
+Jahren mindestens, seinerzeits mit Jakob
+und Meister Laban für Ordnung in der Vor-
+Jesus-Epoche sorgte, und den Weg für
+Jesus frei machte. Der Kommandeur Solar
+lebt freilich ewig, zur Zeit in Atlantis, und er
+regelt auf der Erde bis zu deren Ende. Der
+Klimawandel beschleunigt das Sterben der
+Arten, der Natur und des Lebendigen nur.
+Soviel ist klar, es wird das Leben auf der Erde
+nicht mehr geben, eventuell zieht es um ins
+Erdinnere, oder der Planet wird aufgegeben
+werden müssen, zugunsten eines anderen.“
+„Schwad, halt’se!“ murrt Kaakai und trinkt
+sein Bier 🍺 aus und macht noch eins auf.
+„Schwad, das sind Jua, Iggy sitzt am
+Schlagzeug und Bo singt, du ***.“
+
+Stand:30.9.‚21, 12:12.
+
+Der Soundtrack zum Schelmenroman
+Die Gud-Band im Space-Rock-Sound auf
+IMEi, Köln, im Super-STEREO-Breitklang.
+
+https://drive.google.com/drive/folders/1K8VSjQRIUYKAPEZB9UEiIbJsVBIvMSFq?usp=sharing
+
+Im April ’21 in Köln gegründetes
+Space-Rock Trio für, im Wild-Dirigat-Style,
+sich frei bildende intuitive
+Improvisationsmusik, die ohne nach-
+trägliche Bearbeitung pure
+Momentaufnahmen darstellen, die gefühlte
+gemeinsame musikalische Reisen hörbar
+machen sollen. Dennis, git, l-voc, key,Traue,
+Udo, bass, voc, key, Eberweiser,
+Georg, dr, voc, Dickas.
+
+2021®©Georg Dickas✓Schorsch Tantekel©✓
+®Blunot Rec.BR4711CD.LP.CC.IMEI:EU.J.USA
+Made in Germany✓Cosmische Kalkurier ©✓
+
+Autor Schorsch Tantekel 
