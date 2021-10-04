@@ -1,9 +1,6 @@
 
 Tantekel
-the dark side of jua, in the beginning
-
-    Start
-    Artikel
+the dark side o
 
 Suchen
 Kapitel 1
